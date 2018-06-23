@@ -1,0 +1,67 @@
+baseURL = "https://prueboytecuento.com"
+languageCode = "es-es"
+title = "Pruebo y Te Cuento"
+theme = "hugo-nederburg-theme"
+# Enable comments by entering your Disqus shortname
+disqusShortname = ""
+# Enable Google Analytics by entering your tracking code
+googleAnalytics = ""
+preserveTaxonomyNames = true
+paginate = 5 #frontpage pagination
+
+[params]
+  slogan = "Tasting &amp; testing"
+  description = "Tasting &amp; testing | Mirar, oler, tocar, probar" # meta description
+  author = "Paula Hernández"
+  authorLink = "mailto:paulahematura@icloud.com"
+  bio = [
+    "Periodista 🇨🇱🇧🇷🇬🇧",
+    "Escribo a Revista M, LUN",
+    "Lorem Ipsum Do lorem"
+  ]
+  copyright = [
+    "&copy; 2018 Pruebo y Te Cuento"
+  ]
+
+
+  # Contact page
+     # Since this template is static, the contact form uses www.formspree.io as a
+     # proxy. The form makes a POST request to their servers to send the actual
+     # email. Visitors can send up to a 1000 emails each month for free.
+     #
+     # What you need to do for the setup?
+     #
+     # - set your email address under 'email' below (it is also used in Gravatar for the bio).
+     # - upload the generated site to your server
+     # - send a dummy email yourself to confirm your account
+     # - click the confirm link in the email from www.formspree.io
+     # - you're done. Happy mailing!
+  email = "paulahematura@icloud.com"
+
+  # Nav links in the side bar
+  [[menu.main]]
+  name = "Home"
+  url = "/"
+  weight = 1
+
+  [[menu.main]]
+  name = "About"
+  url = "about/"
+  weight = 2
+
+  # [[menu.main]]
+  # name = "Get in touch"
+  # url = "contact/"
+  # weight = 3
+
+  [params.social]
+  facebook      = "https://www.facebook.com/prueboytecuento/"
+  # googleplus    = "full profile url in googleplus"
+  email         = "paulahematura@icloud.com"
+  twitter       = "https://twitter.com/prueboytecuento"
+  # linkedin      = "full profile url in linkedin"
+  # stackoverflow = "full profile url in stackoverflow"
+  instagram     = "https://www.instagram.com/prueboytecuento/"
+  # github        = "full profile url in github"
+  # pinterest     = "full profile url in pinterest"
+  # rss           = true
