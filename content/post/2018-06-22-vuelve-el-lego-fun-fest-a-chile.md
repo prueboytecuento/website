@@ -1,7 +1,7 @@
 ---
 title: Vuelve el Lego Fun Fest a Chile
 showonlyimage: true
-date: '2018-06-22T23:27:26-03:00'
+date: '2018-06-04T23:27:26-03:00'
 image: /images/uploads/34385982_1872585483040398_1853023679483478016_o.jpg
 rating: '5'
 tags:
