@@ -9,6 +9,9 @@ googleAnalytics = ""
 preserveTaxonomyNames = true
 paginate = 5 #frontpage pagination
 
+[permalinks]
+  post = "/:year/:month/:title/"
+
 [params]
   slogan = "Tasting &amp; testing"
   description = "Tasting &amp; testing | Mirar, oler, tocar, probar" # meta description
