@@ -7,8 +7,9 @@ rating: '5'
 tags:
   - bloques
   - lego
+  - ladrillos
 categories:
-  - DATOS
+  - DATO
 weight: 0
 ---
 Hace unos días supe que vuelve Lego Fun Fest a Chile. Para vacaciones de invierno. Con mi hija Rafaela somos unas #LegoLovers y en nuestro último viaje a Alemania nos entusiasmaba la idea de conocer Legoland: estaba cerrado. Con esta noticia ya no todo está perdido.
