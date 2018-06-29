@@ -7,7 +7,7 @@ rating: '5'
 tags:
   - TaxiEléxtrico Calidad Contaminación UsuarioFeliz PulmonesLibres
 categories:
-  - CALLE
+  - TENDENCIA
 weight: 0
 ---
 # Hay sólo 3 dando vueltas por Santiago y hoy se me cruzó uno. 
