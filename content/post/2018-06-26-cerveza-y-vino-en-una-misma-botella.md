@@ -3,14 +3,14 @@ title: Cerveza y vino en la misma botella
 showonlyimage: true
 date: '2017-12-26T00:00:00-03:00'
 image: /images/uploads/craft-hugo.jpg
-rating: '4'
+rating: '5'
 tags:
   - cerveza
   - vino
   - sparkling
 categories:
   - COMER Y BEBER
-weight: '1'
+weight: '5'
 ---
 # Hay cosas curiosas y una botella con vino y cerveza. Tal cual. Ese es el mix que llegó de Alemania con el propósito de convertirse en el cocktail del verano chileno. 
 
