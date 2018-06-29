@@ -1,0 +1,15 @@
+---
+title: Repostería poco apetitosa
+showonlyimage: true
+date: '2016-09-28T13:36:42-03:00'
+image: /images/uploads/interrogacio-n.jpg
+rating: '0'
+tags:
+  - queque
+  - masa
+  - repostería
+categories:
+  - COMER Y BEBER
+weight: 0
+---
+Hace tiempo que no comía un queque hecho con tan poco cariño: masa seca, zanahoria de ralladura tan grueso q' es como q es 0 apetitosa. No me gustó. Y con lo bueno que es Café de la Barra (José Miguel de la Barra 455, Stgo). Un mal día de la repostera (o) o mezcla a mejorar. Así y todo, volveré x mi revancha. #prueboytecuento #fome #cake #MasaTriste
