@@ -7,6 +7,7 @@ rating: '5'
 tags:
   - bloques
   - lego
+  - ladrillos
 categories:
   - DATO
 weight: 0
