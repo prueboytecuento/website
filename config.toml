@@ -19,8 +19,8 @@ paginate = 5 #frontpage pagination
   authorLink = "mailto:paulahematura@icloud.com"
   bio = [
     "Periodista 🇨🇱🇧🇷🇬🇧",
-    "Escribo a Revista M, LUN",
-    "Lorem Ipsum Do lorem"
+    "genero, gestiono y desarrollo contenidos",
+    "Lorem Ipsum Do lore"
   ]
   copyright = [
     "&copy; 2018 Pruebo y Te Cuento"
