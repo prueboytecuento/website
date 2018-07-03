@@ -16,6 +16,8 @@ Hay cosas curiosas y una botella con vino y cerveza. Tal cual. Ese es el mix que
 
 ¿Su nombre? Craft Hugo. Un brebaje bien particular, cuyo sabor, para que se hagan una idea, es similar al de la Lemon Stones. Esa cerveza nacional que tiene jugo de limón. 
 
+<!--more-->
+
 Claro que en el caso de #CraftHugo hay burbujas mucho más livianas, tiene un suave gusto a cerveza artesanal (según ficha técnica un 10%) y el sabor predominante es el del vino blanco. Me encantaría saber qué cepa, pero ese dato no lo encontré en ningún lado. Una lástima.
 
 Este mezcla tiene además toques de jugo de limón, menta y el sabor cítrico de la flor de saúco. La flor blanca que aparece en la botella y que los europeos consideran mágica. Sabrá Dios por qué. Lo mío es el tasting.
