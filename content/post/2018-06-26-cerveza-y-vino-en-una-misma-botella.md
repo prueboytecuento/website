@@ -12,9 +12,7 @@ categories:
   - COMER Y BEBER
 weight: '5'
 ---
-Hay cosas curiosas y una botella con vino y cerveza. Tal cual. Ese es el mix que llegó de Alemania con el propósito de convertirse en el cocktail del verano chileno. 
-
-¿Su nombre? Craft Hugo. Un brebaje bien particular, cuyo sabor, para que se hagan una idea, es similar al de la Lemon Stones. Esa cerveza nacional que tiene jugo de limón. 
+Hay cosas curiosas y una botella con vino y cerveza. Tal cual. Ese es el mix que llegó de Alemania con el propósito de convertirse en el cocktail del verano chileno. ¿Su nombre? Craft Hugo. Un brebaje bien particular, cuyo sabor, para que se hagan una idea, es similar al de la Lemon Stones. Esa cerveza nacional que tiene jugo de limón. 
 
 <!--more-->
 
