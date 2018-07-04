@@ -14,4 +14,6 @@ weight: 0
 ---
 Me gustó peligrosamente este dulce de leche. Va a durar poco en la despensa. 
 
+<!--more-->
+
 Lo hacen en Doña Vicky Gourmet, Peñaflor. Sin azúcar, textura cremosa y suave. Está endulzado con tagatosa. Lo vi en El secreto de Olivia, La Reina. Ahí lo usan para sus pasteles. También está en emporioweb.cl y, hasta mañana, en Echinuco, feria gastronómica q se desarrolla en Parque Bicentenario, Vitacura. #prueboytecuento #sweet #lechona @virginiadonavicky
