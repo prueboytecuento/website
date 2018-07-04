@@ -12,7 +12,7 @@ categories:
   - DATO
 weight: 0
 ---
-El que se sepa esta simbología que levante la mano. 
+El que conozca esta simbología que levante la mano. 
 
 <!--more-->
 
