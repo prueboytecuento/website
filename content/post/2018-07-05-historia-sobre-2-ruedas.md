@@ -9,7 +9,7 @@ tags:
   - livianas
   - 60 años
 categories:
-  - fitness
+  - FITNESS
 weight: 0
 ---
 Historia sobre 2 ruedas. Esta semana la nacional Oxford cumplió 60 años.
