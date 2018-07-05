@@ -1,5 +1,5 @@
 ---
-title: Historia sobre 2 ruedas
+title: Oxford trae bicicletas más livianas
 showonlyimage: true
 date: '2016-10-07T16:36:37-03:00'
 image: /images/uploads/interrogacio-n.jpg
