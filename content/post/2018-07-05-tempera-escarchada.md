@@ -10,7 +10,7 @@ tags:
   - pinta
   - diviértete
 categories:
-  - CREA
+  - TENDENCIA
 weight: 0
 ---
 Disfrutar la tarde con mi hija no tiene precio. Y más si es a pintar.
