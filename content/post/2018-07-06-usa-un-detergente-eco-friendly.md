@@ -16,6 +16,8 @@ weight: 0
 ---
 Hay productos que se agradecen por su calidad, pero cuando tienen un valor agregado como la protección del medio ambiente, que, al menos para mí es tema, se aplauden de pie. Se llama FreeMet.
 
+<!--more-->
+
 Se trata de una línea de productos de limpieza y aseo personal desarrollados por 2 chilenas: Andrea Moraga (kinesióloga dermatofuncional) y Carolina Urrutia (bióloga marina). Hace unos días, me mandaron varias muestras y hoy me voy a detener en el detergente de ropa. Se trata de un producto que limpia bastante bien las prendas (doy fe de ello, porque lo probé en camisas, ropa infantil y toallas por separado), es hipoalergénico como muchos, pero, lo más interesante, es que es biodegradable y contiene microparticulas, resultado de la investigación de Carolina y Andrea, que liberan las prendas de metales pesados. 
 
 ¿Metal qué? ¿Micro what's? Yo también me pregunté lo mismo. Carolina lo explica así: 
