@@ -7,9 +7,11 @@ rating: '5'
 tags:
   - TaxiEléxtrico Calidad Contaminación UsuarioFeliz PulmonesLibres
 categories:
-  - TENDENCIA
+  - TENDENCIA Y ESTILO
 weight: 0
 ---
-# Hay sólo 3 dando vueltas por Santiago y hoy se me cruzó uno. 
+Hay sólo 3 dando vueltas por Santiago y hoy se me cruzó uno.
+
+<!--more-->
 
 Me encantó el #TaxiEléctrico. Una camioneta amplia, cómoda, limpia y el chofer full amable. Todo por las mismas lucas que pago en el negro-amarillo y, lo mejor, NO CONTAMINA. #prueboytecuento
