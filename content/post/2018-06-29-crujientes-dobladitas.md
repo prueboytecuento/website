@@ -1,5 +1,5 @@
 ---
-title: Crujientes dobladitas
+title: Dobladitas integrales
 showonlyimage: true
 date: '2018-06-29T13:33:20-04:00'
 image: /images/uploads/interrogacio-n.jpg
