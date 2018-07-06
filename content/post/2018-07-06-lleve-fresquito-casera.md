@@ -1,7 +1,7 @@
 ---
 title: ¡Lleve fresquito casera!
 showonlyimage: true
-date: '2018-07-06T12:33:31-04:00'
+date: '2016-10-10T12:33:31-03:00'
 image: /images/uploads/interrogacio-n.jpg
 rating: '5'
 tags:
@@ -14,6 +14,8 @@ categories:
 weight: 0
 ---
 Saludable + sabroso + buenos precios = feria libre.
+
+<!--more-->
 
 Me encantan y esta de Costanera en San Bernardo está increíble. Queda lejos pero vale la pena. 
 
