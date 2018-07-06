@@ -1,5 +1,5 @@
 ---
-title: Usa un detergente eco friendly
+title: Usa detergentes eco friendly
 showonlyimage: true
 date: '2016-10-31T15:52:22-03:00'
 image: /images/uploads/interrogacio-n.jpg
