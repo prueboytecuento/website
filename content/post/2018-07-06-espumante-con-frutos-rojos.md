@@ -10,7 +10,7 @@ tags:
   - espumante
   - frutos rojos
 categories:
-  - '5'
+  - COMER Y BEBER
 weight: 0
 ---
 Todavía queda muuuucha noche por delante y hay que ponerle sabor. 
