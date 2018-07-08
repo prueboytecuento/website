@@ -15,7 +15,7 @@ weight: 0
 ---
 Mira lo que me llegó a casa. Una lata de Rust-Oleum. ¿No la conoces? Se trata de una pintura premium que viene en formato spray y se puede usar sobre todo tipo de superficies.
 
-<!more-->
+<!--more-->
 
 La lata que recibí tiene doble fijación, o sea, no hay que pintar la misma zona más de una vez. Yo usé la pintura sobre un mueble café muy oscuro. La apliqué sólo en el interior de cada nivel para darle un poco más de luz y que los objetos que se ven en la foto tengan mayor protagonismo. 
 
