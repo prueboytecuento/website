@@ -1,5 +1,5 @@
 ---
-title: PROSCUITT
+title: Ojo con esta... Caprichosa
 showonlyimage: true
 date: '2016-11-06T21:23:23-03:00'
 image: /images/uploads/interrogacio-n.jpg
@@ -15,11 +15,11 @@ categories:
   - COMER Y BEBER
 weight: 0
 ---
-Si tenía hambre antes de pedir esta ensalada, cuando la pusieron sobre mi mesa, mi apetito se disparó. Se mueren lo rica que es Caprichosa...Así se llama.
+Si tenía hambre antes de pedir esta ensalada, cuando la pusieron sobre mi mesa, mi apetito se disparó. 
 
 <!--more-->
 
-Esos rollitos de prosciutto di parma, rellenos con queso crema y nueces partidas son muy sabrosos.
+Se mueren lo rica que es esta Caprichosa... Asi se llama. Rollitos de prosciutto di parma, rellenos con queso crema y nueces partidas son muy sabrosos.
 
 Los tomates cherry, en cambio, estéticamente se ven lindos en el plato, pero su sabor no sorprende. En el interior tienen queso crema con pesto de albahaca.
 
