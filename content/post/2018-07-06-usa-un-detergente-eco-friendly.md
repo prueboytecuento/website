@@ -11,7 +11,7 @@ tags:
   - metales pesados
   - salud
 categories:
-  - TENDENCIA Y ESTILO
+  - ECO
 weight: 0
 ---
 Hay productos que se agradecen por su calidad, pero cuando tienen un valor agregado como la protección del medio ambiente, que, al menos para mí es tema, se aplauden de pie. Se llama FreeMet.
