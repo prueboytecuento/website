@@ -12,7 +12,7 @@ tags:
   - manualidad
   - ''
 categories:
-  - TENDENCIA Y ESTILO
+  - DECO
 weight: 0
 ---
 Imposible no acordarme de las manualidades que hacía en el colegio, cuando vi los trabajos de Pilar Castro. Un trozo de madera, clavos, hilo y mucha creatividad para poner en práctica.
