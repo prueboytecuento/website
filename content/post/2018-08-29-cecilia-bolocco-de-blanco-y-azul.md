@@ -10,7 +10,7 @@ tags:
   - colección
   - diseño
 categories:
-  - TENDENCIA Y ESTILO
+  - MODA Y TENDENCIAS
 weight: 0
 ---
 Estuve en el lanzamiento de la nueva colección de Cecilia Bolocco en Alto Las Condes y está rebuena.
