@@ -12,7 +12,7 @@ weight: 0
 ---
 Que abrir un frasco no sea más una lucha de fuerzas entre tu mano y la tapa😂😂😂.
 
-<!--more>
+<!--more-->
 
 Una cuchara te la hace fácil y solucionará tus problemas para siempre. Dale play al video. 
 
