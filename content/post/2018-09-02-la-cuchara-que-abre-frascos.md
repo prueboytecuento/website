@@ -1,16 +1,18 @@
 ---
 title: La cuchara que abre frascos
 showonlyimage: true
-date: '2016-12-01T12:33:34-03:00'
+date: '2016-12-01T12:42:32-03:00'
 image: /images/uploads/interrogacio-n.jpg
 rating: '1'
 tags:
-  - frascos abrir fácil dato tagatosa duraznos conserva
+  - datos tips cuchara duraznos conservas abre
 categories:
-  - COMER Y BEBER
+  - DATO
 weight: 0
 ---
 Que abrir un frasco no sea más una lucha de fuerzas entre tu mano y la tapa😂😂😂.
+
+<!--more>
 
 Una cuchara te la hace fácil y solucionará tus problemas para siempre. Dale play al video. 
 
