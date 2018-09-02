@@ -1,5 +1,5 @@
 ---
-title: Nutela sin azúcar
+title: Sabrosa crema de avellanas sin azúcar
 showonlyimage: true
 date: '2016-11-30T01:29:22-03:00'
 image: /images/uploads/interrogacio-n.jpg
