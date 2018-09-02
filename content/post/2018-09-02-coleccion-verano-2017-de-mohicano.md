@@ -5,7 +5,10 @@ date: '2016-12-07T13:01:18-03:00'
 image: /images/uploads/interrogacio-n.jpg
 rating: '1'
 tags:
-  - jeans evento look moda
+  - jeans
+  - evento
+  - look
+  - moda
 categories:
   - OTRAS PUBLICACIONES
 weight: 0
