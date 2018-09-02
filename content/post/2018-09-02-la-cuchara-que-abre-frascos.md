@@ -10,7 +10,11 @@ categories:
   - DATO
 weight: 0
 ---
-Que abrir un frasco no sea más una lucha de fuerzas entre tu mano y la tapa😂😂😂.
+Que abrir un frasco no sea más
+
+una lucha de fuerzas entre 
+
+tu mano y la tapa😂😂😂.
 
 <!--more-->
 
