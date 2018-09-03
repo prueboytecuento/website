@@ -1,5 +1,5 @@
 ---
-title: Nuevos productos para el de Dove
+title: Nuevos productos para el pelo de Dove
 showonlyimage: true
 date: '2017-02-09T11:50:37-03:00'
 image: /images/uploads/interrogacio-n.jpg
