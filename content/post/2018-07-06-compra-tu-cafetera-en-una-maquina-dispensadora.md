@@ -9,7 +9,7 @@ tags:
   - fácil
   - útil
 categories:
-  - TECH
+  - COMER Y BEBER
 weight: 0
 ---
 "Disfruta el arte moderno del café", dice la leyenda de este robusto dispensador de Dolce Gusto. 
