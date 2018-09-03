@@ -26,7 +26,7 @@ La colección #Liptensity aborda un espectro de 24 tonalidades soñadas, con car
 
 Para su elaboración se usó una tecnología de pigmentos tetracromáticos, pigmentos puros, lo que permite que de una pasada tus labios queden pintados con mucha textura. O sea, no es necesario pasar el labial muchas veces. ¿Se sale al beber o comer? Es un labial cremoso y satinado, por lo tanto, es imposible que no dejes rastro en tu copa. Pero qué importa eso si lo traes en tu bolso y puedes retocarte. Para mí hasta ahora no ha sido problema.
 
-![]()
+![null]()
 
 \*Liptensity / Habanero Sample 
 
@@ -36,9 +36,7 @@ La colección #Liptensity aborda un espectro de 24 tonalidades soñadas, con car
 
 Para su elaboración se usó una tecnología de pigmentos tetracromáticos, pigmentos puros, lo que permite que de una pasada tus labios queden pintados con mucha textura. O sea, no es necesario pasar el labial muchas veces. ¿Se sale al beber o comer? Es un labial cremoso y satinado, por lo tanto, es imposible que no dejes rastro en tu copa. Pero qué importa eso si lo traes en tu bolso y puedes retocarte. Para mí hasta ahora no ha sido problema.
 
-![]()
-
-
+![null]()
 
 \*Liptensity / Ambrosial 
 
@@ -48,4 +46,4 @@ La colección #Liptensity aborda un espectro de 24 tonalidades soñadas, con car
 
 Para su elaboración se usó una tecnología de pigmentos tetracromáticos, pigmentos puros, lo que permite que de una pasada tus labios queden pintados con mucha textura. O sea, no es necesario pasar el labial muchas veces. ¿Se sale al beber o comer? Es un labial cremoso y satinado, por lo tanto, es imposible que no dejes rastro en tu copa. Pero qué importa eso si lo traes en tu bolso y puedes retocarte. Para mí hasta ahora no ha sido problema.
 
-![]()
+![null]()
