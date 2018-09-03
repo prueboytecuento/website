@@ -10,7 +10,7 @@ tags:
   - look
   - moda
 categories:
-  - OTRAS PUBLICACIONES
+  - MODA Y TENDENCIAS
 weight: 0
 ---
 \#AmantesDelDenim @mohicanojeans lanzó su colección verano 2017 y congregó a algunas guapas del espectáculo.
