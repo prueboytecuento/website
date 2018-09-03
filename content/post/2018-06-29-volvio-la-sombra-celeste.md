@@ -8,8 +8,10 @@ tags:
   - Revista M
   - LUN
   - maquillaje
+  - belleza
+  - ojos
 categories:
-  - COLABORACIONES
+  - OTRAS PUBLICACIONES
 weight: 0
 ---
 ¿Sabías que la sombra de ojos celeste y gama de azules son lo que se llevarán esta primavera y verano 2017? Te invito a leerme en @revista_m y, por cierto, disfrutar la edición completa. #prueboytecuento #RevistaM #LUN #SombraCeleste @kenitalarrain #Primavera #Verano2017 #Glam #TodosLosViernes
