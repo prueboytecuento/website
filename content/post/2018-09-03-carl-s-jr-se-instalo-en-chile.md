@@ -12,7 +12,7 @@ categories:
   - COMER Y BEBER
 weight: 0
 ---
-La tienda de comida rápida californiana, con 75 años de experiencia, trae un hamburguesas como la Guacamole Bacon Thickburger que está bien buena. Conócelas aquí.
+La tienda de comida rápida californiana, con 75 años de experiencia, trae hamburguesas como la Guacamole Bacon Thickburger que está bien buena. Conócelas aquí.
 
 <!--more-->
 
@@ -20,7 +20,7 @@ Vamos con esta primero opción de #CarlsJr La mixtura de sabores es maravillosa.
 
 El tocino estaba en mi punto perfecto. Pero ese ingrediente no tendría gracia sin partners como los aros de cebolla morada, tomate y lechuga, frescos, queso y un guacamole mundial de bueno. Tiene un poco de picante que le da un gustito especial.
 
-![]()
+![null]()
 
 \*Western Bacon Thickburger es una propuesta ideal para situaciones de hambre extrema. En volumen es más pequeña que la Guacamole Bacon Thickburger, pero tiene doble hamburguesa, aros de cebolla apanados, queso, salsa BBQ y una salsa picante. Todo muy contundente.
 
@@ -30,7 +30,7 @@ Súmale a eso la salsa BBQ, el quesito y el picante, mmm.
 
 Todos los ingredientes vienen directamente de Estados Unidos para conservar el sabor característico de Carl’s Jr. De acuerdo a la publicidad de la tienda, la carne es 100% Black Angus Beef. No tenemos cómo saber si es así, pero es un producto blando, jugoso y sabroso.
 
-![]()
+![null]()
 
 \*Chicken Tenders o pollo tierno es así. No el clásico pedazo chicloso de pollo que tratamos de cortar con los dientes. Se desmenuza con facilidad, no es seco y sabe bien. Un buen producto.
 
