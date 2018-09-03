@@ -16,7 +16,7 @@ weight: 0
 ---
 Hay efectos del sol y nuestro clima seco que literalmente me dejan llorando. Ambos factores climáticos, sumado al uso de sandalias o flip flap destruyen mis pies.
 
-Resecan mis pies y agrietan mis talones al extremo de terminar con heridas y con dificultad para caminar. ¿Suena exagerado? Sí, pero es la realidad de varias y varios de nosotros.
+Los resecan y agrietan mis talones al extremo de terminar con heridas y con dificultad para caminar. ¿Suena exagerado? Sí, pero es la realidad de varias y varios de nosotros.
 
 En diciembre empecé a buscar nuevos productos y en la farmacia me hablaron de Ureadin Podos de ISDIN. Me tincó porque la mayoría de los productos con urea son buenos. La piel de mi hija es delicada y por prescripción de su dermatólogo sólo usa cremas con extra urea y cero problema. 
 
