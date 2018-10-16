@@ -2,7 +2,7 @@
 title: Mostaza con vinagre de cidra
 showonlyimage: true
 date: '2016-09-23T12:45:11-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/img_4223.jpg
 rating: '0'
 tags:
   - mostaza
