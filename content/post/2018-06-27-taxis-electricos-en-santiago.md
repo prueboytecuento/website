@@ -2,7 +2,7 @@
 title: Taxis eléctricos en Santiago
 showonlyimage: true
 date: '2018-06-27T16:41:09-04:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/taxi-ele-ctrico.jpg
 rating: '5'
 tags:
   - TaxiEléxtrico Calidad Contaminación UsuarioFeliz PulmonesLibres
