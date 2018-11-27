@@ -12,6 +12,6 @@ weight: 0
 ---
 Me encanta la cafetería del Jumbo Bilbao @jumbochile.
 
- <!—more-->
+<!--more-->
 
 Hacen un rico cortado y por costo cero me instalo a leer las revistas @caraschile @harpersbazaarcl @revistacosas. Revistas y diarios para hacer un alto en las compras y cambiar el switch. #JumboAVecesMeDa+
