@@ -18,6 +18,6 @@ Siempre se me caen las verduras de la parrilla, pero este 18 zafo con esta Barbe
 
 <!--more-->
 
-Es una bandeja con agujeros para poner sobre la parrilla y asar cosas pequeñas, sin el riesgo que terminen en las brasas. Me encanta tirar cebollines, pimentones y champiñones, pero mi problema era que siempre perdía la mitad de lo que llevaba al fuego.
+Es una bandeja con agujeros para poner sobre la parrilla y asar cosas pequeñas sin el riesgo que terminen en las brasas. Me encanta tirar cebollines, pimentones y champiñones, pero mi problema era que siempre perdía la mitad de lo que llevaba al fuego.
 
 Con la Barbecue Topper no tuve problema y lo mejor es que es económica. Vale menos de $6.000 y está en en @easytienda y @jumbochile Realmente es útil. #SOYprueboytecuento
