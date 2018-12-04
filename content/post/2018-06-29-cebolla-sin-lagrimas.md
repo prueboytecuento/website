@@ -14,4 +14,6 @@ weight: 0
 ---
 Mastica chicle.
 
+<!--more-->
+
 Me carga llorar por culpa de la cebolla. Pero acabo de comprobar que masticar chicle mientras se corta es la solución. Lo leí en una revista y funciona, wiiii. #SOYprueboytecuento
