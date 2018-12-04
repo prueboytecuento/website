@@ -1,15 +1,21 @@
 ---
 title: Disminuye el abdomen
 showonlyimage: true
-date: '2018-06-29T12:17:01-04:00'
-image: /images/uploads/interrogacio-n.jpg
+date: '2016-09-20T12:17:01-03:00'
+image: /images/uploads/review-agua-limo-n-foto-ppal.jpg
 rating: '5'
 tags:
   - natural
   - saludable
   - liviana
+  - julo
+  - limón
 categories:
   - FITNESS
 weight: 0
 ---
-Post 18 ¿Deshidratado, hinchado y c/la barriga pesada? Exprime 1 limón (c/15 segundo en microondas sale el doble de jugo 😉) y mézclalo con 1 vaso de agua. Tómalo todas las mañanas y vas a sentirte como pluma. #prueboytecuento #AdiósEfectoPasa #Sano #Natural #Sabroso #Vida
+Post Fiestas Patrias ¿Deshidratado, hinchado y con la barriga pesada? Exprime 1 limón.
+
+<!--more-->
+
+Déjalo 15 segundos en el microondas para sacarle el doble de jugo. Tal cual. Luego, mézclalo con 1 vaso de agua y tómalo todas las mañanas tibio. Te vas a sentirte como pluma y vas a estar quemando grasa. #SOYprueboytecuento
