@@ -19,11 +19,11 @@ Se ven rico, pero a estos platos de comida le faltan amor.
 
 Es comida para celiacos de Bar Italia, @baritaliachile. La masa de los ravioles es dura y en el caso del Congrio Crocante, no hay crocancia. 
 
-![Ravioles.](/images/uploads/review-bar-italia-foto-3.1.jpg)
+![](/images/uploads/review-bar-italia-foto-3.2.jpg)
 
 Son sabores sin fuerza, sin cariño. Ojo, no estoy hablando de dedicación, porque me imagino que en la cocina le ponen empeño, pero a veces el empeño no es suficiente.  
 
-![Congrio Crocante.](/images/uploads/review-bar-italia-foto-2.1.jpg)
+![](/images/uploads/review-bar-italia-foto-2.jpg)
 
 ¿Lo más sabroso? La carne. No fue un almuerzo feliz, pero imagino que para un celiaco debe ser un manjar volver a probar comidas "prohibidas". 
 
