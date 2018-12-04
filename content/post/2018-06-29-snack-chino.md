@@ -2,7 +2,7 @@
 title: Snack asiático
 showonlyimage: true
 date: '2016-09-12T12:06:42-03:00'
-image: /images/uploads/snackchino-foto-ppal.jpg
+image: /images/uploads/snackchino-foto-ppal-op2.jpg
 rating: '5'
 tags:
   - snack
