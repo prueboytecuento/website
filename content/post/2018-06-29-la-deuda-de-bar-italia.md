@@ -13,7 +13,7 @@ categories:
   - COMER Y BEBER
 weight: 0
 ---
-Se ven rico, pero a estos platos de comida les falta amor.
+Se ven ricos, pero a estos platos de comida le faltan amor.
 
 <!--more-->
 
