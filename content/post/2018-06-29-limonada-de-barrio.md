@@ -2,7 +2,7 @@
 title: Limonada de barrio
 showonlyimage: true
 date: '2016-09-21T12:28:48-03:00'
-image: /images/uploads/review-limonada-foto-ppal.jpg
+image: /images/uploads/review-limonada-foto-ppal-2.jpg
 rating: '0'
 tags:
   - refresca
