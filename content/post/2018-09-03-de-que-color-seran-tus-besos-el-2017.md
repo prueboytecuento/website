@@ -2,7 +2,7 @@
 title: ¿De qué color serán tus besos el 2017?
 showonlyimage: true
 date: '2016-12-31T10:29:48-03:00'
-image: /images/uploads/mac-labial-ppal.jpg
+image: /images/uploads/mac-labial-ppal-2.jpg
 rating: '1'
 tags:
   - labios
