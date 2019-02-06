@@ -17,7 +17,7 @@ weight: 0
 ---
 Pomaire es harto más q/artesanía en greda. A menos de 2 horas de SCL hay un restorán de comida chilena tan tan TAN rico. Se llama San Antonio.
 
- <!—more-->
+ <!--more-->
 
 Tienen empanadas de pino de 1/2 kilo que se puede comer entre 4. Carne picada, doble aceituna, poca cebolla. Está en la calle principal del pueblo. 
 
