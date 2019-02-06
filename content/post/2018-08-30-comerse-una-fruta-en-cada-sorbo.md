@@ -2,7 +2,7 @@
 title: Comerse una fruta en cada sorbo
 showonlyimage: true
 date: '2018-08-30T01:23:25-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/ama-jugos.jpg
 rating: '1'
 tags:
   - jugo
