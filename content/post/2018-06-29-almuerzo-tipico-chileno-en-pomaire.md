@@ -2,7 +2,7 @@
 title: Almuerzo típico chileno en Pomaire
 showonlyimage: true
 date: '2018-06-29T16:19:38-04:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/comida-pomaire.jpg
 rating: '0'
 tags:
   - platos típicos
