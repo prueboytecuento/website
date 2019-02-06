@@ -2,7 +2,7 @@
 title: Verduras viejas
 showonlyimage: true
 date: '2018-07-04T12:54:44-04:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/verduras-viejas.jpg
 rating: '5'
 tags:
   - verduras
