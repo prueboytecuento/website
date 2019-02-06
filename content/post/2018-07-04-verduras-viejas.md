@@ -8,7 +8,8 @@ tags:
   - verduras
   - descompuesta
   - hortalizas
-  - ''
+  - sucia
+  - caracoles
 categories:
   - COMER Y BEBER
 weight: 0
@@ -17,4 +18,4 @@ Me saca encontrarme con verduras en este estado. Hojas amarillentas, otras en ma
 
  <!-more-->
 
-Las 2 bolsas estaban en el mismo estado. Son de una productora de hortalizas llamada María Eugenia y las compré en Lider. Me preocupa la contaminación que puede llegar a mi mesa. #prueboytecuento #sucio #verduras @lider_cl
+Las 2 bolsas estaban en el mismo estado. Son de una productora de hortalizas llamada María Eugenia y las compré en Lider. Me preocupa la contaminación que puede llegar a mi mesa. Mal #SOYprueboytecuento
