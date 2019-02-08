@@ -2,7 +2,7 @@
 title: Ojo con esta... Caprichosa
 showonlyimage: true
 date: '2016-11-06T21:23:23-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-ensalada-caprichosa-ppal.jpg
 rating: '5'
 tags:
   - foodie
