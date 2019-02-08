@@ -28,7 +28,7 @@ Súmale a eso la salsa BBQ, el quesito y el picante, mmm.
 
 Todos los ingredientes vienen directamente de Estados Unidos para conservar el sabor característico de Carl’s Jr. De acuerdo a la publicidad de la tienda, la carne es 100% Black Angus Beef. No tenemos cómo saber si es así, pero es un producto blando, jugoso y sabroso.
 
-![null](/images/uploads/review-carls-2daok.jpg)
+![null](/images/uploads/review-carls-2daokok.jpg)
 
 \*Chicken Tenders o pollo tierno es así. No el clásico pedazo chicloso de pollo que tratamos de cortar con los dientes. Se desmenuza con facilidad, no es seco y sabe bien. Un buen producto.
 
