@@ -2,13 +2,14 @@
 title: Cayetana Boutique de Flores
 showonlyimage: true
 date: '2016-11-25T00:52:18-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-cayetana-ppal.jpg
 rating: '1'
 tags:
   - flores
   - colores
   - aroma
   - cambuchos
+  - flowers
 categories:
   - DECO
 weight: 0
