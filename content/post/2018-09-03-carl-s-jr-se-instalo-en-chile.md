@@ -2,7 +2,7 @@
 title: Carl's Jr. se instaló en Chile
 showonlyimage: true
 date: '2017-03-09T12:39:31-03:00'
-image: /images/uploads/review-carls-ppal.jpg
+image: /images/uploads/review-carls-2daokok.jpg
 rating: '1'
 tags:
   - hamburguesas
