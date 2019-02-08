@@ -2,7 +2,7 @@
 title: Nuevos productos para el pelo de Dove
 showonlyimage: true
 date: '2017-02-09T11:50:37-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-dove-ppal.jpg
 rating: '1'
 tags:
   - pelo
@@ -10,6 +10,7 @@ tags:
   - lavado
   - shampoo
   - acondicionador
+  - hair
 categories:
   - BELLEZA
 weight: 0
