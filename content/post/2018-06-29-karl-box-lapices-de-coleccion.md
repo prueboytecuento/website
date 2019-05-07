@@ -2,7 +2,7 @@
 title: 'Karl Box, lápices de colección'
 showonlyimage: true
 date: '2018-06-29T13:44:17-04:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/karl-box.jpg
 rating: '0'
 tags:
   - colores
