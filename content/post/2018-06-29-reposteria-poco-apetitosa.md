@@ -2,7 +2,7 @@
 title: Queque poco apetitoso
 showonlyimage: true
 date: '2016-09-28T13:36:42-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-quequeseco-ppal.jpg
 rating: '0'
 tags:
   - queque
