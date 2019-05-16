@@ -14,7 +14,7 @@ categories:
   - COMER Y BEBER
 weight: 0
 ---
-Hace tiempo que no comía un queque hecho con tan poco cariño.
+Hace tiempo que no comía un cake hecho con tan poco cariño.
 
 <!--more-->
 
