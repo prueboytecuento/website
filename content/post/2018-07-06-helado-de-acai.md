@@ -2,7 +2,7 @@
 title: Helado de açaí
 showonlyimage: true
 date: '2016-10-08T11:48:08-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-acaippal.jpg
 rating: '5'
 tags:
   - açaí
@@ -20,4 +20,4 @@ Frooty es de las pocas marcas que vende buen helado de açaí en Chile.
 
 Es un viaje de vuelta a una tarde cualquiera caminando por Rio de Janeiro. Muy muy rico y refrescante. 
 
-Si no conoces el açaí, es un fruto parecido al arándano, pero menos harinoso. Atrévete a lo nuevo.
+Si no conoces el açaí, es un fruto parecido al arándano, pero menos harinoso. Atrévete a lo nuevo. #SOYprueboytecuento
