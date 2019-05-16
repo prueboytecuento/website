@@ -2,7 +2,7 @@
 title: Mermelada de zapallo
 showonlyimage: true
 date: '2016-10-04T13:05:55-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/img_6078.jpg
 rating: '5'
 tags:
   - zapallo
