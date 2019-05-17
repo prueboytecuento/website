@@ -2,7 +2,7 @@
 title: Sangría en lata
 showonlyimage: true
 date: '2016-10-27T15:49:20-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-sangri-a-amorppal.jpg
 rating: '5'
 tags:
   - sangría
@@ -20,4 +20,4 @@ Las bebidas muy almibaradas pierden el encanto. Para eso bebo jugo. Sangría Amo
 
 De hecho, su imagen es la carta de Los Enamorados o Los Amantes. Interesante. Ideal para calurosas tardes como esta, picoteo y fiestas.
 
-En proceso están además la producción de El Diablo con rose y La Fuerza con un blanco. @sangriaamor la consigues a través de pidelo@sangriaamor.com, en su Instagram o en www.sangriaamor.com.
+En proceso están además la producción de El Diablo con rose y La Fuerza con un blanco. @sangriaamor la consigues a través de pidelo@sangriaamor.com, en su Instagram o en www.sangriaamor.com. #SOYprueboytecuento
