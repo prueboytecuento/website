@@ -2,7 +2,7 @@
 title: Cheesecake sin azúcar
 showonlyimage: true
 date: '2016-09-26T13:14:50-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-sinazu-carppal.jpg
 rating: '0'
 tags:
   - dulces
