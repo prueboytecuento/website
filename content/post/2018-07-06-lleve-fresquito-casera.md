@@ -2,7 +2,7 @@
 title: ¡Lleve fresquito casera!
 showonlyimage: true
 date: '2016-10-10T12:33:31-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-verduras-feriappal.jpg
 rating: '5'
 tags:
   - frescas
@@ -17,10 +17,8 @@ Saludable + sabroso + buenos precios = feria libre.
 
 <!--more-->
 
-Me encantan y esta de Costanera en San Bernardo está increíble. Queda lejos pero vale la pena. 
+Me encanta y esta de Costanera en San Bernardo está increíble. Queda lejos pero vale la pena.
 
-Estos tomates mutantes de $1.200 hablan por sí solos. No acostumbro a poner precios, pero se pasaron para buenos y baratos. 
+Llevarse 3 lechugas por $500 pesos, literalmente no tiene precio. O medio repollo por $300, el kilo de tomates grandes a $1.200 o 3 kilos de frutillas a $3.300. Precios que se agradecen y hay que aprovechar.
 
-Los 3 kilos de frutilla están a $2.200. Amo calidad y buenos precios.
-
-Si vive cerca, venga a la feria libre Costanera en San Bernardo.
+Si viven cerca de San Bernardo, San Bernardo mismo o van a almorzar a Buin o Paine, pasen antes a abastecerse de frutas y verduras a esta feria libre. Funciona los jueves y domingos. #SOYprueboytecuento
