@@ -2,11 +2,11 @@
 title: Pan de Pascua brazuca
 showonlyimage: true
 date: '2016-11-08T01:42:55-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-panettoneppal.jpg
 rating: '5'
 tags:
   - queque
-  - panettone
+  - Panettone
   - Brasil
   - Natal
   - Navidad
@@ -23,4 +23,4 @@ Es un queque que vendría siendo como nuestro Pan de Pascua, aunque sólo como q
 
 El Panettone es súper esponjoso, con menos frutas confitadas y de color amarillento. El proceso de fabricación dura 52 horas. La verdad es que si quieres probar algo distinto, está es una buena opción.
 
-El que aparece en la imagen es la versión mini del queque o individual. Lo encontré en un Líder @lider_cl del sur de Chile. En Santiago sólo he visto en tamaño familiar en Lider y Jumbo. A experimentar nuevos sabores.
+La que aparece en la imagen es la versión mini del queque. Lo encontré en un Líder @lider_cl del sur de Chile. En Santiago sólo he visto en tamaño familiar en Lider y Jumbo. A experimentar nuevos sabores. #SOYprueboytecuento
