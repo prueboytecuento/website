@@ -16,6 +16,8 @@ weight: 0
 ---
 Las 7 de la tarde y el calor no se soporta: 22 grados a la sombra. Viene bien una botella de agua. 
 
-<!--more-->
+<!--more—>
 
-La conocía pero no la había probado. Acqua Panna es suave, algo dulce. Buena experiencia. #prueboytecuento #H2O #Primavera2016 #Toscana #ItalianStyle
+La conocía pero no la había probado. Acqua Panna es suave y algo dulce. Sí, dulce, factor que tiene que ver desde la fuente de origen.
+
+Es este caso de un manantial en la Toscana, Italia. Buena experiencia. #SOYprueboytecuento
