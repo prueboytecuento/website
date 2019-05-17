@@ -1,8 +1,8 @@
 ---
-title: Has y envasa la compota de tu guagua
+title: Prepara y envasa la compota de tu guagua
 showonlyimage: true
 date: '2016-11-15T12:03:50-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-squeezeppal.jpg
 rating: '5'
 tags:
   - guagua
@@ -22,4 +22,4 @@ Me encantó porque es fácil de usar y limpio. La fruta madura se echa picada en
 
 Las bolsas son lavables y reutilizables. Ah, además trae una cuchara adaptable al pituto de la bolsa, en caso de que tu guagua aún no haya aprendido a succionar. 
 
-La Fill n Squeeze incluso me sirve a mí para llevar la fruta lista al gym. En @babytuto o www.essianchile.cl
+La Fill n Squeeze incluso me sirve a mí para llevar la fruta lista al gym. Está en @babytuto o www.essianchile.cl. #SOYprueboytecuento
