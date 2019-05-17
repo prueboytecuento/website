@@ -15,8 +15,10 @@ weight: 0
 ---
 Hace más de 10 años que no tomo bebida. Entre el gas y yo no hay onda. Pero San Pellegrino está logrando la magia de la reconciliación. 
 
- <!--more—>
+ <!--more-->
 
 Su burbuja es más pequeña y mucho más suave que las minerales light. Me gustó mucho. 
 
-Si a lo anterior sumamos que también hay San Pellegrino saborizada, la cosa es aún mejor. Probé de clementina y granada-naranja. Deliciosas. #SOYprueboytecuento
+Si a lo anterior sumamos que también hay San Pellegrino saborizada, la cosa es aún mejor. 
+
+Probé de clementina y granada-naranja. Deliciosas. #SOYprueboytecuento
