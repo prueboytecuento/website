@@ -2,7 +2,7 @@
 title: Limpia el aire que respiras
 showonlyimage: true
 date: '2016-11-17T23:31:39-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-hylappal.jpg
 rating: '1'
 tags:
   - aire
