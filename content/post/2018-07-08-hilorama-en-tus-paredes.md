@@ -2,7 +2,7 @@
 title: Hilorama en tus paredes
 showonlyimage: true
 date: '2016-11-14T02:18:38-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-hiloramappal.jpg
 rating: '5'
 tags:
   - hilorama
@@ -27,4 +27,4 @@ Para formar las figuras, se apoya en una plantilla previamente dibujadas en Illu
 
 Pilar Castro, por cierto, es diseñadora de interiores y exteriores y mujer tras el diseño de ambientes de todas las tiendas Homy. 
 
-Un punto de quiebre interesante: en su pega formal se venden productos lindos, pero en serie, y en su pyme, sólo de autor. El 80% son hechos por ella.
+Un punto de quiebre interesante: en su pega formal se venden productos lindos, pero en serie, y en su pyme, sólo de autor. El 80% son hechos por ella. #SOYprueboytecuento
