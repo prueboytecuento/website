@@ -1,5 +1,5 @@
 ---
-title: Desafío FitWoman en SppedWork
+title: Desafío FitWoman en SpeedWork
 showonlyimage: true
 date: '2016-10-24T15:17:28-03:00'
 image: /images/uploads/review-speedworkppal.jpg
