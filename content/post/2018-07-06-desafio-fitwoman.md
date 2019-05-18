@@ -1,5 +1,5 @@
 ---
-title: Desafío FitWoman
+title: Desafío FitWoman en SppedWork
 showonlyimage: true
 date: '2016-10-24T15:17:28-03:00'
 image: /images/uploads/review-speedworkppal.jpg
@@ -25,7 +25,7 @@ FitWoman fue diseñado para mejorar la calidad de vida. Por clase de una hora se
 
 La clase partió sobre la elíptica con carga básica debido a mi sedentarismo. Mis muslos acusaron recibo de inmediato, pero, poco a poco, empecé a entrar en sintonía con los ejercicios. La primera parte consistió en preparar las articulaciones para el entrenamiento. Activar zonas específicas como glúteo medio, zona lumbar, abdominal, etc. Hubo muchos ejercicios sobre colchoneta, como la plancha frontal y lateral, que me encantan y disfruto, a pesar de quedar con los brazos tiritones por mi constante flojera.
 
-![](/images/uploads/review-speedwork1.jpg)
+![null](/images/uploads/review-speedwork1.jpg)
 
 También trabajé con banda elástica para fortalecer brazos. Nunca lo había hecho y me gustó. No se me hizo tan complicado abrir y cerrar brazos con este implemento. Hubo 2 pausas activas: una de agua siempre con caminata y, la segunda, sólo de caminata. En total son 3.
 
@@ -33,11 +33,17 @@ El siguiente pasó fue trabajar coordinación y, para ello, la coach Francis Con
 
 Trabajar al aire libre me motivó mucho. Disfruto sentir el frío y humedad de la mañana. Durante los ejercicios de coordinación, siempre bajo la supervisión de Francis Contardo, en #Speedworks, trabajé con 2 elementos distintos: 4 conos y 1 balón de 3 kilos. 
 
-![](/images/uploads/review-speedwork2.jpg)
+![null](/images/uploads/review-speedwork2.jpg)
 
-Con los conos en el suelo, hice un circuito lateral entre éstos de ida y vuelta (correr de lado formando onda entre los conos). Luego las corridas fueron frontales tomando uno a uno los conos desde el suelo al punto de partida. Después lo mismo, pero dejando uno a uno los conos en su lugar. Después de la última pausa activa, partimos el trabajo con el balón. También hubo circuito con desplazamiento lateral, claro que lanzando el balón con fuerza al suelo para conseguir rebote y levantándolo con los brazos por sobre la cabeza. Eso además de sentadillas con desplazamiento, estocadas, etc.
+Con los conos en el suelo, hice un circuito lateral entre éstos de ida y vuelta (correr de lado formando onda entre los conos). Luego las corridas fueron frontales tomando uno a uno los conos desde el suelo al punto de partida. Después lo mismo, pero dejando uno a uno los conos en su lugar. Después de la última pausa activa, partimos el trabajo con el balón. 
+
+![](/images/uploads/review-speedwork3.jpg)
+
+También hubo circuito con desplazamiento lateral, claro que lanzando el balón con fuerza al suelo para conseguir rebote y levantándolo con los brazos por sobre la cabeza. Eso además de sentadillas con desplazamiento, estocadas, etc.
 
 La clase se cierra con vuelta a la calma con flexibilidad. Ejercicios de suelo suaves y reponedores. Me gustó FitWoman y, a partir de la próxima semana, voy a comenzar un mes de entrenamiento. Ya les hablé de cómo es una clase, después hablaremos de resultados. 
+
+![](/images/uploads/review-speedwork4.jpg)
 
 Speedworks es un centro bastante demandado por deportista de elite, lo que no significa que alguien como tú o como yo esté imposibilitado de entrenar ahí. Ejemplo más concreto es que terminé mi clase.
 
