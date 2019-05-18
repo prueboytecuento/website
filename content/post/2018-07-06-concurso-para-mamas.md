@@ -2,7 +2,7 @@
 title: Concurso para mamás
 showonlyimage: true
 date: '2016-10-27T15:41:07-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-concurso-expobebe-ppal.jpg
 rating: '5'
 tags:
   - mamá
