@@ -11,7 +11,7 @@ tags:
   - respira
   - agua
 categories:
-  - NOVEDOSO
+  - ECO
 weight: 0
 ---
 Este #prueboytecuento está pensado en los que sufren con el calor puertas adentro (casa, oficina, dpto, etc.) y las personas que, por ejemplo, tienen asma. Hay una pequeña máquina llamada Aera, que se encarga de purificar y humedecer el aire. 
