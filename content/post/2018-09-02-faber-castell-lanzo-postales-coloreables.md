@@ -1,5 +1,5 @@
 ---
-title: Faber-Castell lanzó postales coloreables
+title: Postales de Santiago coloreables
 showonlyimage: true
 date: '2016-12-17T13:27:48-03:00'
 image: /images/uploads/interrogacio-n.jpg
@@ -12,10 +12,10 @@ tags:
   - colores
   - arte
 categories:
-  - MANUALIDADES
+  - DECO Y DISEÑO
 weight: '1'
 ---
-Me encanta pintar y este libro-postal me gustó mucho porque son ilustraciones de lugares característicos de Santiago. 
+Me encanta pintar y este libro-postal de Faber-Castell me gustó mucho porque son ilustraciones de lugares característicos de SCL. 
 
 <!--more-->
 
