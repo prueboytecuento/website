@@ -2,7 +2,7 @@
 title: 'Guarda el celular, desconecta la consola'
 showonlyimage: true
 date: '2017-02-02T11:34:53-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-conecta4ppal.jpg
 rating: '1'
 tags:
   - juegos de mesa
