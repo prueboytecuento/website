@@ -1,5 +1,5 @@
 ---
-title: Adiós a los pies resecos
+title: Dile chao a los pies resecos
 showonlyimage: true
 date: '2017-02-01T11:17:05-03:00'
 image: /images/uploads/interrogacio-n.jpg
