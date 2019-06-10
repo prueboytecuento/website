@@ -1,5 +1,5 @@
 ---
-title: Coco hidratante de Jergens
+title: Coco hidratante Jergens
 showonlyimage: true
 date: '2017-01-31T11:11:29-03:00'
 image: /images/uploads/interrogacio-n.jpg
