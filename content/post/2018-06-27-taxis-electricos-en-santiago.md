@@ -5,9 +5,13 @@ date: '2016-09-09T16:41:09-03:00'
 image: /images/uploads/taxi-ele-ctrico.jpg
 rating: '5'
 tags:
-  - TaxiEléxtrico Calidad Contaminación UsuarioFeliz PulmonesLibres
+  - Taxi Eléctrico
+  - Calidad
+  - Contaminación
+  - Usuario Feliz
+  - Pulmones Libres
 categories:
-  - NOVEDOSO
+  - ECO
 weight: 0
 ---
 Hay sólo 3 dando vueltas por Santiago y hoy se me cruzó uno.
