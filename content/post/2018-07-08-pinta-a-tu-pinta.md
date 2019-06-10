@@ -10,7 +10,7 @@ tags:
   - home made
   - restaurar
 categories:
-  - DECO
+  - DECO Y DISEÑO
 weight: 0
 ---
 Mira lo que me llegó a casa. Una lata de Rust-Oleum. ¿No la conoces? Se trata de una pintura premium que viene en formato spray y se puede usar sobre todo tipo de superficies.
