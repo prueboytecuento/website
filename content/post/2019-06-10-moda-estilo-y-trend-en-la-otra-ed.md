@@ -2,7 +2,7 @@
 title: 'Moda, estilo y trend en La Otra ED'
 showonlyimage: true
 date: '2019-05-28T02:25:31-04:00'
-image: /images/uploads/review-laotraed-dato-ppal.png
+image: /images/uploads/review-laotraed-ppal.jpg
 rating: '1'
 tags:
   - ferias
