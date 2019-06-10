@@ -15,9 +15,9 @@ categories:
   - MODA Y TENDENCIAS
 weight: 0
 ---
-Lejos de asumirlo como un recurso tecnológico, no dejo de asombrarme con la cantidad de cosas novedosas que pueden fabricarse en tercera dimensión. Y esta es una de esas.
+Lejos de asumirlo como un recurso tecnológico, no dejo de asombrarme con las cantidad de cosas novedosas que pueden fabricarse. Esta es una de esas.
 
-<!--morea-->
+<!--more-->
 
 Cuando supe que había carteras hechas de silicona en 3D, por supuesto, quise conocerlas. 
 
@@ -25,6 +25,6 @@ Muchas figuras con diseños asimétricos, circulares, con puntas, sin relieve pe
 
 Son de Pisidia, marca e ideas que nacieron en Hong Kong (no me esperaba menos de la genialidad de los asiáticos) y que hoy tiene su centro de operaciones en Alemania.
 
-Además de lo novedosas, lo mejor es que la silicona dura muchos más años que el cuero y no necesita más cuidado que limpiarla con un paño húmedo.
+Además de lo novedosas, lo mejor es que la silicona dura mucho más años que el cuero y no necesita más cuidado que limpiarla con un paño húmedo.
 
-Todas las carteras son armadas a mano, algunas son de silicona con detalles en cuero español y todo el herraje es de acero inoxidable bañado en oro de 24 kilates. Están en Casa Costanera y Paris de Portal La Dehesa. #SOYprueboytecuento
+Todas las carteras son armadas a mano, algunas son de silicona con detalles en cuero español y todo el herraje es de acero inoxidable bañado en oro de 24 kilates. Están en Casa Costanera y Paris de Portal La Dehesa. @pisidia_america_latina @pisidia @fabuawad #durabilidad #limpias #novedosas #diferentes #originales
