@@ -9,6 +9,7 @@ tags:
   - enfermedad
   - chilena
   - gas
+  - tóxico
 categories:
   - OTRAS PUBLICACIONES
 weight: 0
