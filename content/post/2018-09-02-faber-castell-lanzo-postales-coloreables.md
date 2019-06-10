@@ -1,5 +1,5 @@
 ---
-title: Postales de Santiago coloreables
+title: Postales coloreables de Santiago
 showonlyimage: true
 date: '2016-12-17T13:27:48-03:00'
 image: /images/uploads/interrogacio-n.jpg
