@@ -17,4 +17,6 @@ categories:
   - OTRAS PUBLICACIONES
 weight: 0
 ---
-Las científicas Andrea Moraga y Carolina Urrutia trabajaron durante 2 años para conseguir encapsular toxinas invisibles a las que estamos expuestos todos los días. Sus productos consiguen proteger nuestra piel.
+Las científicas Andrea Moraga y Carolina Urrutia trabajaron durante 2 años para conseguir encapsular toxinas invisibles a las que estamos expuestos todos los días. Sus productos consiguen proteger nuestra piel. 
+
+FALTA
