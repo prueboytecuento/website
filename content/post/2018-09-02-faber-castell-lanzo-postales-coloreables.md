@@ -12,7 +12,7 @@ tags:
   - colores
   - arte
 categories:
-  - MANUALIDADES
+  - DECO Y DISEÑO
 weight: '1'
 ---
 Me encanta pintar y este libro-postal de Faber-Castell me gustó mucho porque son ilustraciones de lugares característicos de SCL. 
