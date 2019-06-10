@@ -5,7 +5,11 @@ date: '2016-09-09T16:41:09-03:00'
 image: /images/uploads/taxi-ele-ctrico.jpg
 rating: '5'
 tags:
-  - TaxiEléxtrico Calidad Contaminación UsuarioFeliz PulmonesLibres
+  - Taxi Eléctrico
+  - Calidad
+  - Contaminación
+  - Usuario Feliz
+  - Pulmones Libres
 categories:
   - ECO
 weight: 0
