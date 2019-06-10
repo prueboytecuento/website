@@ -1,5 +1,5 @@
 ---
-title: 'U first, un rico rectángulo de semillas'
+title: 'U first, sabroso rectángulo de semillas'
 showonlyimage: true
 date: '2016-12-05T12:52:45-03:00'
 image: /images/uploads/interrogacio-n.jpg
