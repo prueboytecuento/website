@@ -11,7 +11,7 @@ tags:
   - limpias
   - resistentes
 categories:
-  - MODA Y TENDENCIAS
+  - OTRAS PUBLICACIONES
 weight: 0
 ---
 ¿Conoces las ventajas de tener una jelly bag? Descubre las bondades de cargar uno de estos modelos, como resistencia o limpieza fácil. 
