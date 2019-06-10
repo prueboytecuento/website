@@ -9,7 +9,7 @@ tags:
   - lápices
   - creatividad
 categories:
-  - ESTILO
+  - DECO Y DISEÑO
 weight: '0'
 ---
 Colores, sentidos, belleza, arte, @karllagerfeld y @fabercastellchile.
