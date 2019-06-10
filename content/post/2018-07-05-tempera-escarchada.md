@@ -10,7 +10,7 @@ tags:
   - pinta
   - diviértete
 categories:
-  - MANUALIDADES
+  - DECO Y DISEÑO
 weight: 0
 ---
 Disfrutar la tarde con mi hija no tiene precio. Y más si es pintando.
