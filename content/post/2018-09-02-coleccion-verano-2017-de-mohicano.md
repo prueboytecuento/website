@@ -9,6 +9,7 @@ tags:
   - evento
   - look
   - moda
+  - ropa
 categories:
   - MODA Y TENDENCIAS
 weight: 0
