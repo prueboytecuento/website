@@ -11,7 +11,7 @@ tags:
   - uva
   - viña
 categories:
-  - ON TOUR
+  - COMER Y BEBER
 weight: 0
 ---
 \#prueboytecuentoOnTOUR Este es un imperdible de la Feria Internacional de Integración de Papudo. Vinos, artesanía guatemalteca y decoración geométrica.
