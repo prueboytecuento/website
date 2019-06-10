@@ -11,7 +11,7 @@ tags:
   - cambuchos
   - flowers
 categories:
-  - DECO
+  - DECO Y DISEÑO
 weight: 0
 ---
 Su trabajo es delicado y no precisamente porque lo hacen con flores. Cuando María Paz Montiel y Catalina Zerrano, hablan de su trabajo lo hacen con pasión.
