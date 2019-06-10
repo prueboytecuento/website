@@ -1,7 +1,7 @@
 ---
 title: Partió La Otra ED
 showonlyimage: true
-date: '2019-06-10T02:11:52-04:00'
+date: '2019-06-07T00:00:00-04:00'
 image: /images/uploads/review-laotraed-ppal.jpg
 rating: '1'
 tags:
