@@ -1,5 +1,5 @@
 ---
-title: 'Soledad Onetto es full tecnología, pero no renuncia al cheque'
+title: 'Tecnológica Soledad Onetto, no renuncia al clásico cheque'
 showonlyimage: true
 date: '2017-03-03T01:27:59-03:00'
 image: /images/uploads/interrogacio-n.jpg
