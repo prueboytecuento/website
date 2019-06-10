@@ -11,10 +11,10 @@ tags:
   - uva
   - viña
 categories:
-  - ON TOUR
+  - COMER Y BEBER
 weight: 0
 ---
-\#prueboytecuentoOnTOUR Este es un imperdible de la Feria Internacional de Integración de Papudo. Vinos, artesanía guatemalteca y decoración geométrica.
+Este es un imperdible de la Feria Internacional de Integración de Papudo. Vinos, artesanía guatemalteca y decoración geométrica.
 
 <!--more-->
 
@@ -28,7 +28,7 @@ En #MelodíaWines tienen 2 variedades: Malbec guardado por 8 meses en barrica fr
 
 Vayan y prueben los @melodiawines para descubrir el que más les gusta. En un mes llegan a Santiago y Viña. 
 
-![]()
+![null]()
 
 Hay artesanía de la que es imposible no enamorarse. Los bordados y trabajo en telar de Guatemala son ma-ra-vi-llo-sos.
 
@@ -36,7 +36,7 @@ La mayoría se trabaja en telar tradicional y trabajos como el de la foto inferi
 
 La cartera morada de la izquierda fue bordada a mano en punto rococó. 
 
-![]()
+![null]()
 
 Geometría fractal se les llama a las figuras irregulares. Algunos la llaman semi-geométricos. ¿Un ejemplo? El copo de nieve.
 
