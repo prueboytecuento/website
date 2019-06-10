@@ -10,6 +10,7 @@ tags:
   - peso
   - ejercicios
   - fitness
+  - control
 categories:
   - FITNESS
 weight: 0
