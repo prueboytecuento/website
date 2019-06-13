@@ -2,7 +2,7 @@
 title: 'Retomando el desafío #QuieroMisCurvas'
 showonlyimage: true
 date: '2019-06-11T10:05:41-04:00'
-image: /images/uploads/review-quieromiscurvasppal.jpg
+image: /images/uploads/review-quieromiscurvasppal1.jpg
 rating: '1'
 tags:
   - deporte
