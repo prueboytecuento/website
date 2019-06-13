@@ -17,6 +17,10 @@ categories:
   - FITNESS
 weight: 0
 ---
-Hace 8 meses me propuse bajar los 25 kilos extra que tenía. Llevaba 11 menos y dejé de ejercitarme 👎🏼. Pero estoy de vuelta y dispuesta a conseguir mi objetivo 😉.
+Hace 8 meses me propuse bajar los 25 kilos extra que tenía. 
+
+<!--more-->
+
+Llevaba 11 menos y dejé de ejercitarme 👎🏼. Pero estoy de vuelta y dispuesta a conseguir mi objetivo 😉.
 
 Anda al video en Youtube: xxx
