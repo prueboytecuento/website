@@ -1,7 +1,7 @@
 ---
 title: 'Retomando el desafío #QuieroMisCurvas'
 showonlyimage: true
-date: '2019-06-11T10:05:41-04:00'
+date: '2019-06-12T10:05:00-04:00'
 image: /images/uploads/review-quieromiscurvasppal1.jpg
 rating: '1'
 tags:
