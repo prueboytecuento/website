@@ -1,5 +1,5 @@
 ---
-title: 'Retomando el desafío #QuieroMisCurvas'
+title: 'Retomé el desafío #QuieroMisCurvas'
 showonlyimage: true
 date: '2019-05-11T10:05:00-04:00'
 image: /images/uploads/review-quieromiscurvasppal1.jpg
