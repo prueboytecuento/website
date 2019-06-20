@@ -6,8 +6,8 @@ image: /images/uploads/interrogacio-n.jpg
 rating: '5'
 tags:
   - >-
-    #lips #labiales #mate #colores #pigmentación #salvaje #delicada #felina
-    #sexy #besa #suaves #cremoso #FactorUV15
+    #lips #labiales #mate #colores #pigmentación #salvaje #delicada #sexy #besa
+    #suaves #cremoso #FactorUV15
 categories:
   - BELLEZA
 weight: '5'
