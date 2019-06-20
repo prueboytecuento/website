@@ -5,9 +5,18 @@ date: '2019-05-27T09:54:19-04:00'
 image: /images/uploads/review-labiales-ppal-ok.jpg
 rating: '5'
 tags:
-  - >-
-    #lips #labiales #mate #colores #pigmentación #salvaje #delicada #sexy #besa
-    #suaves #cremoso #FactorUV15
+  - lips
+  - labiales
+  - mate
+  - colores
+  - pigmentación 
+  - salvaje
+  - delicada
+  - sexy 
+  - besa
+  - suaves
+  - cremoso
+  - FactorUV15
 categories:
   - BELLEZA
 weight: '5'
