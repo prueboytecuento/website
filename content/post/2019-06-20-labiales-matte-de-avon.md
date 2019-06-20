@@ -3,14 +3,14 @@ title: Labiales Matte de Avon
 showonlyimage: true
 date: '2019-05-27T09:54:19-04:00'
 image: /images/uploads/interrogacio-n.jpg
-rating: '1'
+rating: '5'
 tags:
   - >-
     #lips #labiales #mate #colores #pigmentación #salvaje #delicada #felina
     #sexy #besa #suaves #cremoso #FactorUV15
 categories:
   - BELLEZA
-weight: '1'
+weight: '5'
 ---
 Cuando roza tus labios, la sensación es exquista. Aterciopelado, suave. Así es Ultra Matte, uno de los labiales de la nueva colección de Avon. 
 
