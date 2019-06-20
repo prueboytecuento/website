@@ -10,7 +10,7 @@ tags:
   - piensa
   - compartir
 categories:
-  - JUEGOS
+  - DATO
 weight: 0
 ---
 En tiempos en que a todos nos cuesta dejar el celular a un lado e incluso algunos tienen juegos para que sus hijos se “distraigan” o andan con la consola hasta en la playa, hagan un alto. Volvamos a jugar en la mesa.
