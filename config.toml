@@ -3,7 +3,7 @@ languageCode = "es-es"
 title = "Pruebo y Te Cuento"
 theme = "hugo-nederburg-theme"
 # Enable comments by entering your Disqus shortname
-disqusShortname = ""
+disqusShortname = "prueboytecuento"
 # Enable Google Analytics by entering your tracking code
 googleAnalytics = ""
 preserveTaxonomyNames = true
@@ -20,10 +20,9 @@ paginate = 5 #frontpage pagination
   bio = [
     "Periodista 🇨🇱🇧🇷🇬🇧",
     "genero, gestiono y desarrollo contenidos",
-    "Lorem Ipsum Do lore"
   ]
   copyright = [
-    "&copy; 2018 Pruebo y Te Cuento"
+    "&copy; 2019 Pruebo y Te Cuento"
   ]
 
 
@@ -67,4 +66,4 @@ paginate = 5 #frontpage pagination
   instagram     = "https://www.instagram.com/prueboytecuento/"
   # github        = "full profile url in github"
   # pinterest     = "full profile url in pinterest"
-  # rss           = true
+  rss           = true
