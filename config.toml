@@ -3,7 +3,7 @@ languageCode = "es-es"
 title = "Pruebo y Te Cuento"
 theme = "hugo-nederburg-theme"
 # Enable comments by entering your Disqus shortname
-disqusShortname = "prueboytecuento"
+# disqusShortname = "prueboytecuento"
 # Enable Google Analytics by entering your tracking code
 googleAnalytics = ""
 preserveTaxonomyNames = true
