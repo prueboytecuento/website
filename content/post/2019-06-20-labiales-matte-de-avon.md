@@ -2,7 +2,7 @@
 title: Labiales Matte de Avon
 showonlyimage: true
 date: '2019-05-27T09:54:19-04:00'
-image: /images/uploads/-prueboytecuento-review-labiales-ppal.jpg
+image: /images/uploads/-prueboytecuento-review-labiales-ppal-ok.jpg
 rating: '1'
 tags:
   - >-
@@ -24,7 +24,7 @@ Tienen buena pigmentación, son concetrados. Se fijan súper bien a la superfici
 
 Los Ultra Matte, Matte Luminoso y Matte Líquido de @avon son productos con Factor UV15, tiene un leve aroma a flores y tonos preciosos. A mi me gustan los colores fuertes, sobre todo porque me encanta hacer match con mi ropa y me visto con muchos colores.
 
-![Mis elegidos de la colección. Amé estos colores.](/images/uploads/-prueboytecuento-review-labialesavon-2da.jpg)
+![Mis elegidos de la colección. Amé estos colores.](/images/uploads/-prueboytecuento-review-labialesavon-2da-ok.jpg)
 
 Me enamoré del Marry Magenta, que es un fucsia furioso, luminoso. No soy de las mujeres que usan colores fuertes sólo a ciertas horas del día. Prefiero los labios altaneros.
 
