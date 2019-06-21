@@ -2,7 +2,7 @@
 title: La pulsera inteligente de Under Armour
 showonlyimage: true
 date: '2016-12-20T13:36:01-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-relojua-ppal.jpg
 rating: '1'
 tags:
   - deporte
