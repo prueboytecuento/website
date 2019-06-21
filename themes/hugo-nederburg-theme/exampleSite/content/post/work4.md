@@ -2,8 +2,9 @@
 draft = false
 image = ""
 showonlyimage = false
-date = "2016-11-05T19:50:47+05:30"
+date = "2017-11-21T19:50:47+05:30"
 title = "A post without an Image"
+writer = "Göran Svensson"
 categories = [ "code" ]
 weight = 4
 +++
