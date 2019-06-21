@@ -1,8 +1,8 @@
 ---
-title: 'REVISTA M, LUN: Volvió  la sombra celeste'
+title: 'REVISTA M, LUN: Volvió la sombra celeste'
 showonlyimage: true
 date: '2018-06-29T12:08:53-04:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-sombracelesteppal.jpg
 rating: '1'
 tags:
   - Revista M
