@@ -18,8 +18,8 @@ paginate = 5 #frontpage pagination
   author = "Paula Hernández"
   authorLink = "mailto:paulahematura@icloud.com"
   bio = [
-    "Periodista chilena 🇨🇱🇧🇷🇬🇧".
-    "Genero, gestiono y desarrollo contenidos".,
+    "Periodista chilena 🇨🇱🇧🇷🇬🇧",
+    "Genero, gestiono y desarrollo contenidos.",
   ]
   copyright = [
     "&copy; 2019 Pruebo y Te Cuento"
