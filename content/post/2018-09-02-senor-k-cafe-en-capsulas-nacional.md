@@ -25,7 +25,7 @@ No molí granos ni lo preparé, porque fui directo por un Señor K o el primer c
 
 Las dos últimas me gustaron bastante, aunque frente a la duda sobre intensidades, hice junto a otras 3 personas un primer testeo (hace 10 días) y un segundo hoy. ¿Qué pasó? Curiosamente, Sausalito que es el café de menor intensidad o más suave (según descripción en su envase), resultó ser el más fuerte. Mientras que Laderas del Tápias que es el más fuerte, (también por descripción del envase) resultó ser el más suave.
 
-![](/images/uploads/review-sen-ork-1.jpg)
+![null](/images/uploads/review-sen-ork-1.jpg)
 
 Frente a mi complicación existencial, invité a otros a probar las 4 opciones de café, sin explicarles por qué lo hacía. Todos coincidieron con mi apreciación. Interesante.
 
@@ -33,7 +33,7 @@ De Sausalito no sólo puedo contarles que, para mí, es el más fuerte, sino que
 
 En casa sólo bebo café extra fuerte y, por supuesto, no tomo descafeinados, pero el Natural Decaf me encantó. Es liviano, dulce y algo lechoso. Fue precisamente eso lo que me gustó. Ese saborcito a leche.
 
-![](/images/uploads/review-sen-ork-2.jpg)
+![null](/images/uploads/review-sen-ork-2.jpg)
 
 Laderas del Tápias, es bastante ácido. No es un café que escogería para beber. Si tu gusto va por ese lado, lo más probable es que sea tu elección.
 
