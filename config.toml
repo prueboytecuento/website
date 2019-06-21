@@ -19,7 +19,7 @@ paginate = 5 #frontpage pagination
   authorLink = "mailto:paulahematura@icloud.com"
   bio = [
     "Periodista 🇨🇱🇧🇷🇬🇧",
-    "Genero, gestiono y desarrollo contenidos.".,
+    "Genero, gestiono y desarrollo contenidos.",
   ]
   copyright = [
     "&copy; 2019 Pruebo y Te Cuento"
