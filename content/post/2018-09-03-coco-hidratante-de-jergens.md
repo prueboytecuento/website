@@ -2,7 +2,7 @@
 title: Coco hidratante Jergens
 showonlyimage: true
 date: '2017-01-31T11:11:29-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-cocojergens-ppal.jpg
 rating: '1'
 tags:
   - humecta
