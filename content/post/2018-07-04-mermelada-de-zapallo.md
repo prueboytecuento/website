@@ -18,4 +18,4 @@ Hoy acompañé mi café con mermelada de zapallo😱. Cuando lo vi me imaginé u
 
 <!--more-->
 
-El dulzor está muy bien equilibrado. Agradable al paladar. Pero eso no es todo. El zapallo calabaza está mezclado con almendras peladas enteras. No se imaginan lo que puede llegar a ser sobre tus galletas o pan. Es un producto Doña Vicky Gourmet @virginiadonavicky de Peñaflor (Julio Beltrán 4016). En Google encuentras los emporios que tienen los productos en venta. #prueboytecuento #gusto #campo #tierra #sabores
+El dulzor está muy bien equilibrado. Agradable al paladar. Pero eso no es todo. El zapallo calabaza está mezclado con almendras peladas enteras. No se imaginan lo que puede llegar a ser sobre tus galletas o pan. Es un producto Doña Vicky Gourmet @virginiadonavicky de Peñaflor (Julio Beltrán 4016). En Google encuentras los emporios que tienen los productos en venta. #SOYprueboytecuento
