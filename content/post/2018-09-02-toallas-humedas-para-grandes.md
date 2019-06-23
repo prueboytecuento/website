@@ -15,7 +15,7 @@ weight: 0
 ---
 Toallitas húmedas que se pueden usar en cuerpo y rostro. Ojo que no son las de guagua.
 
-<!--more>
+<!--more-->
 
 Me refiero a las de FreeMet, la misma marca del detergente que les mostré hace un tiempo y que es biodegradable. 
 
