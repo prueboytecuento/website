@@ -2,7 +2,7 @@
 title: El Malbec de Melodía Wines y más
 showonlyimage: true
 date: '2017-02-17T12:19:28-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-melodi-awines-ppal.jpg
 rating: '1'
 tags:
   - vino
@@ -28,15 +28,13 @@ En #MelodíaWines tienen 2 variedades: Malbec guardado por 8 meses en barrica fr
 
 Vayan y prueben los @melodiawines para descubrir el que más les gusta. En un mes llegan a Santiago y Viña. 
 
-![null]()
+![null](/images/uploads/img_2154.jpg)
 
 Hay artesanía de la que es imposible no enamorarse. Los bordados y trabajo en telar de Guatemala son ma-ra-vi-llo-sos.
 
 La mayoría se trabaja en telar tradicional y trabajos como el de la foto inferior derecha con un sistema más antiguo que se llama telar de cintura.
 
 La cartera morada de la izquierda fue bordada a mano en punto rococó. 
-
-![null]()
 
 Geometría fractal se les llama a las figuras irregulares. Algunos la llaman semi-geométricos. ¿Un ejemplo? El copo de nieve.
 
