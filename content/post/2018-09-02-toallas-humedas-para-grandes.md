@@ -2,7 +2,7 @@
 title: Toallas húmedas para grandes
 showonlyimage: true
 date: '2016-12-09T13:14:51-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-freemet-ppal.jpg
 rating: '1'
 tags:
   - toallas húmedas
