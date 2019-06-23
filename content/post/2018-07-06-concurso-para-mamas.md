@@ -15,12 +15,14 @@ categories:
   - CONCURSO
 weight: 0
 ---
-Recuerda que este 4, 5 y 6 de noviembre se viene la versión primavera-verano de EXPOBEBÉ 2016 en CASA PIEDRA.
+Recuerda que este 4, 5 y 6 de noviembre se viene la versión primavera-verano de EXPOBEBÉ 2016 en CASA PIEDRA y tengo concurso.
 
-Tengo concurso. ¿Cómo? 
+<!--more--> 
+
+¿Cómo? 
 
 1. SIGUE la cuenta.
 2. Dale LIKE a este post.
-3. INVITA a 10 amigos a seguir la comunidad @prueboytecuento en Instagram. 
+3. INVITA a 10 amigos a seguir la comunidad @prueboytecuento en Instagram, Facebook y Twitter. 
 
 Ojo, suma la lista de tus amigos en los comentarios de este post. ¡¡Suerte!!
