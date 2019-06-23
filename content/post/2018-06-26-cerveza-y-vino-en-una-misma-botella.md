@@ -1,5 +1,5 @@
 ---
-title: Cerveza y vino en la misma botella
+title: 'Craft Hugo, cerveza y vino en la misma botella'
 showonlyimage: true
 date: '2017-12-26T00:00:00-03:00'
 image: /images/uploads/craft-hugo.jpg
@@ -12,9 +12,11 @@ categories:
   - COMER Y BEBER
 weight: '5'
 ---
-Hay cosas curiosas y una botella con vino y cerveza. Tal cual. Ese es el mix que llegó de Alemania con el propósito de convertirse en el cocktail del verano chileno. ¿Su nombre? Craft Hugo. Un brebaje bien particular, cuyo sabor, para que se hagan una idea, es similar al de la Lemon Stones. Esa cerveza nacional que tiene jugo de limón. 
+Hay cosas curiosas y una botella con vino y cerveza. Tal cual. Ese es el mix que llegó de Alemania con el propósito de convertirse en el cocktail del verano chileno. 
 
 <!--more-->
+
+¿Su nombre? Craft Hugo. Un brebaje bien particular, cuyo sabor, para que se hagan una idea, es similar al de la Lemon Stones. Esa cerveza nacional que tiene jugo de limón. 
 
 Claro que en el caso de #CraftHugo hay burbujas mucho más livianas, tiene un suave gusto a cerveza artesanal (según ficha técnica un 10%) y el sabor predominante es el del vino blanco. Me encantaría saber qué cepa, pero ese dato no lo encontré en ningún lado. Una lástima.
 
