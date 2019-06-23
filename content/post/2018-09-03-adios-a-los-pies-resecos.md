@@ -2,7 +2,7 @@
 title: Dile chao a los pies resecos
 showonlyimage: true
 date: '2017-02-01T11:17:05-03:00'
-image: /images/uploads/interrogacio-n.jpg
+image: /images/uploads/review-ureadin-ppal.jpg
 rating: '1'
 tags:
   - hidrata
@@ -26,6 +26,6 @@ Cuando me apliqué la crema en los piel, principalmente en los talones, la sensa
 
 En la misma etiqueta se prometen resultados al tercer día y es cierto. ¡FUNCIONA! Porque las etiquetas aguantan harto, pero de ahí a que todo lo que se describe sea tal, es otra cosa. Se aplica 2 veces al día, pero por lo mal que estaban mis pies, me la eché 3 y ahora sólo 1 vez al día para mantener. 
 
-Esto es muy bueno- No sólo sirve para la resequedad, sino que además ayuda con rudezas y callos, y los diabéticos pueden usarla. @isdinchile @isdinofficial 
+Esto es muy bueno. No sólo sirve para la resequedad, sino que además ayuda con rudezas y callos, y los diabéticos pueden usarla. @isdinchile @isdinofficial 
 
 Encontré la crema es farmacias @cruzverde. #SOYprueboytecuento #Iphone7
