@@ -20,4 +20,4 @@ weight: 0
 
 A continuación, reportaje:
 
-![](/images/uploads/revista-m-jellybags.jpg)
+![null](/images/uploads/revista-m-jellybags.jpg)
