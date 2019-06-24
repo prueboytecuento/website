@@ -18,4 +18,6 @@ weight: 0
 
 <!--more-->
 
+A continuación, reportaje:
+
 ![](/images/uploads/revista-m-jellybags.jpg)
