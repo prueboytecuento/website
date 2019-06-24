@@ -2,7 +2,7 @@
 title: Diviértete en vacaciones de invierno
 showonlyimage: true
 date: '2019-06-18T15:19:47-04:00'
-image: /images/uploads/review-datoscartelera.jpg
+image: /images/uploads/review-datos-panoramasinvierno.jpg
 rating: '1'
 tags:
   - panoramas
