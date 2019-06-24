@@ -16,8 +16,6 @@ weight: 0
 ---
 ¿Conoces las ventajas de tener una jelly bag? Descubre las bondades de cargar uno de estos modelos, como resistencia o limpieza fácil.
 
-<!--more--> 
+<!--more-->
 
-A continuación, reportaje:
-
-![null](/images/uploads/revista-m-jellybags.jpg)
+http://www.lun.com/LunMobileIphone//homeslide.aspx#pagina-6
