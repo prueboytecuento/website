@@ -18,4 +18,4 @@ weight: 0
 
 <!--more-->
 
-http://www.lun.com/LunMobileIphone//homeslide.aspx#pagina-6
+![](/images/uploads/revista-m-jellybags.jpg)
