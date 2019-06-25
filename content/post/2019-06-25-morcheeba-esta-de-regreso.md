@@ -25,6 +25,8 @@ Qué placer más grande pasar de escuchar a Morcheeba en Spotify a escucharlos e
 
 Van a repasar algunos temas del “Blaze Away”, disco que editaron en 2018, pero los que digamos presente ese día, vamos a escuchar hitazos como “Rome wasn’t built in a day”, “Otherwise”, “World looking in” y tantos más ❤️.
 
+![](/images/uploads/review-morceeba.jpg)
+
 Y en voz de Skye Edwards, cantante de la formación original: otras 2 vocalistas pasaron por la formación de los hermanos Ross y Paul Godfrey. Así es que junten ganas porque el trip-hop, soul y blues se viene con todo.
 
 Los tickets ya están a la venta en puntoticket.com, tiendas Hites y Cinemark. Más info en www.puntoticket.com/morcheeba. #SOYprueboytecuento
