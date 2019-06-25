@@ -11,7 +11,8 @@ tags:
   - Brasil
   - BossaNova
   - MPB
-  - 'jazz #pop'
+  - jazz
+  - pop
   - romance
   - conquista
 categories:
