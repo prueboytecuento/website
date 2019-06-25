@@ -18,7 +18,9 @@ categories:
   - CONCURSO
 weight: '1'
 ---
-¿Les gusta el Bossa Nova? Si la respuesta es sí, entonces saben perfectamente sobre el cantante de la foto. Tal cual, Djavan. Tremendo intérprete de bosa, MPB (música popular brasilera), jazz y pop, que este fin de semana se presentará en Gran Arena Monticello: el sábado 15 de junio, a las 21 horas.
+¿Les gusta el Bossa Nova? Si la respuesta es sí, entonces saben perfectamente sobre el cantante de la foto. Tremendo intérprete de bosa, MPB (música popular brasilera), jazz y pop, que este fin de semana se presentará en Gran Arena Monticello: el sábado 15 de junio, a las 21 horas.
+
+<!--more-->
 
 La visita de Djavan está dentro de la gira “Vesúvio” y en el espectáculo que ofrecerá en Chile, interpretará ese gran puñado de éxitos que lo han convertido en un respetado exponente de la música en Brasil y el mundo.
 
