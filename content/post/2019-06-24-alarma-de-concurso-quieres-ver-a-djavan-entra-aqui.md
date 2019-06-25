@@ -21,6 +21,8 @@ weight: '1'
 ---
 ¿Les gusta el Bossa Nova? Si la respuesta es sí, entonces saben perfectamente sobre el cantante de la foto. Tremendo intérprete de bosa, MPB (música popular brasilera), jazz y pop, que este fin de semana se presentará en Gran Arena Monticello: el sábado 15 de junio, a las 21 horas.
 
+<!--more-->
+
 La visita de Djavan está dentro de la gira “Vesúvio” y en el espectáculo que ofrecerá en Chile, interpretará ese gran puñado de éxitos que lo han convertido en un respetado exponente de la música en Brasil y el mundo.
 
 Qué maravilla escucharlo cantar en vivo hits como “Oceano”, “Eu te devoro”, “Samurai” o “Se”. En serio, se me paran los pelos de sólo pensar que voy a disfrutar esa voz y talento en vivo. Va a ser mi primer show de #Djavan y la celebración de los 11 años en Chile de Marido (@kleberos). Como buen brasilero es un gran oidor de bossa.
