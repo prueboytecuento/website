@@ -23,4 +23,4 @@ Hace 8 meses me propuse bajar los 25 kilos extra que tenía.
 
 Llevaba 11 menos y dejé de ejercitarme. Pero estoy de vuelta y dispuesta a conseguir mi objetivo.
 
-Anda al video en Youtube: xxx
+Anda el video en las  RRSS de Pruebo y te cuento  y conoce mi experiencia. #SOYprueboytecuento
