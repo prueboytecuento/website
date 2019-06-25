@@ -11,7 +11,8 @@ tags:
   - Brasil
   - BossaNova
   - MPB
-  - 'jazz #pop'
+  - jazz
+  - pop
   - romance
   - conquista
 categories:
@@ -32,16 +33,16 @@ Así es que no se diga más: 10 entradas se van desde ahora ya para concurso.
 
 ¿Cómo ganar?
 
-👉🏼SEGUIR Pruebo y te cuento en cualquiera de sus plataformas.
+\-SEGUIR Pruebo y te cuento en cualquiera de sus plataformas.
 
-👉🏼Dale LIKE a este post,
+\-Dale LIKE a este post,
 
-👉🏼ETIQUETA a 3 amigos,
+\-ETIQUETA a 3 amigos,
 
-👉🏼CUÉNTAME cuál es tu canción favorita y por qué,
+\-CUÉNTAME cuál es tu canción favorita y por qué,
 
-👉🏼incluye los HASHTAGS #DJAVANconprueboytecuento #VesúvioCHILE y
+\-incluye los HASHTAGS #DJAVANconprueboytecuento #VesúvioCHILE y
 
-👉🏼COMPARTE la publicación.
+\-COMPARTE la publicación.
 
 No olvides ninguno de estos pasos para garantizar tu participación en el concurso. Atentos al resultado el día jueves 13, a las 20 horas. A probar suerte. #SOYprueboytecuento
