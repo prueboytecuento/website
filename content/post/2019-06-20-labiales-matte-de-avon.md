@@ -9,10 +9,10 @@ tags:
   - labiales
   - mate
   - colores
-  - pigmentación 
+  - pigmentación
   - salvaje
   - delicada
-  - sexy 
+  - sexy
   - besa
   - suaves
   - cremoso
@@ -32,6 +32,8 @@ Estos labiales, a pesar de ser mate no dejan los labios tiesos. Se han fijado qu
 Tienen buena pigmentación, son concetrados. Se fijan súper bien a la superficie de los labios. Dura bastante, pero si, por ejemplo, bebes algo, el labial lentamente va a comenzar a marcar tu vaso y vas a tener que retocarlo. Ojo, no se va completamente, pero recomiendo retoque.
 
 Los Ultra Matte, Matte Luminoso y Matte Líquido de @avon son productos con Factor UV15, tiene un leve aroma a flores y tonos preciosos. A mi me gustan los colores fuertes, sobre todo porque me encanta hacer match con mi ropa y me visto con muchos colores.
+
+![](/images/uploads/review-labialesavon-2.jpg)
 
 Me enamoré del Marry Magenta, que es un fucsia furioso, luminoso. No soy de las mujeres que usan colores fuertes sólo a ciertas horas del día. Prefiero los labios altaneros.
 
