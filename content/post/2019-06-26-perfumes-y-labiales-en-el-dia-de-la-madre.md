@@ -1,5 +1,5 @@
 ---
-title: Perfumes y labiales en el Día de la Madre
+title: Gana perfumes y labiales en el Día de la Madre
 showonlyimage: true
 date: '2019-05-06T16:48:34-04:00'
 image: /images/uploads/concurso-di-adelamadre-ppal-ok.jpg
