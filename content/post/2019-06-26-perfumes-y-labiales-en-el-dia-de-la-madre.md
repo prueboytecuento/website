@@ -7,9 +7,7 @@ rating: '1'
 tags:
   - Regalo
   - mamá
-  - Día de la Madre
   - Premio
-  - Azar
   - Suerte
   - Labiales
   - Perfumes
