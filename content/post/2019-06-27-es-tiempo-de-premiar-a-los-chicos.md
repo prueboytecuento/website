@@ -1,7 +1,7 @@
 ---
 title: Es tiempo de premiar a los chicos
 showonlyimage: true
-date: '2019-06-27T16:47:59-04:00'
+date: '2019-04-29T16:47:59-04:00'
 image: /images/uploads/concurso-dovemen-ppal.jpg
 rating: '1'
 tags:
