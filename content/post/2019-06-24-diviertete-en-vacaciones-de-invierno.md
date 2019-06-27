@@ -12,7 +12,7 @@ tags:
   - pony
   - LOL
 categories:
-  - DATO
+  - CARTELERA
 weight: '1'
 ---
  La cartelera de espectáculos está contundente, así es que aquí les dejo datitos que podrían ser de su interés. Varios son panoramas para entretenerse con la manada y otros para disfrutar con amigos.
