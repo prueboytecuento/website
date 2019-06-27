@@ -1,7 +1,7 @@
 ---
 title: Ganador del primer concurso para hombres en Pruebo y te cuento
 showonlyimage: true
-date: '2019-06-27T17:06:44-04:00'
+date: '2019-05-03T17:06:44-04:00'
 image: /images/uploads/concurso-dovemen-ganador.jpg
 rating: '1'
 tags:
