@@ -17,7 +17,11 @@ categories:
   - CARTELERA
 weight: '1'
 ---
-Hoy al mediodía parte la preventa de entradas para los shows de Mon Laferte en 4 ciudades de Chile. Ojo aquí: en esta primera etapa la venta es para los clientes Banco de Chile y termina el miércoles 8 a las 11.59. Un minuto después parte la venta general.
+Hoy al mediodía parte la preventa de entradas para los shows de la cantante en 4 ciudades de Chile. Ojo aquí.
+
+<!--more-->
+
+En esta primera etapa la venta es para los clientes Banco de Chile y termina el miércoles 8 a las 11.59. Un minuto después parte la venta general.
 
 Por ciudad la disponibilidad de tickets es:
 
