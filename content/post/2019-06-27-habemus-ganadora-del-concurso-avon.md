@@ -17,7 +17,7 @@ weight: '1'
 ---
 ¡¡Felicitaciones @manivasquez!! Acabas de llevarte el premio del Día de la Madre del Pruebo y te cuento.
 
-<!more-->
+<!--more-->
 
 ¿Cuéntame si eres mamá y participaste para regalonearte tú o para regalonear a tu mamá? Escríbeme acá o, mejor aún, sube un video con tu historia etiquetando a @prueboytecuento para conocerte.
 
