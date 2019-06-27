@@ -15,7 +15,7 @@ tags:
   - Skye Edwards
   - Morcheeba
 categories:
-  - EN VIVO
+  - CARTELERA
 weight: '1'
 ---
 Qué placer más grande pasar de escuchar a Morcheeba en Spotify a escucharlos en vivo. Tal cual. Los británico vuelven a Chile y el próximo 18 de octubre se presentarán en Club Chocolate. Lo que más me gusta es que vienen nostálgicos y el espectáculo se va a centrar en los éxitos de los 90, 👏🏼.
