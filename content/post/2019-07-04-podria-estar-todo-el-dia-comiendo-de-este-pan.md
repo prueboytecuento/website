@@ -20,14 +20,18 @@ weight: '1'
 
 <!--more-->
 
-Probé el pita, el de aceitunas en masa madre y en ciabatta, el de chorizillo y otros. Qué buena que es con las masas esta mujer y qué jugada fue al dejar su pega de cocinera para emprender con tan pocas lucas en el mundo de la panadería “que siempre me ha parecido atractiva”, dice. 
+Probé el pita, el de aceitunas en masa madre y en ciabatta, el de chorizillo y otros. Qué buena que es con las masas esta mujer y qué jugada fue al dejar su pega de cocinera para emprender con tan pocas lucas en el mundo de la panadería “que siempre me ha parecido atractiva”, dice. 
 
 Lejos, para mí, el más rico es el de aceitunas en ciabatta. Una delicia de pan crujiente y esponjoso. Con muchas y grandes aceitunas… Se agradece que no sea un producto con sabor a, sino con sabor e importantes trozos de. 
 
-![](/images/uploads/review-ru-sticosoul-3.jpg)
+![null](/images/uploads/review-ru-sticosoul-3.jpg)
 
-Un pan que te puedes comer sin nada adentro.Angela lleva poco tiempo haciendo pan con masa madre y le queda rico. Un pan correcto en vías de unirse a las filas de sus exquisitas creaciones.Hoy está con la panadería, pero ya tomó talleres para ampliar su oferta a las conservas y pasteles. 
+Un pan que te puedes comer sin nada adentro.
 
-![](/images/uploads/review-ru-sticosoul-2.jpg)
+Angela lleva poco tiempo haciendo pan con masa madre y le queda rico. Un pan correcto en vías de unirse a las filas de sus exquisitas creaciones.
 
-Si quieren probar los productos Rústico Soul, tienen que encargarlos. No tiene tienda física, pero con ella coordinas para que sus delicias lleguen a tu mesa. Los pedidos se hacen al +56951598369 con 2 días de anticipación. Pruébenlos y se van a acordar de mí. #SOYprueboytecuento
+Hoy está con la panadería, pero ya tomó talleres para ampliar su oferta a las conservas y pasteles. 
+
+Si quieren probar los productos Rústico Soul, tienen que encargarlos. 
+
+No tiene tienda física, pero con ella coordinas para que sus delicias lleguen a tu mesa. Los pedidos se hacen al +56951598369 con 2 días de anticipación. Pruébenlos y se van a acordar de mí. #SOYprueboytecuento
