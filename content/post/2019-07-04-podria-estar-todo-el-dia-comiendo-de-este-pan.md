@@ -1,5 +1,5 @@
 ---
-title: Podría estar todo el día comiendo de este pan
+title: Podría estar comiendo todo el día de este pan
 showonlyimage: true
 date: '2019-07-04T11:39:30-04:00'
 image: /images/uploads/review-ru-sticosoul-ppal.jpg
