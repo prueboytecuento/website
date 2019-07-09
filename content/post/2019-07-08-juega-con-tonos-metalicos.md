@@ -39,4 +39,4 @@ Usé el 221 Virgin Pearl, un cuarteto de sombras perlada en tonos dorado, café 
 
 El labial, como la mayoría de los que encontramos hoy en tiendas, tiene FPS 15. Es de la colección Beauty Labial Hydra en color G607 o Shine Brown (está en 27 colores). No es un tono que acostumbre a usar porque deja mis rasgos muy duros. Lejos de eso y estrictamente enfocada en el uso, es cremoso, suave. Humecta súper bien. Por su condición de cremoso, hay que retocarlo con frecuencia. 
 
-Estos productos están en farmacias, supermercados, tiendas como Preunic y Maicao #SOYprueboytecuento
+Estos productos están en farmacias, supermercados, tiendas como Preunic y Maicao. #SOYprueboytecuento
