@@ -13,7 +13,7 @@ tags:
   - tendencia
   - vitrineo
 categories:
-  - MODA Y TENDENCIAS
+  - MODA
 weight: 0
 ---
 Me vine a la primera edición de esta feria de moda y tendencia. Estará hasta el domingo 9 en Parque Bicentenario de Vitacura.
