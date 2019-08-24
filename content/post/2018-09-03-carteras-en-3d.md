@@ -12,7 +12,7 @@ tags:
   - resistentes
   - durables
 categories:
-  - MODA Y TENDENCIAS
+  - MODA
 weight: 0
 ---
 Lejos de asumirlo como un recurso tecnológico, no dejo de asombrarme con las cantidad de cosas novedosas que pueden fabricarse. Esta es una de esas.
