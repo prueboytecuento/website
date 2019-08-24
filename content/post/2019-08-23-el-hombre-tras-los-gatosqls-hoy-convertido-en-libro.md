@@ -28,13 +28,13 @@ Se llama Manuel, pero prefiere que lo llamemos Cross the Styx. Dice tener 37 añ
 
 De ilustraciones con leyendas chistosas, pasaron a ser ilustraciones con leyendas chistosas cargadas de crítica social, muy severas con la gestión del presidente Sebastián Piñera y sus interminables chambonadas, entre muchas otras temáticas. Evidente que se trata de un trabajo subjetivo y a mí me gusta bastante.
 
-Tanto ha sido su alcance y popularidad, que, a muy poco andar, Cross the Styx creció y se expandió de las redes sociales (Facebook 243K e Instagram 232K seguidores) a una página web (www.gatosqls.cl) y ahora publicó su primer libro: “GatosQls, el libro de los gatos 2019”.
+Tanto ha sido su alcance y popularidad, que, a muy poco andar, Cross the Styx creció y se expandió de las redes sociales (Facebook 243K e Instagram 232K seguidores) a una página web (www.gatosqls.cl) y ahora publicó su primer libro: “GatosQls, el libro de los gatos 2019” ($10.000 en librerías).
 
 ![null](/images/uploads/review-gatos2.jpg)
 
 “Fue una propuesta. Una tremenda sorpresa de hecho. Y hoy un sueño realizado”, dice Cross the Styx sobre el material que salió al mercado los primeros días de agosto con 3 mil unidades. Obvio que no iban a dejar pasar el mes de los gatos para hacerlo. 
 
-Es un compilado de ilustraciones llevadas al papel por Penguin Random House Grupo Editorial. Buenísimas todas. 
+Es un compilado de ilustraciones llevadas al papel por Penguin Random House Grupo Editorial. Buenísimas todas. Si te gustan los #GatosQls, entonces este es un artículo coleccionable para llevarte a casa.
 
 Por cierto que mis favoritas son las del personaje Pilar Sórdida, una especie de terapeuta sexual con incontinencia verbal y muy, pero muy golosa. Por lo general, dice cosas que muchas pensamos, pero no nos animamos a comentar.
 
