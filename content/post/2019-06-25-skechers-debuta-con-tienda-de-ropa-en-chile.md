@@ -16,7 +16,7 @@ tags:
   - Deporte
   - Street
 categories:
-  - MODA Y TENDENCIAS
+  - MODA
 weight: '1'
 ---
 Yo no tenía idea, pero estuve en la reinauguración de N-Concept, la tienda de la marca que está en Mall Alto Las Condes y que desde esta semana tiene toda su línea de vestuario en vitrina: equipamiento para golf, running, ropa casual para el día a día, etc.
