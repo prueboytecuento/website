@@ -30,7 +30,7 @@ De ilustraciones con leyendas chistosas, pasaron a ser ilustraciones con leyenda
 
 Tanto ha sido su alcance y popularidad, que, a muy poco andar, Cross the Styx creció y se expandió de las redes sociales (Facebook 243K e Instagram 232K seguidores) a una página web (www.gatosqls.cl) y ahora publicó su primer libro: “GatosQls, el libro de los gatos 2019” ($10.000 en librerías).
 
-![null](/images/uploads/review-gatos2.jpg)
+![null](/images/uploads/crossthestyx.jpg)
 
 “Fue una propuesta. Una tremenda sorpresa de hecho. Y hoy un sueño realizado”, dice Cross the Styx sobre el material que salió al mercado los primeros días de agosto con 3 mil unidades. Obvio que no iban a dejar pasar el mes de los gatos para hacerlo. 
 
