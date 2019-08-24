@@ -1,5 +1,5 @@
 ---
-title: 'El hombre tras los GatosQls, hoy convertido en libro'
+title: El hombre tras los deslenguados GatosQls
 showonlyimage: true
 date: '2019-08-23T22:38:32-04:00'
 image: /images/uploads/review-gatosppal2.jpg
