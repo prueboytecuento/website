@@ -30,7 +30,7 @@ De ilustraciones con leyendas chistosas, pasaron a ser ilustraciones con leyenda
 
 Tanto ha sido su alcance y popularidad, que, a muy poco andar, Cross the Styx creció y se expandió de las redes sociales (Facebook 243K e Instagram 232K seguidores) a una página web (www.gatosqls.cl) y ahora publicó su primer libro: “GatosQls, el libro de los gatos 2019”.
 
-![](/images/uploads/review-gatos2.jpg)
+![null](/images/uploads/review-gatos2.jpg)
 
 “Fue una propuesta. Una tremenda sorpresa de hecho. Y hoy un sueño realizado”, dice Cross the Styx sobre el material que salió al mercado los primeros días de agosto con 3 mil unidades. Obvio que no iban a dejar pasar el mes de los gatos para hacerlo. 
 
@@ -38,7 +38,7 @@ Es un compilado de ilustraciones llevadas al papel por Penguin Random House Grup
 
 Por cierto que mis favoritas son las del personaje Pilar Sórdida, una especie de terapeuta sexual con incontinencia verbal y muy, pero muy golosa. Por lo general, dice cosas que muchas pensamos, pero no nos animamos a comentar.
 
-![](/images/uploads/review-gatos5.jpg)
+![null](/images/uploads/review-gatos5.jpg)
 
 **\-¿Partiste con los GatosQls como humorada o lo proyectaste como un trabajo?**\
 -Siempre fue como leseo. Jamás pensé que iba a escalar a lo que es hoy.
@@ -52,7 +52,7 @@ Por cierto que mis favoritas son las del personaje Pilar Sórdida, una especie d
 **\-¿A qué te dedicaba antes de los GatosQls?**\
 -Tengo trabajo estable como diseñador gráfico/web desde hace 15 años aproximadamente. Lo de GatosQls es paralelo y absolutamente compensable.
 
-![](/images/uploads/review-gatos6.jpg)
+![null](/images/uploads/review-gatos6.jpg)
 
 **\-¿Dan para vivir?**\
 -No. O más bien, podrían. Pero está muy lejos de ser mi intención. Sería ideal, obviamente, pero prefiero ser cauteloso y racional.
@@ -60,11 +60,10 @@ Por cierto que mis favoritas son las del personaje Pilar Sórdida, una especie d
 **\-Siempre me he preguntado si hay un equipo creativo. No debe ser fácil armar tantas historias.**\
 -Absolutamente solo. Me autoreviso. Tiendo a anotar todas las ideas. Luego las leo, las reviso, y trato de editarlas para que tengan el "tono" que finalmente tienen las publicaciones. La ilustración también la hago yo, no es un gran trabajo, es básicamente "acompañar" el texto con una imagen que le haga sentido.
 
-![](/images/uploads/review-gatos4.jpg)
+![null](/images/uploads/review-gatos4.jpg)
 
-**\-Hay personajes claves en tus historias. Ídola Pilar Sórdida.**
-
-\-Lo de los personajes lo pensé como al mes de abrir la página. Cuando se empezó a masificar, me di cuenta que si no creaba personajes, iba a ser extremadamente difícil mantener el sitio en el tiempo sin que yo mismo me bloqueara. Los primeros personajes, creo que fueron Poto Gigio y Pilar Sórdida. 
+**\-Hay personajes claves en tus historias. Ídola Pilar Sórdida.**\
+-Lo de los personajes lo pensé como al mes de abrir la página. Cuando se empezó a masificar, me di cuenta que si no creaba personajes, iba a ser extremadamente difícil mantener el sitio en el tiempo sin que yo mismo me bloqueara. Los primeros personajes, creo que fueron Poto Gigio y Pilar Sórdida. 
 
 Los gatos casi nunca está solos. En varias publicaciones aparece el ratón, un experto en hacer mierda todo lo que los cuchos dicen. Un bicho con fijaciones sexuales. 
 
