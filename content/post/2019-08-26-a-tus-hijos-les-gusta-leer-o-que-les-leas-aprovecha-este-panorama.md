@@ -1,5 +1,5 @@
 ---
-title: ¿A tus hijos les gusta leer o que les leas? Aprovecha este panorama
+title: ¿Tus hijos están motivados con la lectura? Aprovecha este panorama
 showonlyimage: true
 date: '2019-08-26T11:26:10-04:00'
 image: /images/uploads/review-ferialibroinfaltil.jpg
