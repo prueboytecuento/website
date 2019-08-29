@@ -1,5 +1,5 @@
 ---
-title: 'Wine Lover, este fin de semana es Bocas Moradas '
+title: 'Wine Lover, este fin de semana es el Bocas Moradas '
 showonlyimage: true
 date: '2019-08-29T10:39:58-04:00'
 image: /images/uploads/review-bocasmoradaspanoramas.jpg
