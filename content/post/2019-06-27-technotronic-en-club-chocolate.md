@@ -13,7 +13,7 @@ tags:
   - 90s
   - Club Chocolate
 categories:
-  - CARTELERA
+  - PANORAMAS
 weight: '1'
 ---
 ¿Se acuerdan de ellos? Yo bailaba su música en la media, jajajá... (caída de carnet a la vista). Música entretenida y pegajosa que estuvo mucho tiempo sonando en radios y discotecas en los 90.
