@@ -14,7 +14,7 @@ tags:
   - Conocer
   - Crecer
 categories:
-  - CARTELERA
+  - PANORAMAS
 weight: '1'
 ---
 Estas son las actividades que, los que somos papás, no deberíamos perdernos. Mi Rafaela (6) está empezando a leer frases y la veo súper entusiasmada descubriendo el mundo de las palabras. En ese contexto, la 30 versión de la Feria Internacional del Libro Infantil y Juvenil se me hace un tremendo panorama.
