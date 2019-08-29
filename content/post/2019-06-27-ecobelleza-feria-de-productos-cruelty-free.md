@@ -12,7 +12,7 @@ tags:
   - Ropa
   - Juguetes
 categories:
-  - CARTELERA
+  - PANORAMAS
 weight: '1'
 ---
 Por años se normalizó el testeo animal en la industria cosmética. Terrible, pero la parte buena es que varias marcas se han puesto las pilas para cambiar esta realidad.
