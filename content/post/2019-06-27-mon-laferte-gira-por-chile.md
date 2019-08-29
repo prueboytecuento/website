@@ -14,7 +14,7 @@ tags:
   - Chilena
   - Cantante
 categories:
-  - CARTELERA
+  - PANORAMAS
 weight: '1'
 ---
 Hoy al mediodía parte la preventa de entradas para los shows de la cantante en 4 ciudades de Chile. Ojo aquí.
