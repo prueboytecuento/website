@@ -25,7 +25,8 @@ Hay bomberos en mi familia y tengo muchas amigas y amigos que dedican parte de s
 
 “Corremos por la vida” es la actividad que se realizará a las 10 horas de este 1 de septiembre en la Torre Costanera Center.
 
-Se trata de una carrera vertical en la que 1.300 voluntarios de Chile y el mundo, pondrán a prueba su resistencia y destreza para subir escalón por escalón la no menos considerable suma de 62 pisos (2.000 peldaños)… De sólo imaginármelo, me canso, jajajá. 
+Se trata de una carrera vertical en la que 1.400 voluntarios de Chile y el mundo, pondrán a prueba su resistencia y destreza para subir escalón por escalón la no menos considerable suma de 62 pisos (2.000 peldaños)… De sólo imaginármelo, me canso, jajajá. 
+
 Y ojo que son 62 pisos con equipo puesto. Dicen que pesa unos 25 kilos. 
 
 Pero, ¿cuál es la razón de esta iniciativa que se viene repitiendo desde hace 4 años? Surgió porque cada año bomberos sufre la pérdida de voluntarios por infartos al corazón en actos de servicio. Es por ello que han desarrollado un plan de prevención para disminuir el porcentaje de bajas y, a su vez, concientizar a la población sobre este tema.
