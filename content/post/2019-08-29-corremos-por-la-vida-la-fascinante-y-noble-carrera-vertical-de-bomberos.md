@@ -8,7 +8,8 @@ tags:
   - Bomberos
   - Desafío
   - Chile
-  - 'FireMan #CarreraVertical'
+  - FireMan
+  - CarreraVertical
   - Garra
   - Resistencia
   - Voluntarios
