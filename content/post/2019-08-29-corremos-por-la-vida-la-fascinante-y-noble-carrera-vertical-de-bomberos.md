@@ -29,8 +29,6 @@ Y ojo que son 62 pisos con equipo puesto. Dicen que pesa unos 25 kilos.
 
 Pero, ¿cuál es la razón de esta iniciativa que se viene repitiendo desde hace 4 años? Surgió porque cada año bomberos sufre la pérdida de voluntarios por infartos al corazón en actos de servicio. Es por ello que han desarrollado un plan de prevención para disminuir el porcentaje de bajas y, a su vez, concientizar a la población sobre este tema.
 
-![null](/images/uploads/review-bomberos2-ok.jpg)
-
 Pero eso no es todo. Los #HéroesDeCorazón realizan esta actividad además para incentivar la donación de órganos. De hecho, parte de lo que se recaudó por los 1.400 inscritos irá directo a la Fundación Cambiemos la Historia, para así contribuir en su labor de promoción y difusión del trasplante de órganos.
 
 En la actividad organizada por el Cuerpo de Bomberos de Santiago y Reebok también participarán la modelo Lucila Vit y el actor Eyal Meyer, embajadores de la marca deportiva. 
