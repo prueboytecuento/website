@@ -2,7 +2,7 @@
 title: 'Labial 2 en 1: juega con los tonos y gasta menos plata'
 showonlyimage: true
 date: '2019-08-31T11:42:27-04:00'
-image: /images/uploads/review-naturalabialppal2.jpg
+image: /images/uploads/review-naturalabialppal2ok.jpg
 rating: '1'
 tags:
   - labial
