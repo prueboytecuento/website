@@ -19,6 +19,8 @@ weight: '1'
 ---
 La primera vez que me lavé el pelo con el Hidratación Micelar de Sedal, tuve una sensación extraña. Algo de molestia y picazón. Pero le di poca importancia y ese fue tremendo error. Debí haberle puesto ojo a las señales.
 
+<!--more-->
+
 El domingo volví a usarlo. El no darle importancia a lo que me había pasado la primera vez, incluyó repetición de lavado: por lo bajo, antes de hacer el review de un producto de belleza, lo uso 3 veces.
 
 Cuento corto, cuando me apliqué el shampoo, de inmediato me empezó a picar la cabeza, sentí algo de ardor y, por lo mismo, me enjuagué rápidamente. El shampoo me provocó una reacción alérgica que me tiene con granitos rojos en varias zonas de mi cuero cabelludo (no voy a subir fotos porque se ve bastante feo).
