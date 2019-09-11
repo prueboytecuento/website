@@ -25,7 +25,7 @@ Este 9 de noviembre vuelve la Rock ‘N’ Roll Half Marathon, carrera que junta
 
 En su primera versión, la corrida tuvo cerca de 6 mil competidores y más de 20 mil personas en la clausura. 
 
-![null]()
+![null](/images/uploads/review-rnr-2019-2.jpg)
 
 Ya les adelanté algo en las RRSS de Pruebo y te cuento, pero hay datos importantes que deben manejar si su intención es sumarse a este evento deportivo-musical organizado por Adidas, Nissan y otras empresas.
 
@@ -33,7 +33,7 @@ Ya les adelanté algo en las RRSS de Pruebo y te cuento, pero hay datos importan
 
 \-La carrera será nocturna. A las 19 horas debería ser la hora le largada, pero ese dato aún está sujeto a confirmación.
 
-![null](/images/uploads/review-rnr-2019-2.jpg)
+![null](/images/uploads/fitness-rnr-2019-3.jpg)
 
 \-Detalle. En esta versión, los runrockers no sólo podrán correr en las categorías 10K y 21K. También están las 3K y 5K. ¿Adivinen por cuál voy yo? Jajajá.
 
@@ -49,13 +49,13 @@ Half Marathon - US$50 o $33.000.
 
 \-Tu inscripción a la carrera te da derecho al kit de competencia, pero además a invitar a dos personas más al concierto de clausura.
 
-![null]()
+![null](/images/uploads/fitness-rnr-2019.jpg)
 
 \-Durante le recorrido hay varios escenarios con música en vivo, pero la banda principal y hasta ahora anunciada es The Stone Foxes.
 
 \-Un foco muy importante en el evento es la sustentabilidad. El año pasado se recicló el 27% de los residuos y este año se está trabajando para conseguir que el 50% logre ser reciclado.
 
-![null]()
+![null](/images/uploads/fitness-rnr-2019-4.jpg)
 
 \-La Rock ’N’ Roll Half Marathon es un evento que tiene más de 20 años de trayectoria y se lleva a cabo en más de 30 ciudades emblemáticas de EEUU, América, Europa y Asia.
 
