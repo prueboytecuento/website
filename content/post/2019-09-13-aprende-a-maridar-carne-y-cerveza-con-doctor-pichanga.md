@@ -33,7 +33,7 @@ En ese sentido, el chef, que basa sus sugerencias en los productos Cusqueña (l�
 
 “Por sus tonos tostados y levemente dulces, este tipo es ideal para trozos de carne de cerdo, los que pueden ser caramelizadas tipo BBQ ribs”. 
 
-Si de anticuchos y empanadas se trata, Pichanga sugiere una golden. “Gracias a sus ingredientes, esta cerveza potencia el sabor de las comidas”, dice.
+Si de anticuchos y empanadas se trata, Pichangas sugiere una golden. “Gracias a sus ingredientes, esta cerveza potencia el sabor de las comidas”, dice.
 
 Ojo con este datito. Si comemos choripanes con pebre, una buena forma de “limpiar el paladar” es optando por una cerveza red. 
 
