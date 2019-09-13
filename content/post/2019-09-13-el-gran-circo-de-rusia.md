@@ -1,5 +1,5 @@
 ---
-title: Amé El Gran Circo de Rusia y su propuesta 80era
+title: Amé la propuesta ochentera de El Gran Circo de Rusia
 showonlyimage: true
 date: '2019-09-12T23:58:35-03:00'
 image: /images/uploads/panorama-circoruso-ppal.jpg
