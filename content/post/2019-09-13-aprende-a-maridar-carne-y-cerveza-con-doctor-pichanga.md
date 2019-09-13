@@ -1,5 +1,5 @@
 ---
-title: Aprende a maridar carne y cerveza con Doctor Pichanga
+title: Aprende a maridar carne y cerveza con Doctor Pichangas
 showonlyimage: true
 date: '2019-09-13T15:58:57-03:00'
 image: /images/uploads/dato-cusquen-a-ppal.jpg
@@ -25,16 +25,16 @@ weight: '1'
 
 <!--more-->
 
-No lo digo yo, lo dice el Doctor Pichanga.“Por sus tonos, lúpulos u otras características, la cerveza puede ser el maridaje perfecto dependiendo del tipo de corte que deseemos asar”, comenta Felipe Gálvez. 
+No lo digo yo, lo dice el Doctor Pichangas. “Por sus tonos, lúpulos u otras características, la cerveza puede ser el maridaje perfecto dependiendo del tipo de corte que deseemos asar”, comenta Felipe Gálvez. 
 
-![](/images/uploads/dato-cusquen-a2.jpg)
+![null](/images/uploads/dato-cusquen-a2.jpg)
 
-En ese sentido, el chef, que basa sus sugerencias en los productos Cusqueña (lógico que también puedes buscar la variedad en la marca de chela que sueles consumir), asegura que la cerveza negra, por ejemplo, viene bien con cerdo. 
+En ese sentido, el chef, que basa sus sugerencias en los productos Cusqueña (lógico que también puedes buscar la variedad en la marca de chela que sueles consumir), asegura que la cerveza negra, por ejemplo, viene bien con cerdo. 
 
-“Por sus tonos tostados y levemente dulces, este tipo es ideal para trozos de carne de cerdo, los que pueden ser caramelizadas tipo BBQ ribs”. 
+“Por sus tonos tostados y levemente dulces, este tipo es ideal para trozos de carne de cerdo, los que pueden ser caramelizadas tipo BBQ ribs”. 
 
-Si de anticuchos y empanadas se trata, Pichanga sugiere una golden. “Gracias a sus ingredientes, esta cerveza potencia el sabor de las comidas”, dice.
+Si de anticuchos y empanadas se trata, Pichangas sugiere una golden. “Gracias a sus ingredientes, esta cerveza potencia el sabor de las comidas”, dice.
 
-Ojo con este datito. Si comemos choripanes con pebre, una buena forma de “limpiar el paladar” es optando por una cerveza red. 
+Ojo con este datito. Si comemos choripanes con pebre, una buena forma de “limpiar el paladar” es optando por una cerveza red. 
 
 Cusqueña tiene 4 variedades (Red Lager, Golden Lager, Wheat Beer y Dark Lager), todas a la venta el supermercados y botillerías. #SOYprueboytecuento
