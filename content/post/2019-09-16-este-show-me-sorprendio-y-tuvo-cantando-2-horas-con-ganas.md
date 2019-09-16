@@ -1,5 +1,5 @@
 ---
-title: Este show me sorprendió y tuvo cantando 2 horas con ganas
+title: Este show me sorprendió y tuvo 2 horas cantando
 showonlyimage: true
 date: '2019-09-16T10:53:00-03:00'
 image: /images/uploads/review-circorusoppal2.jpg
