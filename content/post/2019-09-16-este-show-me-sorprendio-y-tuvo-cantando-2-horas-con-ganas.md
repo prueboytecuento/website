@@ -20,11 +20,13 @@ weight: '1'
 ---
 Entretenido, dinámico, arriesgado. Así definiría la puesta en escena de El Gran Circo de Rusia.
 
+<!--more-->
+
 El sábado, noche de la avant premiere, les subí fotos y videos del espectáculos a las RRSS para que conocieran un poco de lo que van a encontrar en la carpa del circo que está en Ciudad Empresarial de Huechuraba: 50 artistas que muestran un sólido show de 18 actos y mucho rock 80tero.
 
 Artistas que conocen bien su oficio, que se mueven con gran holgura en la pista y enfrentan sus errores dando la cara. Le ocurrió a uno de los artistas jóvenes.
 
-![null](/images/uploads/review-circoruso22.jpg)
+![null](/images/uploads/review-circoruso2.jpg)
 
 Perdió el equilibrio en 3 oportunidades al ejecutar sus saltos. Cayó de pie pero inestable. Se le vio preocupado, pero se ganó tremendo aplauso del público cuando consiguió hacer bien su rutina.
 
@@ -34,7 +36,7 @@ Fui con Rafita (6) y Marido (@kleberos). Ella disfrutó el espectáculo de princ
 
 ¡Qué buena música! Queen ("The show must go on", "We will rock you"), Scorpions ("Rock you like a hurricane"), Men at work, Aeromsith ("Rag doll", "The other side"), Beatles ("Ob-La-Di, Ob-La-Da"), Kiss ("I was made for lovin' you"), AC/DC ("Thunderstrack"), Pink Floyd, Elvis Presley, y muuuchas canciones más. Todas parte de mi adolescencia. 
 
-![null](/images/uploads/review-circoruso33.jpg)
+![null]()
 
 Además del amplio abanico de piruetas hay un ventrílocuo que maneja un ratón bastante chistoso y burlón. Burlón con su dueño. Los niños se ríen con auténticas ganas.
 
