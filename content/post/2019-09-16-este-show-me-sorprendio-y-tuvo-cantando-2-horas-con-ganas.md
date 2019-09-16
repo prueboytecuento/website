@@ -1,5 +1,5 @@
 ---
-title: Este show me sorprendió y tuvo cantando 2 horas con ganas
+title: Este show me sorprendió y tuvo 2 horas cantando
 showonlyimage: true
 date: '2019-09-16T10:53:00-03:00'
 image: /images/uploads/review-circorusoppal2.jpg
@@ -36,7 +36,7 @@ Fui con Rafita (6) y Marido (@kleberos). Ella disfrutó el espectáculo de princ
 
 ¡Qué buena música! Queen ("The show must go on", "We will rock you"), Scorpions ("Rock you like a hurricane"), Men at work, Aeromsith ("Rag doll", "The other side"), Beatles ("Ob-La-Di, Ob-La-Da"), Kiss ("I was made for lovin' you"), AC/DC ("Thunderstrack"), Pink Floyd, Elvis Presley, y muuuchas canciones más. Todas parte de mi adolescencia. 
 
-![null](/images/uploads/review-circoruso33.jpg)
+![null](/images/uploads/review-circoruso3.jpg)
 
 Además del amplio abanico de piruetas hay un ventrílocuo que maneja un ratón bastante chistoso y burlón. Burlón con su dueño. Los niños se ríen con auténticas ganas.
 
