@@ -20,11 +20,13 @@ weight: '1'
 ---
 Entretenido, dinámico, arriesgado. Así definiría la puesta en escena de El Gran Circo de Rusia.
 
+<!--more-->
+
 El sábado, noche de la avant premiere, les subí fotos y videos del espectáculos a las RRSS para que conocieran un poco de lo que van a encontrar en la carpa del circo que está en Ciudad Empresarial de Huechuraba: 50 artistas que muestran un sólido show de 18 actos y mucho rock 80tero.
 
 Artistas que conocen bien su oficio, que se mueven con gran holgura en la pista y enfrentan sus errores dando la cara. Le ocurrió a uno de los artistas jóvenes.
 
-![null](/images/uploads/review-circoruso22.jpg)
+![null](/images/uploads/review-circoruso2.jpg)
 
 Perdió el equilibrio en 3 oportunidades al ejecutar sus saltos. Cayó de pie pero inestable. Se le vio preocupado, pero se ganó tremendo aplauso del público cuando consiguió hacer bien su rutina.
 
