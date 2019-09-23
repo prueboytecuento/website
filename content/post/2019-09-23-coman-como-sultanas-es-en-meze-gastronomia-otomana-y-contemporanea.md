@@ -67,6 +67,8 @@ En los platos principales hay alternativas muy interesante. Hay una preparación
 
 ¿Qué hay dentro? Arroz (tiene forma similar a las pepas de zapallo italiano) que está cocinado con mantequilla y aliñado con eneldo y perejil. Esto sobre carne de cordero, tomate asado y cebolla grillada. La carne viene deshilachada como la mechada. Una muy buena combinación que se pueden ir comiendo con trozos de la masa que cubre el plato. 
 
+![](/images/uploads/review-meze-sefin.jpg)
+
 En la gastronomía turca, como les mencioné al principio, hay carne, pero también muchos platos a base de verduras y encontré ma-ra-vi-llo-so el de pasta rellena con espinaca. Se llama Manti Vegetariano y es una especie de ravioli en forma triangular hecho con harina de arroz. Muy suave al sentirla en la boca y perfectamente al dente al morderla.
 
 Es pasta hundida en salsa de tomate casera, salsa de yogurt y un toque de mantequilla derretida. Tienen que probarla.
