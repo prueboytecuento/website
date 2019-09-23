@@ -41,6 +41,8 @@ El mejor, para mí, fue el Kisir (foto principal) que son masas de burgol, menta
 
 Siempre me ha gustado el burgol (trigo machacado), porque es sabroso y le da mucha consistencia a las preparaciones del medio oriente y también a estas masas. 
 
+![](/images/uploads/review-meze-hojitas.jpg)
+
 En el caso de las Zeytinyagli Yaprak Sarma, que son hojas de parra pero sin carne (rellenas de arroz, menta, pasas, aceite de oliva y canela), se pierde un poco el sabor porque son servidas a baja temperatura. Tal vez estoy acostumbrada a las hojas de parra con harta carne y calientitas, pero efectivamente el sabor queda escondido tras el frío.
 
 Los turcos son buenos para las berenjenas. Están presentes en varios de sus platos y el Saksuka es bien rico. Es una mixtura de berenjenas y zapallos italianos fritos con yogurt y ajo. Consumo bastante ajo y a este plato le da mucha fuerza. Es una apuesta en donde las verduras conservan cierta crocancia y pegan perfecto con la salsa de tomate casera que las cubre. Una delicia.
