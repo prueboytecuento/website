@@ -55,6 +55,8 @@ Hay un aperitivo caliente también a base de zapallos italianos. A diferencia de
 
 Los fritos no están empapados en aceite y son muy crujientes. Se mueren la sensación al partir un trozo de Mücver, sentir cómo suena y al interior encontrarse con el queso de cabra derretido.
 
+![](/images/uploads/review-meze-mucver.jpg)
+
 Onur explica que para conseguir un frito sin exceso de aceite, usan el de maravilla porque “quema rápido y la comida queda sólo unos segundos en el aceite”. Este cocinero es oriundo de Estambul y lleva 17 años en el mundo de la gastronomía. En este tiempo no sólo se ha dedicado a reproducir la cocina de su país, sino que además a mejorarla. Como el conseguir platos menos aceitoso.
 
 En Chile se instaló hace 5 años con Meze y al principio pasaba el 100% del tiempo en la cocina, pero después delegó la tarea de hacer los platos a un grupo de cocineros que trajo de Turquía. El negocio creció y debió asumir otras tareas.
