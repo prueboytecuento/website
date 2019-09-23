@@ -81,6 +81,8 @@ Si les gustan los dulces tanto como a mí y quieren probar varias alternativas, 
 
 Consta de 2 porciones de Irmik Helva, que es una bola un poco más grande que una pelota de golf hecha de sémola tostada con canela y helado de vainilla encima. Un trozo del clásico Baklava y Sekerpare que es galleta de sémola mezclada con azúcar, mantequilla, almendra y almibar. La primera opción me mató: sabrosa, contundente y con el dulzor justo. La mayoría de los postres de este país europeo son demasiado almibarados.
 
+![](/images/uploads/review-meze-postres.jpg)
+
 Postres que, por supuesto, tienen que acompañar con un fuerte café turco. Ese que viene con la borra al fundo de la taza. Ojo, no tiene cardamomo como el café árabe. Aquí preparan el Kurukahveci Mehmet Efendi. Muy rico.
 
 Meze es una interesante apuesta gastronómica. Una apuesta que en cada bocado conquista el paladar e invita a seguir experimentando sus históricos sabores, porque es una fusión de sabores del pasado y actuales. Todos los platos y precios están en www.meze.cl. Vayan, prueben y me cuentan qué les pareció, ¿bueno? #SOYprueboytecuento
