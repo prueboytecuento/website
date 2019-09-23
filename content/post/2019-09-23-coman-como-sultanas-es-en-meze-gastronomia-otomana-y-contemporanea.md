@@ -47,6 +47,8 @@ En el caso de las Zeytinyagli Yaprak Sarma, que son hojas de parra pero sin carn
 
 Los turcos son buenos para las berenjenas. Están presentes en varios de sus platos y el Saksuka es bien rico. Es una mixtura de berenjenas y zapallos italianos fritos con yogurt y ajo. Consumo bastante ajo y a este plato le da mucha fuerza. Es una apuesta en donde las verduras conservan cierta crocancia y pegan perfecto con la salsa de tomate casera que las cubre. Una delicia.
 
+![](/images/uploads/review-meze-saksuka.jpg)
+
 **PICOTEO CALIENTE**
 
 Hay un aperitivo caliente también a base de zapallos italianos. A diferencia del anterior es frito con queso de cabra, eneldo y perejil. Los que me leen hace tiempo, saben que practicamente no como cosas fritas y este plato, el Mücver, me gustó porque apenas sientes el aceite.
