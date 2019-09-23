@@ -29,25 +29,33 @@ Eso es lo que van a encontrar en Meze, explica Onur Erdemir (su dueño y chef), 
 
 La degustación en #Meze, restaurante lleva a la mesa platos otomanos y creaciones actuales, fue contundente. Más de 10 platos, así es que repasaré sólo algunos. Partiendo por la sopa de lentejas rojas, de sabor muy familiar a la que preparamos en Chile, pero mucho más cremosa, sin medio pedazo de piel que la arruine en paladar y maravillosamente suavizada con mantequilla derretida. Exquisita.
 
+![](/images/uploads/review-meze-sopa.jpg)
+
 Siempre acompañé este tipo de preparaciones con aceite de oliva y la alternativa de los turcos marca más el sabor de la comida. Preparación servida en un plato de cobre.
 
 **PICOTEOS FRÍOS**
 
 Hay un interesante pool de platos fríos ideales para esperar el principal o picotear mientras comparten algunos brebajes altos en grados. 
 
-El mejor, para mí, fue el Kisir que son masas de burgol, menta, perejil, limón y trozos de cebollín. La menta le da frescura y el cebollín es preparado de tal forma, que no queda fuerte ni opaca el sabor de los demás ingredientes. 
+El mejor, para mí, fue el Kisir (foto principal) que son masas de burgol, menta, perejil, limón y trozos de cebollín. La menta le da frescura y el cebollín es preparado de tal forma, que no queda fuerte ni opaca el sabor de los demás ingredientes. 
 
 Siempre me ha gustado el burgol (trigo machacado), porque es sabroso y le da mucha consistencia a las preparaciones del medio oriente y también a estas masas. 
+
+![](/images/uploads/review-meze-hojitas.jpg)
 
 En el caso de las Zeytinyagli Yaprak Sarma, que son hojas de parra pero sin carne (rellenas de arroz, menta, pasas, aceite de oliva y canela), se pierde un poco el sabor porque son servidas a baja temperatura. Tal vez estoy acostumbrada a las hojas de parra con harta carne y calientitas, pero efectivamente el sabor queda escondido tras el frío.
 
 Los turcos son buenos para las berenjenas. Están presentes en varios de sus platos y el Saksuka es bien rico. Es una mixtura de berenjenas y zapallos italianos fritos con yogurt y ajo. Consumo bastante ajo y a este plato le da mucha fuerza. Es una apuesta en donde las verduras conservan cierta crocancia y pegan perfecto con la salsa de tomate casera que las cubre. Una delicia.
+
+![](/images/uploads/review-meze-saksuka.jpg)
 
 **PICOTEO CALIENTE**
 
 Hay un aperitivo caliente también a base de zapallos italianos. A diferencia del anterior es frito con queso de cabra, eneldo y perejil. Los que me leen hace tiempo, saben que practicamente no como cosas fritas y este plato, el Mücver, me gustó porque apenas sientes el aceite.
 
 Los fritos no están empapados en aceite y son muy crujientes. Se mueren la sensación al partir un trozo de Mücver, sentir cómo suena y al interior encontrarse con el queso de cabra derretido.
+
+![](/images/uploads/review-meze-mucver.jpg)
 
 Onur explica que para conseguir un frito sin exceso de aceite, usan el de maravilla porque “quema rápido y la comida queda sólo unos segundos en el aceite”. Este cocinero es oriundo de Estambul y lleva 17 años en el mundo de la gastronomía. En este tiempo no sólo se ha dedicado a reproducir la cocina de su país, sino que además a mejorarla. Como el conseguir platos menos aceitoso.
 
@@ -59,9 +67,13 @@ En los platos principales hay alternativas muy interesante. Hay una preparación
 
 ¿Qué hay dentro? Arroz (tiene forma similar a las pepas de zapallo italiano) que está cocinado con mantequilla y aliñado con eneldo y perejil. Esto sobre carne de cordero, tomate asado y cebolla grillada. La carne viene deshilachada como la mechada. Una muy buena combinación que se pueden ir comiendo con trozos de la masa que cubre el plato. 
 
+![](/images/uploads/review-meze-sefin.jpg)
+
 En la gastronomía turca, como les mencioné al principio, hay carne, pero también muchos platos a base de verduras y encontré ma-ra-vi-llo-so el de pasta rellena con espinaca. Se llama Manti Vegetariano y es una especie de ravioli en forma triangular hecho con harina de arroz. Muy suave al sentirla en la boca y perfectamente al dente al morderla.
 
 Es pasta hundida en salsa de tomate casera, salsa de yogurt y un toque de mantequilla derretida. Tienen que probarla.
+
+![](/images/uploads/review-meze-manti.jpg)
 
 **DULCE Y CAFÉ**
 
@@ -69,6 +81,10 @@ Si les gustan los dulces tanto como a mí y quieren probar varias alternativas, 
 
 Consta de 2 porciones de Irmik Helva, que es una bola un poco más grande que una pelota de golf hecha de sémola tostada con canela y helado de vainilla encima. Un trozo del clásico Baklava y Sekerpare que es galleta de sémola mezclada con azúcar, mantequilla, almendra y almibar. La primera opción me mató: sabrosa, contundente y con el dulzor justo. La mayoría de los postres de este país europeo son demasiado almibarados.
 
+![](/images/uploads/review-meze-postres.jpg)
+
 Postres que, por supuesto, tienen que acompañar con un fuerte café turco. Ese que viene con la borra al fundo de la taza. Ojo, no tiene cardamomo como el café árabe. Aquí preparan el Kurukahveci Mehmet Efendi. Muy rico.
+
+![](/images/uploads/review-meze-cafe-.jpg)
 
 Meze es una interesante apuesta gastronómica. Una apuesta que en cada bocado conquista el paladar e invita a seguir experimentando sus históricos sabores, porque es una fusión de sabores del pasado y actuales. Todos los platos y precios están en www.meze.cl. Vayan, prueben y me cuentan qué les pareció, ¿bueno? #SOYprueboytecuento
