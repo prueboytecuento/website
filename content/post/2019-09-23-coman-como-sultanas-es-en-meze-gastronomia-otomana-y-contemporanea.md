@@ -35,7 +35,7 @@ Siempre acompañé este tipo de preparaciones con aceite de oliva y la alternati
 
 Hay un interesante pool de platos fríos ideales para esperar el principal o picotear mientras comparten algunos brebajes altos en grados. 
 
-El mejor, para mí, fue el Kisir que son masas de burgol, menta, perejil, limón y trozos de cebollín. La menta le da frescura y el cebollín es preparado de tal forma, que no queda fuerte ni opaca el sabor de los demás ingredientes. 
+El mejor, para mí, fue el Kisir (foto principal) que son masas de burgol, menta, perejil, limón y trozos de cebollín. La menta le da frescura y el cebollín es preparado de tal forma, que no queda fuerte ni opaca el sabor de los demás ingredientes. 
 
 Siempre me ha gustado el burgol (trigo machacado), porque es sabroso y le da mucha consistencia a las preparaciones del medio oriente y también a estas masas. 
 
