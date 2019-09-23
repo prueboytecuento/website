@@ -53,9 +53,7 @@ Onur explica que para conseguir un frito sin exceso de aceite, usan el de maravi
 
 En Chile se instaló hace 5 años con Meze y al principio pasaba el 100% del tiempo en la cocina, pero después delegó la tarea de hacer los platos a un grupo de cocineros que trajo de Turquía. El negocio creció y debió asumir otras tareas.
 
-\*\*
-
-VOY POR LA PASTA\*\*
+**VOY POR LA PASTA**
 
 En los platos principales hay alternativas muy interesante. Hay una preparación que viene en un molde muy parecido a esos en donde se hornean los queques y cubierto con una masa doradita: el Sefin Tabagi.
 
@@ -65,9 +63,7 @@ En la gastronomía turca, como les mencioné al principio, hay carne, pero tambi
 
 Es pasta hundida en salsa de tomate casera, salsa de yogurt y un toque de mantequilla derretida. Tienen que probarla.
 
-\*\*
-
-DULCE Y CAFÉ\*\*
+**DULCE Y CAFÉ**
 
 Si les gustan los dulces tanto como a mí y quieren probar varias alternativas, hay una opción para después de lo salado. Tienen que pedirlo como Degustación de Postre Turco.
 
