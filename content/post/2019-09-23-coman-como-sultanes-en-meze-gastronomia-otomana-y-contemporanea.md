@@ -25,20 +25,11 @@ Siempre creí que la comida turca era similar a la árabe y me equivoqué. En su
 
 Eso es lo que van a encontrar en Meze, explica Onur Erdemir (su dueño y chef), único restaurante que tiene los sabores de su tierra en SCL: fui a Google, lógico, y encontré locales similares pero ya no existen.
 
-
 La degustación en #Meze, restaurante lleva a la mesa platos otomanos y creaciones actuales, fue contundente. Más de 10 platos, así es que repasaré sólo algunos. Partiendo por la sopa de lentejas rojas, de sabor muy familiar a la que preparamos en Chile, pero mucho más cremosa, sin medio pedazo de piel que la arruine en paladar y maravillosamente suavizada con mantequilla derretida. Exquisita. 
-
 
 Siempre acompañé este tipo de preparaciones con aceite de oliva y la alternativa de los turcos marca más el sabor de la comida. Preparación servida en un plato de cobre.
 
-
-
-![](/images/uploads/review-meze-sopa.jpg)
-
-
-
-\*\*PICOTEOS FRÍOS\*\*
-
+**PICOTEOS FRÍOS**
 
 Hay un interesante pool de platos fríos ideales para esperar el principal o picotear mientras comparten algunos brebajes altos en grados. El mejor, para mí, fue el Kisir (foto principal) que son masas de burgol, menta, perejil, limón y trozos de cebollín. La menta le da frescura y el cebollín es preparado de tal forma, que no queda fuerte ni opaca el sabor de los demás ingredientes. 
 
@@ -55,9 +46,6 @@ En el caso de las Zeytinyagli Yaprak Sarma, que son hojas de parra pero sin carn
 Los turcos son buenos para las berenjenas. Están presentes en varios de sus platos y el Saksuka es bien rico. Es una mixtura de berenjenas y zapallos italianos fritos con yogurt y ajo. Consumo bastante ajo y a este plato le da mucha fuerza. Es una apuesta en donde las verduras conservan cierta crocancia y pegan perfecto con la salsa de tomate casera que las cubre. Una delicia.
 
 
-
-
-!\[](/images/uploads/review-meze-saksuka.jpg)
 
 \*\*PICOTEO CALIENTE\*\*
 
