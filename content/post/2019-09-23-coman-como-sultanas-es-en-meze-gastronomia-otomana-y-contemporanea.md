@@ -29,6 +29,8 @@ Eso es lo que van a encontrar en Meze, explica Onur Erdemir (su dueño y chef), 
 
 La degustación en #Meze, restaurante lleva a la mesa platos otomanos y creaciones actuales, fue contundente. Más de 10 platos, así es que repasaré sólo algunos. Partiendo por la sopa de lentejas rojas, de sabor muy familiar a la que preparamos en Chile, pero mucho más cremosa, sin medio pedazo de piel que la arruine en paladar y maravillosamente suavizada con mantequilla derretida. Exquisita.
 
+![](/images/uploads/review-meze-sopa.jpg)
+
 Siempre acompañé este tipo de preparaciones con aceite de oliva y la alternativa de los turcos marca más el sabor de la comida. Preparación servida en un plato de cobre.
 
 **PICOTEOS FRÍOS**
