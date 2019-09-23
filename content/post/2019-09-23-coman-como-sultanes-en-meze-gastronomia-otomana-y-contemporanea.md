@@ -21,7 +21,7 @@ weight: '1'
 ---
 Siempre creí que la comida turca era similar a la árabe y me equivoqué. En sus platos juegan un rol preponderante las verduras, convirtiéndose en una interesante alternativa para los vegetarianos. ¿Y la carne? Por cierto que hay preparaciones con carne y aquí el cordero es el fuerte.
 
-<!--more>
+<!--more-->
 
 Eso es lo que van a encontrar en Meze, explica Onur Erdemir (su dueño y chef), único restaurante que tiene los sabores de su tierra en SCL: fui a Google, lógico, y encontré locales similares pero ya no existen.
 
