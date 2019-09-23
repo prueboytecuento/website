@@ -1,5 +1,5 @@
 ---
-title: 'Coman como sultanas/es en Meze, gastronomía otomana y contemporánea'
+title: 'Coman como sultanas/nes en Meze, gastronomía otomana y contemporánea'
 showonlyimage: true
 date: '2019-09-23T15:10:16-03:00'
 image: /images/uploads/review-meze-ppal.jpg
