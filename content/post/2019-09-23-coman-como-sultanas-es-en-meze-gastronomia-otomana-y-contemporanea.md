@@ -85,4 +85,6 @@ Consta de 2 porciones de Irmik Helva, que es una bola un poco más grande que un
 
 Postres que, por supuesto, tienen que acompañar con un fuerte café turco. Ese que viene con la borra al fundo de la taza. Ojo, no tiene cardamomo como el café árabe. Aquí preparan el Kurukahveci Mehmet Efendi. Muy rico.
 
+![](/images/uploads/review-meze-cafe-.jpg)
+
 Meze es una interesante apuesta gastronómica. Una apuesta que en cada bocado conquista el paladar e invita a seguir experimentando sus históricos sabores, porque es una fusión de sabores del pasado y actuales. Todos los platos y precios están en www.meze.cl. Vayan, prueben y me cuentan qué les pareció, ¿bueno? #SOYprueboytecuento
