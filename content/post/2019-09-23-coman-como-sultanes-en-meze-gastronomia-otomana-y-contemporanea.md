@@ -33,22 +33,13 @@ Siempre acompañé este tipo de preparaciones con aceite de oliva y la alternati
 
 Hay un interesante pool de platos fríos ideales para esperar el principal o picotear mientras comparten algunos brebajes altos en grados. El mejor, para mí, fue el Kisir (foto principal) que son masas de burgol, menta, perejil, limón y trozos de cebollín. La menta le da frescura y el cebollín es preparado de tal forma, que no queda fuerte ni opaca el sabor de los demás ingredientes. 
 
-
 Siempre me ha gustado el burgol (trigo machacado), porque es sabroso y le da mucha consistencia a las preparaciones del medio oriente y también a estas masas. 
-
-!\[](/images/uploads/review-meze-hojitas.jpg)
-
-
 
 En el caso de las Zeytinyagli Yaprak Sarma, que son hojas de parra pero sin carne (rellenas de arroz, menta, pasas, aceite de oliva y canela), se pierde un poco el sabor porque son servidas a baja temperatura. Tal vez estoy acostumbrada a las hojas de parra con harta carne y calientitas, pero efectivamente el sabor queda escondido tras el frío.
 
-
 Los turcos son buenos para las berenjenas. Están presentes en varios de sus platos y el Saksuka es bien rico. Es una mixtura de berenjenas y zapallos italianos fritos con yogurt y ajo. Consumo bastante ajo y a este plato le da mucha fuerza. Es una apuesta en donde las verduras conservan cierta crocancia y pegan perfecto con la salsa de tomate casera que las cubre. Una delicia.
 
-
-
-\*\*PICOTEO CALIENTE\*\*
-
+**PICOTEO CALIENTE**
 
 Hay un aperitivo caliente también a base de zapallos italianos. A diferencia del anterior es frito con queso de cabra, eneldo y perejil. Los que me leen hace tiempo, saben que practicamente no como cosas fritas y este plato, el Mücver, me gustó porque apenas sientes el aceite.
 
