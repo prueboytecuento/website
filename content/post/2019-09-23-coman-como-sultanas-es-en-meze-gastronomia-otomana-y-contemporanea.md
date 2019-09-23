@@ -73,6 +73,8 @@ En la gastronomía turca, como les mencioné al principio, hay carne, pero tambi
 
 Es pasta hundida en salsa de tomate casera, salsa de yogurt y un toque de mantequilla derretida. Tienen que probarla.
 
+![](/images/uploads/review-meze-manti.jpg)
+
 **DULCE Y CAFÉ**
 
 Si les gustan los dulces tanto como a mí y quieren probar varias alternativas, hay una opción para después de lo salado. Tienen que pedirlo como Degustación de Postre Turco.
