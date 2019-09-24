@@ -57,15 +57,15 @@ Los fritos no están empapados en aceite y son muy crujientes. Se mueren la sens
 
 ![null](/images/uploads/review-meze-mucver.jpg)
 
-Onur explica que para conseguir un frito sin exceso de aceite, usan el de maravilla porque “quema rápido y la comida queda sólo unos segundos en el aceite”. Este cocinero es oriundo de Estambul y lleva 17 años en el mundo de la gastronomía. En este tiempo no sólo se ha dedicado a reproducir la cocina de su país, sino que además a mejorarla. Como conseguir platos menos aceitosos.
+Onur explica que para conseguir un frito sin exceso de aceite, usan el de maravilla porque “quema rápido y la comida queda sólo unos segundos en el aceite”. Este cocinero es oriundo de Estambul y lleva 17 años en el mundo de la gastronomía. En este tiempo no sólo se ha dedicado a reproducir la cocina de su país, sino que además a mejorarla. Como el conseguir platos menos aceitoso.
 
 En Chile se instaló hace 5 años con Meze y al principio pasaba el 100% del tiempo en la cocina, pero después delegó la tarea de hacer los platos a un grupo de cocineros que trajo de Turquía. El negocio creció y debió asumir otras tareas.
 
 **VOY POR LA PASTA**
 
-En los platos principales hay alternativas muy interesantes. Hay una preparación que viene en un molde muy parecido a esos en donde se hornean los queques y cubierto con una masa doradita: el Sefin Tabagi.
+En los platos principales hay alternativas muy interesante. Hay una preparación que viene en un molde muy parecido a esos en donde se hornean los queques y cubierto con una masa doradita: el Sefin Tabagi.
 
-¿Qué hay dentro? Arroz (tiene forma similar a las pepas de zapallo italiano) que está cocinado con mantequilla y aliñado con eneldo y perejil. Esto sobre carne de cordero, tomate asado y cebolla grillada. La carne viene deshilachada como la mechada. Una muy buena combinación que se pueden ir comiendo con trozos de la masa que cubre el plato. 
+¿Qué hay dentro? Arroz (tiene forma similar a las pepas de zapallo italiano) que está cocinado con mantequilla y aliñado con eneldo y perejil. Esto sobre carne de cordero, tomate asado y cebolla grillada. La carne viene deshilachada como la mechada. Una muy buena combinación que se puede ir comiendo con trozos de la masa que cubre el plato. 
 
 ![null](/images/uploads/review-meze-sefin.jpg)
 
