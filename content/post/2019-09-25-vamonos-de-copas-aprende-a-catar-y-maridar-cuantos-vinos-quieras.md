@@ -11,9 +11,9 @@ tags:
   - Sheraton
   - WineLover
   - Vinho
-  - comida
-  - pocas
-  - catar
+  - Comida
+  - Cepas
+  - Catar
   - Viñas
 categories:
   - COMER Y BEBER
