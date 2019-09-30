@@ -31,7 +31,7 @@ Hace 2 años el hotel Four Points by Sheraton, ese que está en Santa Magdalena 
 
 Tienen una oferta saludable bien completa en sus desayunos. Son cerca de 25 productos que sumaron al buffet diario. Por ejemplo, en reemplazo de la leche con lactosa tradicional, están las de soya, arroz, almendras y, claro, leche sin lactosa. Me encanta la leche de almendras, pero es tan cara que no la consumo en casa.
 
-![](/images/uploads/review-desayunos-fpsh-leche.jpg)
+![null](/images/uploads/review-desayunos-fpsh-leche.jpg)
 
 Los que me leen hace un tiempo, saben que tengo cierta debilidad por los pasteles y aquí tienen un cheesecake de maracuyá suave, con el dulzor justo y sin esa acidez propia de esta fruta tropical. Lejos lo que más me gustó de este desayuno. También hay pie de limón, pero lo encontré un poquito amargo. La primera opción está perfecta para mí. Todo libre de gluten.
 
@@ -41,7 +41,7 @@ Hojuelas, pan blanco y pan integral también son libres de gluten. El integral e
 
 Hay unos salados de quinoa, palta y sésamo súper cremosos. Unas porciones pequeñas, tipo ensalada que, a pesar de su tamaño, son contundentes. También está el de quinoa con vegetales.
 
-![](/images/uploads/review-desayunos-fpsh-quinoa.jpg)
+![null](/images/uploads/review-desayunos-fpsh-quinoa.jpg)
 
 Es una buena opción la de este hotel si, por ejemplo, tienes un desayuno-reunión por pega o reunión de amigos y sabes que entre los que asisten hay personas que son intolerantes al gluten o la lactosa o son veganos, etc. Sin ir más lejos, entre las que asistimos a esta degustación habían 2 vegetarianas y una vegana. 
 
