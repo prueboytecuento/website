@@ -1,5 +1,5 @@
 ---
-title: 'Desayunos sin gluten ni lactosa en hotel Four Points by Sheraton: '
+title: Desayunos sin gluten ni lactosa en hotel Four Points by Sheraton
 showonlyimage: true
 date: '2019-09-30T14:37:33-03:00'
 image: /images/uploads/review-desayunos-fpsh-ppal.jpg
