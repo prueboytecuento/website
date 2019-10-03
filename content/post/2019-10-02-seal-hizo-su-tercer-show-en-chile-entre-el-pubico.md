@@ -1,5 +1,5 @@
 ---
-title: Tercer show de Seal en Chile fue desde el púbico
+title: Tercer show de Seal en Chile fue desde el público
 showonlyimage: true
 date: '2019-10-02T12:40:04-03:00'
 image: /images/uploads/panoramas-seal-ppal-al-50.jpg
