@@ -30,8 +30,7 @@ weight: 0
 
 \-PAULO LONDRA / Movistar Arena.
 
-**04
-**
+**04**
 
 \-RICHARD MARX / Enjoy Antofagasta.
 
