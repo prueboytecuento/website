@@ -31,9 +31,7 @@ weight: 0
 \-PAULO LONDRA / Movistar Arena.
 
 **04
-**
-
-\-RICHARD MARX / Enjoy Antofagasta.
+**-RICHARD MARX / Enjoy Antofagasta.
 
 \-SEBASTIÁN YATRA / Movistar Arena.
 
@@ -64,11 +62,9 @@ weight: 0
 \-KARD / Teatro Coliseo.
 
 **10
-**
+**-ANDRÉS CALAMARO / Movistar Arena.
 
-\-ANDRÉS CALAMARO / Movistar Arena.
-
-11
+**11**
 
 \-SAIIAN SUPA CREW / Club Subterráneo. 
 
@@ -78,13 +74,13 @@ weight: 0
 
 \-PEPE AGUILAR / Movistar Arena.
 
-12
+**12**
 
 \-KING CRIMSON / Movistar Arena.
 
 \-SAIIAN SUPA CREW / Club Subterráneo.
 
-13
+**13**
 
 \-MUSE / Atlética Mario Recordón.
 
@@ -92,19 +88,19 @@ weight: 0
 
 \-KING CRIMSON / Movistar Arena.
 
-14
+**14**
 
 \-IRON MAIDEN / Movistar Arena.
 
-15
+**15**
 
 \-IRON MAIDEN / Estadio Nacional.
 
-17
+**17**
 
 \-ANDRÉ RIEU / Movistar Arena.
 
-18
+**18**
 
 \-ANDRÉ RIEU / Movistar Arena.
 
@@ -112,23 +108,23 @@ weight: 0
 
 \-LA BERISO / Cúpula Multiespacio.
 
-19
+**19**
 
 \-Vívela Festival: BOMBA ESTÉREO, MORCHEEBA Y OTROS / Parque Quinta Normal.
 
 \-ANDRÉ RIEU / Movistar Arena.
 
-20
+**20**
 
 \-ANDRÉ RIEU / Movistar Arena.
 
 \-TARJA / Club Blondie.
 
-22
+**22**
 
 \-BRYAN ADAMS / Movistar Arena.
 
-25
+**25**
 
 \-JIMENA BARÓN Y J MENA / Sala Metrónomo.
 
@@ -136,25 +132,25 @@ weight: 0
 
 \-CALIGARIS / Club Chocolate.
 
-26
+**26**
 
-\-THE OFFSPRING + BAD RELIGION / Court Central Del Estadio Nacional.
+\-THE OFFSPRING + BAD RELIGION / Court Central del Estadio Nacional.
 
-27
+**27**
 
 \-SALVATORE ADAMO / Teatro Caupolicán.
 
 \-PESTILENCE / Club Blondie.
 
-29
+**29**
 
 \-SERRAT Y SABINA / Movistar Arena.
 
-30
+**30**
 -CREEDENCE CLEARWATER REVISITED / Movistar Arena.
 
 \-EPICA / Teatro Caupolicán.
 
-31
+**31**
 
 \-NOCHE DE BRUJAS / Gran Arena Monticello.
