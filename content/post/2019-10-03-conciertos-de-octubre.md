@@ -26,15 +26,16 @@ weight: 0
 
 <!--more-->
 
-**03**
+**03**
 
-\-PAULO LONDRA / Movistar Arena.
+\-PAULO LONDRA / Movistar Arena.
 
-**04**
+**04
+**
 
 \-RICHARD MARX / Enjoy Antofagasta.
 
-\-SEBASTIÁN YATRA / Movistar Arena.
+\-SEBASTIÁN YATRA / Movistar Arena.
 
 **05**
 
@@ -44,15 +45,15 @@ weight: 0
 
 \-CRISTIAN CASTRO Y ALEXANDRE PIRES / Movistar Arena.
 
-\-RESISTANCE SANTIAGO / Espacio Broadway.
+\-RESISTANCE SANTIAGO / Espacio Broadway.
 
 **06**
 
-\-Santiago Gets Louder: SLAYER + MEGADETH + ANTHRAX + PENTAGRAM / Estadio Bicentenario de La Florida.
+\-Santiago Gets Louder: SLAYER + MEGADETH + ANTHRAX + PENTAGRAM / Estadio Bicentenario de La Florida.
 
 **07**
 
-\-SCORPIONS Y WHITESNAKE / Movistar Arena.
+\-SCORPIONS Y WHITESNAKE / Movistar Arena.
 
 **08**
 
@@ -60,11 +61,12 @@ weight: 0
 
 \-SLAYER + ANTHRAX / Valparaíso Sporting Club.
 
-\-KARD / Teatro Coliseo.
+\-KARD / Teatro Coliseo.
 
-**10**
+**10
+**
 
-\-ANDRÉS CALAMARO / Movistar Arena.
+\-ANDRÉS CALAMARO / Movistar Arena.
 
 11
 
@@ -74,13 +76,13 @@ weight: 0
 
 \-VICENTICO / Gran Arena Monticello.
 
-\-PEPE AGUILAR / Movistar Arena.
+\-PEPE AGUILAR / Movistar Arena.
 
 12
 
 \-KING CRIMSON / Movistar Arena.
 
-\-SAIIAN SUPA CREW / Club Subterráneo.
+\-SAIIAN SUPA CREW / Club Subterráneo.
 
 13
 
@@ -88,19 +90,19 @@ weight: 0
 
 \-LP LAURA PERGOLIZZI / Cúpula Multiespacio.
 
-\-KING CRIMSON / Movistar Arena.
+\-KING CRIMSON / Movistar Arena.
 
 14
 
-\-IRON MAIDEN / Movistar Arena.
+\-IRON MAIDEN / Movistar Arena.
 
 15
 
 \-IRON MAIDEN / Estadio Nacional.
 
-17
+17
 
-\-ANDRÉ RIEU / Movistar Arena.
+\-ANDRÉ RIEU / Movistar Arena.
 
 18
 
@@ -108,7 +110,7 @@ weight: 0
 
 \-MORCHEEBA / Club Chocolate.
 
-\-LA BERISO / Cúpula Multiespacio.
+\-LA BERISO / Cúpula Multiespacio.
 
 19
 
@@ -116,17 +118,17 @@ weight: 0
 
 \-ANDRÉ RIEU / Movistar Arena.
 
-20
+20
 
 \-ANDRÉ RIEU / Movistar Arena.
 
 \-TARJA / Club Blondie.
 
-22
+22
 
 \-BRYAN ADAMS / Movistar Arena.
 
-25
+25
 
 \-JIMENA BARÓN Y J MENA / Sala Metrónomo.
 
@@ -134,9 +136,9 @@ weight: 0
 
 \-CALIGARIS / Club Chocolate.
 
-26
+26
 
-\-THE OFFSPRING + BAD RELIGION / Court Central Del Estadio Nacional.
+\-THE OFFSPRING + BAD RELIGION / Court Central Del Estadio Nacional.
 
 27
 
@@ -144,13 +146,14 @@ weight: 0
 
 \-PESTILENCE / Club Blondie.
 
-29
+29
 
 \-SERRAT Y SABINA / Movistar Arena.
 
-30-CREEDENCE CLEARWATER REVISITED / Movistar Arena.
+30
+-CREEDENCE CLEARWATER REVISITED / Movistar Arena.
 
-\-EPICA / Teatro Caupolicán.
+\-EPICA / Teatro Caupolicán.
 
 31
 
