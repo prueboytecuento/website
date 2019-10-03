@@ -22,7 +22,7 @@ categories:
   - PANORAMAS
 weight: 0
 ---
-¿Saben si la banda, cantante o músico que te mata viene a Chile? Desde hoy y en más, iré subiendo la cartelera mensual de concierto. No te enteres cuando pasó, entérate antes y disfruta a tus artistas en vivo.
+¿Saben si la banda, cantante o músico que te mata viene a Chile? Desde hoy y en más iré subiendo la cartelera mensual de concierto. No te enteres cuando pasó, entérate antes y disfruta a tus artistas en vivo.
 
 <!--more-->
 
