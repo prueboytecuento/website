@@ -61,8 +61,9 @@ weight: 0
 
 \-KARD / Teatro Coliseo.
 
-**10
-**-ANDRÉS CALAMARO / Movistar Arena.
+**10**
+
+\-ANDRÉS CALAMARO / Movistar Arena.
 
 **11**
 
