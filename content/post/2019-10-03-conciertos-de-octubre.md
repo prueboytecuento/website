@@ -31,9 +31,7 @@ weight: 0
 \-PAULO LONDRA / Movistar Arena.
 
 **04
-**
-
-\-RICHARD MARX / Enjoy Antofagasta.
+**-RICHARD MARX / Enjoy Antofagasta.
 
 \-SEBASTIÁN YATRA / Movistar Arena.
 
