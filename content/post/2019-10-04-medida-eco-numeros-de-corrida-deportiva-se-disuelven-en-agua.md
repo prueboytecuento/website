@@ -1,5 +1,5 @@
 ---
-title: 'Medida eco: números de corrida deportiva se disuelven en agua'
+title: Números de corrida deportiva se disuelven en H20
 showonlyimage: true
 date: '2019-10-04T11:48:28-03:00'
 image: /images/uploads/eco-nu-meros-marato-n.jpg
