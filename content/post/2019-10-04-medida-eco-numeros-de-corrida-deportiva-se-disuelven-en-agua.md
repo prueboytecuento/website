@@ -11,6 +11,10 @@ tags:
   - Maratón
   - Carrera
   - Calentamiento Global
+  - Pallet
+  - Océanos
+  - Energía Limpia
+  - Reciclado
 categories:
   - ECO
 weight: '1'
