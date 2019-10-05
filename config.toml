@@ -58,6 +58,7 @@ paginate = 6 #frontpage pagination
 
   [params.social]
   facebook      = "https://www.facebook.com/prueboytecuento/"
+  youtube      = "https://www.youtube.com/channel/UCqDk_xCaKJJ36kU7smEuNgg"
   # googleplus    = "full profile url in googleplus"
   email         = "paulahematura@icloud.com"
   # twitter       = "https://twitter.com/prueboytecuento"

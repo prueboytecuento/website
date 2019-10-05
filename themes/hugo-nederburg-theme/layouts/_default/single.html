@@ -187,6 +187,14 @@ title="facebook icon"></i>
 </a>
 {{end}}
 
+{{ with .Site.Params.social.youtube }}
+<a class="youtube" target="_blank"
+href="{{ . }}">
+<i class="fab fa-youtube"
+title="youtube icon"></i>
+</a>
+{{end}}
+
 {{ with .Site.Params.social.googleplus }}
 <a class="googleplus" target="_blank"
 href="{{ . }}">

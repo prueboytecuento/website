@@ -32,6 +32,16 @@
 				</li>
         {{end}}
 
+        {{ with .Site.Params.social.youtube }}
+				<li>
+					<a class="youtube" target="_blank"
+					   href="{{ . }}" >
+						<i class="fab fa-youtube" title="youtube"></i>
+						<span class="screen-reader-text">youtube</span>
+					</a>
+				</li>
+        {{end}}
+
         {{ with .Site.Params.social.googleplus }}
 				<li>
 					<a class="googleplus" target="_blank"
