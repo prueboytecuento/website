@@ -34,4 +34,4 @@ Entonces, empiecen a seguir Pruebo y te cuento en Facebook. Sí, porque esta vez
 * SUMA los hashtags #PrueboyTeCuentoREGALA y #REGIASPamelaGrant.
 * Y COMPARTE tu respuesta, claro, en Facebook.
 
-Resultado el jueves 10 de octubre a las 20 horas aquí. ¡Suerte!
+Resultado el jueves 10 de octubre a las 20 horas aquí. ¡Suerte! #SOYprueboytecuento
