@@ -20,11 +20,11 @@ weight: '1'
 ---
 ¿Conocen los brigadeiros? Son unas bolitas de chocolate de aspecto muy similar al de las trufas, pero de sabor totalmente diferente. Son dulces típicos brasileros, adictivos y ahora los hacen en Chile. Están bajo el nombre Casa Lusso. 
 
-<--more-->
+<!--more-->
 
 Se trata del emprendimiento de 2 amigas, una chilena y la otra brasilera que trabajaban en la industria de las farmacéuticas y que, por circunstancias de la vida, cambiaron de rubro y entraron al mundo de los chocolates. Pero antes se prepararon.
 
-Edda Strozzi, me cuenta que viajaron a Brasil y Portugal para tomar clases con varios chefs, los que les enseñaron antiguas recetas de la chocolatería de ambos países. ¿Por qué Portugal? La colonia portuguesa más grande del mundo está en Brasil y su influencia gastronómica y pastelera es inmensa.
+Edda Strozzi, me cuenta que viajaron a Brasil y Portugal para tomar clases con varios chefs, los que les enseñaron antiguas recetas de la chocolatería de ambos países. ¿Por qué Portugal? La colonia portuguesa más grande del mundo está en Brasil y su influencia gastronómica es inmensa.
 
 ![null](/images/uploads/review-brigadeiros-6.jpg)
 
