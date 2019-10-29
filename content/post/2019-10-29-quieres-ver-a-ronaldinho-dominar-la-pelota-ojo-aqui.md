@@ -1,5 +1,5 @@
 ---
-title: ¿Quieres ver a Ronaldinho dominar la pelota? Ojo aquí
+title: ¿Quieres ver a Ronaldinho dominar la pelota?
 showonlyimage: true
 date: '2019-10-29T12:31:01-03:00'
 image: /images/uploads/panorama-ronaldinho1-ppal.jpg
