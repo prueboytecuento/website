@@ -5,11 +5,12 @@ date: '2019-10-29T12:31:01-03:00'
 image: /images/uploads/panorama-ronaldinho1-ppal.jpg
 rating: '29'
 tags:
-  - panorama
-  - fútbol
-  - ronaldinho gaucho
-  - exhibición
-  - partido
+  - Panorama
+  - Fútbol
+  - Ronaldinho Gaucho
+  - Exhibición
+  - Partido
+  - Amistoso
 categories:
   - PANORAMAS
 weight: '1'
