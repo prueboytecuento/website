@@ -20,18 +20,16 @@ Usé Aclarado Radiante de Nivea, una crema para el rostro de uso diario. Existe 
 
 Mi piel es mixta y siempre voy cambiando los productos porque, como la mayoría sabe, la piel se acostumbra a un mismo menjunje y si no lo alternas con otro entre semanas o mes a mes, tu piel ya no va a lucir con tanta vida, se va a tornar opaca y oleosa.
 
-Todo eso me pasó con este producto Nivea. Terminé el pote de la Hydro Boost de Neutrogena que estaba usando y comencé este nuevo.
+Todo eso me pasó con este producto Nivea. Terminé el pote de la Hydro Boost de Neutrogena que estaba usando y comencé este nuevo testing.
 
-Al probarla sobre mi mano amé su textura porque parecía densa, pero es ligera y huele exquisita. Así es que, acto seguido, me la apliqué en el rostro pero no hubo feeling.
+Al probarla sobre mi mano amé su textura ligera y su aroma agradable. Así es que, acto seguido, me la apliqué en el rostro pero no hubo feeling.
 
 Llegada la tarde, mi piel estaba medianamente oleosa… Llevar maquillaje con la piel oleosa es del terror. Ese brillo insoportable que nadie quiere.
 
 Del medianamente oleosa, pasé al derechamente oleosa y pegote. Así me andaba paseando por la ciudad.
 
-Pero como el sol está potente y me encanta broncearme, seguí apostando por la crema, porque  XXXXXX seguí usándola para evitar que mi piel se resquebrajara. Me ayudó kilos en ese sentido, pero incluso con la piel más tirante y seca, me dejaba aceitosa.
-
 Cuento corto, tuve que dejar de usarla porque me estaba llenando de impurezas y el efecto aclarante nunca lo vi. 
 
-Por exposición al sol tengo hartas manchas en el rostro, así es que siempre busco productos que ayuden a aclararla. Estoy consciente que ningún producto va a borrar mis manchas si no dejo de tomar sol, pero sí espero que en 1 mes las haga menos evidente y con Aclarado Radiante de Nivea no ocurrió. Una pena. Pero ojo, eso no quiere decir que en tú piel va a pasar lo mismo.
+Por exposición al sol tengo hartas manchas en el rostro, así es que siempre busco productos que ayuden a aclararla. Estoy consciente que borrar mis manchas es difícil, pero sí espero que en 1 mes las haga menos evidente y con Aclarado Radiante de Nivea no ocurrió. Una pena. Pero ojo, eso no quiere decir que en tú piel va a pasar lo mismo.
 
 Según la etiqueta, este producto contiene un activo bio-aclarante, vitaminas (no dice cuáles), filtro UVA/UVB, ácido dioico, que reduce la producción de melanina y aparición de hiperpigmentación, y extracto de soya. #SOYprueboytecuento
