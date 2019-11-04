@@ -2,7 +2,7 @@
 title: A nadie le gusta tener el rostro oleoso y manchado
 showonlyimage: true
 date: '2019-11-03T14:16:18-03:00'
-image: /images/uploads/belleza-nivea-aclaradook.jpg
+image: /images/uploads/review-nivea-aclarante-ppal.jpg
 rating: '1'
 tags:
   - Crema
@@ -27,6 +27,8 @@ Al probarla sobre mi mano amé su textura ligera y su aroma agradable. Así es q
 Llegada la tarde, mi piel estaba medianamente oleosa… Llevar maquillaje con la piel oleosa es del terror. Ese brillo insoportable que nadie quiere.
 
 Del medianamente oleosa, pasé al derechamente oleosa y pegote. Así me andaba paseando por la ciudad.
+
+![](/images/uploads/review-nivea2.jpg)
 
 Cuento corto, tuve que dejar de usarla porque me estaba llenando de impurezas y el efecto aclarante nunca lo vi. 
 
