@@ -94,7 +94,8 @@ Ahora: 24 de abril de 2020. \
 Lugar por confirmar. 
 
 **Bajofondo 
-**Antes: 22 de octubre. \
+**\
+Antes: 22 de octubre. \
 Ahora: Día por confirmar. \
 Teatro Coliseo. 
 
