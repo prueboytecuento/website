@@ -33,14 +33,16 @@ Antes: 4 de noviembre.\
 Ahora: 20 de marzo de 2020. 
 
 **Pablo Herrera 
-**Antes: 19 de octubre. \
+**\
+Antes: 19 de octubre. \
 Ahora: 27 de diciembre. \
 Club Chocolate. 
 
 ![null](/images/uploads/panoramas-reagendado-andre-rieu.jpg)
 
 **André Rieu 
-**Antes:19 y 20 de octubre. \
+**\
+Antes: 19 y 20 de octubre. \
 Ahora: 20 y 21 de mayo de 2020. \
 Movistar Arena. 
 
@@ -55,12 +57,14 @@ Ahora: Día y mes por confirmar. \
 Teatro Caupolicán. 
 
 **Creedence Clearwater Revisited 
-**Antes: 30 de octubre, 1 y 2 de noviembre. \
+**\
+Antes: 30 de octubre, 1 y 2 de noviembre. \
 Ahora: Marzo de 2020. \
 Día y lugar por confirmar. 
 
 **Sandra Mihanovic 
-**Antes: 7 de noviembre. \
+**\
+Antes: 7 de noviembre. \
 Ahora: 16 de mayo de 2020. \
 Teatro Oriente. 
 
@@ -84,7 +88,8 @@ Ahora: 24 y el 26 de enero de 2020. \
 Estación Mapocho. 
 
 **KC and the Sunshine Band + Kool and the Gang 
-**Antes: 7 de diciembre. \
+**\
+Antes: 7 de diciembre. \
 Ahora: 24 de abril de 2020. \
 Lugar por confirmar. 
 
@@ -106,6 +111,7 @@ Ahora: Por confirmar. \
 Teatro Caupolicán. 
 
 **Música de películas 
-**Antes: 27 de octubre. \
+**\
+Antes: 27 de octubre. \
 Ahora: 24 de noviembre. \
 Casa Piedra.
