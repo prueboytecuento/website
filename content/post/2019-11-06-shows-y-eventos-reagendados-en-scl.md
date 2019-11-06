@@ -22,147 +22,90 @@ Dada la situación que atraviesa Chile, varios espectáculos y eventos que iban 
 
 <!--more-->
 
-**Morodo + Nach 
-**
-
-Antes: 3 de noviembre. 
-
-Ahora: Marzo de 2020. 
-
+**Morodo + Nach **\
+Antes: 3 de noviembre. \
+Ahora: Marzo de 2020. \
 Día y hora por confirmar. 
 
-**Daniel Habif 
-**
-
-(Speaker Motivacional)
-
-Antes: 4 de noviembre.
-
+**Daniel Habif **\
+(Speaker Motivacional)\
+Antes: 4 de noviembre.\
 Ahora: 20 de marzo de 2020. 
 
 **Pablo Herrera 
-**
-
-Antes: 19 de octubre. 
-
-Ahora: 27 de diciembre. 
-
+**Antes: 19 de octubre. \
+Ahora: 27 de diciembre. \
 Club Chocolate. 
 
 ![null](/images/uploads/panoramas-reagendado-andre-rieu.jpg)
 
 **André Rieu 
-**
-
-Antes: 19 y 20 de octubre. 
-
-Ahora: 20 y 21 de mayo de 2020. 
-
+**Antes:19 y 20 de octubre. \
+Ahora: 20 y 21 de mayo de 2020. \
 Movistar Arena. 
 
-**Luciano Pereyra **
-
-Antes: 30 de octubre. 
-
-Ahora: 5 de diciembre. 
-
+**Luciano Pereyra **\
+Antes: 30 de octubre. \
+Ahora: 5 de diciembre. \
 Gran Arena Monticello. 
 
-**Epica** 
-
-Antes: 30 de octubre. 
-
-Ahora: Día y mes por confirmar. 
-
+**Epica** \
+Antes: 30 de octubre. \
+Ahora: Día y mes por confirmar. \
 Teatro Caupolicán. 
 
 **Creedence Clearwater Revisited 
-**
-
-Antes: 30 de octubre, 1 y 2 de noviembre. 
-
-Ahora: Marzo de 2020. 
-
+**Antes: 30 de octubre, 1 y 2 de noviembre. \
+Ahora: Marzo de 2020. \
 Día y lugar por confirmar. 
 
 **Sandra Mihanovic 
-**
-
-Antes: 7 de noviembre. 
-
-Ahora: 16 de mayo de 2020. 
-
+**Antes: 7 de noviembre. \
+Ahora: 16 de mayo de 2020. \
 Teatro Oriente. 
 
-**Khea**  
-
-Antes: 8 de noviembre. 
-
+**Khea**  \
+Antes: 8 de noviembre. \
 Ahora: Suspendido. 
 
-**Air Supply y Michael Bolton ** 
-
-Antes: 9 de noviembre. 
-
-Ahora: 8 de mayo de 2020. 
-
+**Air Supply y Michael Bolton ** \
+Antes: 9 de noviembre. \
+Ahora: 8 de mayo de 2020. \
 Movistar Arena. 
 
-**Glup **
-
-Antes: 19 de octubre. 
-
-Ahora: 7 de noviembre. 
-
+**Glup **\
+Antes: 19 de octubre. \
+Ahora: 7 de noviembre. \
 Blondie. 
 
-**SuperFest** 
-
-Antes: 1 y 3 de noviembre. 
-
-Ahora: 24 y el 26 de enero de 2020. 
-
+**SuperFest** \
+Antes: 1 y 3 de noviembre. \
+Ahora: 24 y el 26 de enero de 2020. \
 Estación Mapocho. 
 
 **KC and the Sunshine Band + Kool and the Gang 
-**
-
-Antes: 7 de diciembre. 
-
-Ahora: 24 de abril de 2020. 
+**Antes: 7 de diciembre. \
+Ahora: 24 de abril de 2020. \
+Lugar por confirmar. 
 
 **Bajofondo 
-**
-
-Antes: 22 de octubre. 
-
-Ahora: Día por confirmar. 
-
+**Antes: 22 de octubre. \
+Ahora: Día por confirmar. \
 Teatro Coliseo. 
 
-**Los Pericos** 
-
-Antes: 25 de octubre. 
-
-Ahora: Día por confirmar. 
-
+**Los Pericos** \
+Antes: 25 de octubre. \
+Ahora: Día por confirmar. \
 Club Amanda. 
 
 ![null](/images/uploads/panoramas-reagendados-offspring.jpg)
 
-**Bad Religion y The Offspring**
-
-Antes: 26 de octubre. 
-
-Ahora: Por confirmar. 
-
-Court Central, Estadio Nacional. 
+**Bad Religion y The Offspring**\
+Antes: 26 de octubre. \
+Ahora: Por confirmar. \
+Teatro Caupolicán. 
 
 **Música de películas 
-**
-
-Antes: 27 de octubre. 
-
-Ahora: 24 de noviembre. 
-
+**Antes: 27 de octubre. \
+Ahora: 24 de noviembre. \
 Casa Piedra.
