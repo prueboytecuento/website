@@ -1,5 +1,5 @@
 ---
-title: Bosch se lanzó con ofertas de hasta un 50%
+title: Bosch se lanzó con ofertas de hasta un 50 por ciento
 showonlyimage: true
 date: '2019-11-26T23:35:15-03:00'
 image: /images/uploads/datos-bosch-ofertas.jpg
