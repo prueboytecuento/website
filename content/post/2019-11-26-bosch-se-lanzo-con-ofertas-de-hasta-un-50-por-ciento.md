@@ -5,9 +5,17 @@ date: '2019-11-26T01:40:10-03:00'
 image: /images/uploads/datos-bosch-ofertas.jpg
 rating: '1'
 tags:
-  - >-
-    #Electrodomésticos #Ofertas #Bosch #Alemana #Lavadora #Licuadora #Horno
-    #Aspiradora #Campana #Encimera #ExklusivWeek
+  - Electrodomésticos
+  - Ofertas
+  - Bosch
+  - Alemana
+  - Lavadora
+  - Licuadora
+  - Horno
+  - Aspiradora
+  - Campana
+  - Encimera
+  - ExklusivWeek
 categories:
   - DATO
 weight: '1'
