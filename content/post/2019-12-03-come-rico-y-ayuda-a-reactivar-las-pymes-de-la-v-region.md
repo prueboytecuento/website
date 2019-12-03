@@ -1,5 +1,5 @@
 ---
-title: 'Come rico y ayuda a reactivar las pymes de la V Región '
+title: Come rico y ayuda a reactivar las pymes de la V Región
 showonlyimage: true
 date: '2019-12-03T16:44:50-03:00'
 image: /images/uploads/dato-sobremesa-ppal.jpg
@@ -25,7 +25,7 @@ Hace más de un mes que nos movilizamos por un Chile más justo, hace más de un
 
 Junten hambre porque este 7 y 8 de diciembre se realizará “Sobremesa: la primera feria callejera autogestionada de la V Región”. Son más de 70 stands, en donde restaurantes, bares, heladerías, pastelerías, cervecerías y puestos de artesanía local ofrecerán sus mejores productos. 
 
-El poco público y la baja en las ventas, han afectado a un gremio que emplea a más de 5 mil personas en toda la V costa. No es menor, y, por lo mismo, un grupo de emprendedores dieron vida a esta cumbre para los amantes de la cocina que se llevará a cabo en  Sporting Club de Viña del Mar. Ojo que la entrada es liberada.
+El poco público y la baja en las ventas, han afectado a un gremio que emplea a más de 5 mil personas en toda la V costa. No es menor y, por lo mismo, un grupo de emprendedores dieron vida a esta cumbre para los amantes de la cocina que se llevará a cabo en  Sporting Club de Viña del Mar. Ojo que la entrada es liberada.
 
 ![](/images/uploads/dato-sobremesa-storysobremesa.jpeg)
 
