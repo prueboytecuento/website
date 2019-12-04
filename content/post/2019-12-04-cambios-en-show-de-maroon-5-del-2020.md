@@ -14,7 +14,7 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-Hace una semana, DG Medios, productora a cargo del show suspendió la preventa de entrada y ahora sabemos por qué: el concierto ya no se va a realizar en el Estadio Nacional.
+Hace una semana, DG Medios, productora a cargo del show suspendió la preventa de entradas y ahora sabemos por qué: el concierto ya no se va a realizar en el Estadio Nacional.
 
 <!--more-->
 
@@ -22,6 +22,6 @@ De acuerdo a un comunicado, en ese lugar está programado un evento deportivo en
 
 ¿Qué quiere decir esto? Que además de la locación cambian las localidades y valores de los tickets (ver foto).
 
-![](/images/uploads/panoramas-maroon5-foto2.jpg)
+![null](/images/uploads/panoramas-maroon5-foto2.jpg)
 
 Adam Levine y compañía se presentarán el 28 de febrero de 2020 y la preventa de las entradas parte mañana, jueves 5 de diciembre, a las 11am. #SOYprueboytecuento
