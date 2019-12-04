@@ -23,11 +23,11 @@ Hace más de un mes que nos movilizamos por un Chile más justo, hace más de un
 
 <!--more-->
 
-Junten hambre porque este 7 y 8 de diciembre se realizará “Sobremesa: la primera feria callejera autogestionada de la V Región”. Son más de 70 stands, en donde restaurantes, bares, heladerías, pastelerías, cervecerías y puestos de artesanía local ofrecerán sus mejores productos. 
+Junten hambre porque este 7 y 8 de diciembre se realizará “Sobremesa: la primera feria callejera autogestionada de la V Región”. Son más de 70 stands, en donde restaurantes, bares, heladerías, pastelerías, cervecerías y puestos de artesanía local ofrecerán sus mejores productos. (Ver video https://youtu.be/41tNDHG05-A)
 
 El poco público y la baja en las ventas, han afectado a un gremio que emplea a más de 5 mil personas en toda la V costa. No es menor y, por lo mismo, un grupo de emprendedores dieron vida a esta cumbre para los amantes de la cocina que se llevará a cabo en el Sporting Club de Viña del Mar. Ojo que la entrada es liberada.
 
-![](/images/uploads/dato-sobremesa-storysobremesa.jpeg)
+![null](/images/uploads/dato-sobremesa-storysobremesa.jpeg)
 
 Habrá música en vivo, charlas y actividades entretenidas, como una competencia de asadores, en la que 15 parrilleros se disputarán el cetro del mejor de la V Región.
 
