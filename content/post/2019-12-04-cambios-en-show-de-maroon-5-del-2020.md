@@ -1,5 +1,5 @@
 ---
-title: Cambios en show de Maroon 5 de SCL 2020
+title: Cambios en show de Maroon 5 en SCL 2020
 showonlyimage: true
 date: '2019-12-04T11:42:15-03:00'
 image: /images/uploads/panoramas-maroon-5-cambios-ppal.jpg
