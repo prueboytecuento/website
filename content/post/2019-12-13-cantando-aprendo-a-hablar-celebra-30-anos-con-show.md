@@ -13,7 +13,7 @@ tags:
   - Educativo
   - Entretenido
 categories:
-  - DATO
+  - PANORAMAS
 weight: '1'
 ---
 El aporte de este grupo creado por fonoaudiólogas es tremendo. Mi Rafaela aprendió harto viendo los capítulos y está súper entusiasmada con ir al espectáculo de este domingo 15 de diciembre.
