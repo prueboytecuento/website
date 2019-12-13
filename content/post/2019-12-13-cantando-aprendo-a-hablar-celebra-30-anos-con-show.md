@@ -13,7 +13,7 @@ tags:
   - Educativo
   - Entretenido
 categories:
-  - PANORAMAS
+  - DATO
 weight: '1'
 ---
 El aporte de este grupo creado por fonoaudiólogas es tremendo. Mi Rafaela aprendió harto viendo los capítulos y está súper entusiasmada con ir al espectáculo de este domingo 15 de diciembre.
@@ -24,6 +24,6 @@ Cantando Aprendo a Hablar cumplió 30 años y pondrán su cuota de educación en
 
 “Planetas”, “Rapidales”, “Abracadabra”, “Canta AEIOU”, “Todos somos diferentes”, “A comer verduras”, “Mi maleta”, “El lorito Nicanor” y “Soñando” son algunas de las pegajosas canciones que podremos corear con nuestros enanos.
 
-![](/images/uploads/panoramas-cantando-afiche.jpg)
+![null](/images/uploads/panoramas-cantando-afiche.jpg)
 
-El concierto infantil está programado para las 16 horas, las entradas van desde los $3.400 (no es malo, ¿verdad?) y están a la venta bajo el sistema Topticket.cl. #SOYprueboytecuento
+El concierto infantil está programado para las 16 horas, las entradas van desde los $4.000 (no es malo, ¿verdad?) y están a la venta bajo el sistema Topticket.cl. #SOYprueboytecuento
