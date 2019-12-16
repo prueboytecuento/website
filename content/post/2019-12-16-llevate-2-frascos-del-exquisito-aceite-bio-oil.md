@@ -30,8 +30,6 @@ Hace unos días les adelanté que se venía un sorteo junto a Bio Oil, pero ahor
 
 3 COMENTAR cuántas veces al día me apliqué Bio Oil antes de escribir el review. El review, obvio, fue publicado hace algunas semana acá en la web.
 
-4 ETIQUETAR a 3 amigas/os en tu respuesta.
+4 No olvides los HASHTAGS #prueboytecuentoREGALA #BellezaBioOil
 
-5 No olvides los HASHTAGS #prueboytecuentoREGALA #BellezaBioOil
-
-Resultado el próximo jueves 19 de diciembre a las 20 horas. Atentas/os. #SOYprueboytecuento
+Resultado, el próximo jueves 19 de diciembre a las 20 horas. Atentas/os. #SOYprueboytecuento
