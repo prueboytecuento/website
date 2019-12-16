@@ -22,8 +22,6 @@ weight: '1'
 
 Hace unos días les adelanté que se venía un sorteo junto a Bio Oil, pero ahora van todas las coordenadas para que sólo UNA/O de ustedes se lleve 2 frascos de 60ml de este exquisito aceite.
 
-
-
 ¿Cómo ganar?
 
 1 SEGUIR Pruebo y te cuento en cualquiera de sus RRSS: Instragram, Facebook y en Twitter como @PaulaHeMatu.
@@ -36,4 +34,4 @@ Hace unos días les adelanté que se venía un sorteo junto a Bio Oil, pero ahor
 
 5 No olvides los HASHTAGS #prueboytecuentoREGALA #BellezaBioOil
 
-Resultado, el próximo jueves 19 de diciembre a las 20 horas. Atentas/os. #SOYprueboytecuento
+Resultado el próximo jueves 19 de diciembre a las 20 horas. Atentas/os. #SOYprueboytecuento
