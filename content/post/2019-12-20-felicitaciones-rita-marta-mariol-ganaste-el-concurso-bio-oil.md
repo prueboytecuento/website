@@ -22,7 +22,7 @@ Te acabas de ganar 2 frascos de Bio Oil de 60ml cada uno 👏🏼👏🏼👏�
 
 <!--more-->
 
-Y, por lo mismo, de las pocas que entró al sorteo. Gente, más atentas/os a las instrucciones de los concursos para que no pierdan la oportunidad de entrar a la ruleta Pruebo y te cuento. Anda al video del sorteo en el canal de Youtube Pruebo y te cuento o pincha el link 
+Y, por lo mismo, de las pocas que entró al sorteo. Gente, más atentas/os a las instrucciones de los concursos para que no pierdan la oportunidad de entrar a la ruleta Pruebo y te cuento. Anda al video del sorteo en el canal de Youtube Pruebo y te cuento o pincha el link https://youtu.be/hLdVUzG7tB0.
 
 Rita Marta Mariol, te contactaré internamente para que coordinemos el retiro de tus regalitos.
 
