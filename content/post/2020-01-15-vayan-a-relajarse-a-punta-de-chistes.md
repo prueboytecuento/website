@@ -2,7 +2,7 @@
 title: Vayan a relajarse a punta de chistes
 showonlyimage: true
 date: '2020-01-15T13:19:25-03:00'
-image: /images/uploads/panoramas-profesor-rossa.png
+image: /images/uploads/panoramas-proferossa.jpg
 rating: '1'
 tags:
   - Humor
@@ -31,9 +31,9 @@ A la misma hora, pero del 31 de enero el temuquense Edo Caroe llegará a esa pla
 
 Es una perspectiva personal que invita a reír sin perder la capacidad crítica y a deslizarse en los nuevos conceptos de felicidad que nos hacen infelices.
 
+![](/images/uploads/panoramas-ruminot-mandel2.jpg)
+
 Mientras que Alison Mandel y Pedro Ruminot estarán el 21 de febrero con “Compañeros”. Ojo que esta es una de las últimas presentaciones que realizarán antes de que nazca el hijo de ambos y aprovecharán lo que están viviendo para contar anécdotas de su vida juntos. 
-
-
 
 Cómo es el día a día con hijos y, en general, diferentes situaciones que estarán marcadas por sello de ambos. Prometen un show familiar y, al igual que Caroe, también será en formato stand-up. También parte a las 21.30 horas.
 
