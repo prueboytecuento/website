@@ -25,8 +25,6 @@ Dato para los gordos y gordas lechonas como yo. En el Lider (supermercado) está
 
 Son 7 mini barritas de Trencito y Sahne-Nuss por $1.000... Esto es el paraíso.
 
-![](/images/uploads/dato-bolsachocolates2.jpg)
-
 Los encontré en una góndola en Lider de Suecia esquina Irarrázabal (Ñuñoa), pero presumo que la oferta está en todas las tiendas de la cadena.
 
 También hay bolsas de 4 Prestigio grandes al mismo precio.
