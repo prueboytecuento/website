@@ -7,11 +7,11 @@ rating: '1'
 tags:
   - Fork
   - Comida preparada
-  - Para llevar
+  - Para para llevar
   - Sin aditivos
   - Panadería
   - Charcutería
-  - Queseria
+  - Quesería
   - Gourmet
   - Bajo costo
   - Chile
