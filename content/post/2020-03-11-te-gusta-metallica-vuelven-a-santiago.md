@@ -1,7 +1,7 @@
 ---
 title: ¿Te gusta Metallica? Vuelven a Santiago
 showonlyimage: true
-date: '2020-03-11T11:44:03-03:00'
+date: '2019-08-13T11:44:03-04:00'
 image: /images/uploads/panoramas-metallica-vuelve-a-chile.jpg
 rating: '1'
 tags:
