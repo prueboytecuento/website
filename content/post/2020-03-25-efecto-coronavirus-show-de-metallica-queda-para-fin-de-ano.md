@@ -28,13 +28,11 @@ Metallica se presentaba este 15 de abril en el Estadio Nacional, pero dado que e
 
 Sensato sobre todo considerando la experiencia en el show de The Offspring en el Movitar Arena: la semana pasada se reportó 1 positivo con COVID-19 y esa cifra podría aumentar.
 
-
-
-Sobre la fecha que anunció la productora DG Medios, habló Lars Ulrich (ve el video en mi canal de Youtube XXX): "Hola a todos, soy Lars desde San Francisco en estos tiempos locos. ¿¡Quién sabe lo que está al derecho o al revés estos días!? Pero lo que sí sabemos es que Metallica volverá a Santiago. Tenemos nueva fecha: 7 de diciembre de 2020”. 
+Sobre la fecha que anunció la productora DG Medios, habló Lars Ulrich (el video en mi canal de Youtube https://youtu.be/KWApPpMilW4): "Hola a todos, soy Lars desde San Francisco en estos tiempos locos. ¿¡Quién sabe lo que está al derecho o al revés estos días!? Pero lo que sí sabemos es que Metallica volverá a Santiago. Tenemos nueva fecha: 7 de diciembre de 2020”. 
 
 El baterista de la banda cerró con un “yo, Kirk, Rob y James estamos conectándonos contigo y tus mejores amigos una vez más. Siete de diciembre es la nueva fecha. Esperamos verte muy pronto".
 
-![](/images/uploads/panoramas-metallica-cambiofecha.png)
+![null](/images/uploads/panoramas-metallica-cambiofecha.png)
 
 Pero ojo que mientras esperamos el show del World Wired Tour, podemos ver y escuchar a la banda en “Los lunes de Metallica” o #MetallicaMondays. Todas las semanas están pasando por streaming (en Facebook y Youtube de la banda) conciertos de antiguas giras. 
 
