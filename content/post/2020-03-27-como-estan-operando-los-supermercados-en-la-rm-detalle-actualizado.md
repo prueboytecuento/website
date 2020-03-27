@@ -40,7 +40,9 @@ Ojo que las indicaciones son las mismas para las 7 comunas en Cuarentena Total: 
 
 A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras.
 
-**JUMBO y SANTA ISABEL** 
+> **JUMBO y SANTA ISABEL**
+>
+>  
 
 \-Atienden entre 8 y 18 horas.
 
@@ -52,7 +54,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Se habilitaron dispensadores de alcohol gel en el ingreso de todos los locales.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Sobre medidas de higiene, todos los días se toma la temperatura de los trabajadores, han hecho incapié en el lavado de manos y uso de alcohol gel.
 
@@ -62,8 +64,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Si logras comprar en jumbo.cl o en la APP de Jumbo, el repartidor debe entregarte tus productos a 2 metros de distancia usando guantes de látex y aplicarse alcohol gel antes y después de entregarte los productos.
 
-**TOTTUS
-**
+> **TOTTUS**
 
 \-Atienden entre 8 y 18 horas.
 
@@ -83,7 +84,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Preferir productos envasados en autoservicio, en vez de venta asistida para compras más rápidas.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Reforzaron medidas de higiene, sanitización y desinfección de equipos en cajas, puntos de autoatención y zonas de mayor tráfico.
 
@@ -91,10 +92,10 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 ![null](/images/uploads/utilidad-pu-blica-superlider.jpg)
 
-**LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB
-**
+> **LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB**
 
-\-Atienden entre 9 y 18 horas.
+\
+-Atienden entre 9 y 18 horas.
 
 \-Desde hoy (viernes 27 de marzo) se está implementando atención y pago en caja preferencial para mayores de 60 años, embarazadas, personas en situación de discapacidad y enfermos crónicos.
 
@@ -112,7 +113,9 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 ![null](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
 
-** UNIMARC**
+> ** UNIMARC**
+>
+>
 
 \-Atienden entre 9 y 19 horas.
 
@@ -130,7 +133,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Reforzaron los procesos de la limpieza, aumentado la frecuencia en los procesos de aseo y desinfección de las superficies. 
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Difusión de campañas de autocuidado para asegurar la ejecución de las prácticas de prevención. 
 
