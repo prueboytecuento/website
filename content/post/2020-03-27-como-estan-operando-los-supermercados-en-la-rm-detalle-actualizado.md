@@ -40,9 +40,9 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 **JUMBO y SANTA ISABEL** 
 
-\-Atienden entre 8am y 18 horas.
+\-Atienden entre 8 y 18 horas.
 
-\-De 8am a 10am la atención es exclusiva para mayores de 60 años, embarazadas y personas con movilidad reducida.
+\-De 8 a 10 horas la atención es exclusiva para mayores de 60 años, embarazadas y personas con movilidad reducida.
 
 \-Sólo se pueden comprar 5 artículos de 1era necesidad para garantizar el abantecimiento de todos los clientes.
 
@@ -50,7 +50,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Se habilitaron dispensadores de alcohol gel en el ingreso de todos los locales.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Sobre medidas de higiene, todos los días se toma la temperatura de los trabajadores, han hecho incapié en el lavado de manos y uso de alcohol gel.
 
@@ -62,7 +62,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 **TOTTUS**
 
-\-Atienden entre 8m y 18 horas.
+\-Atienden entre 8 y 18 horas.
 
 \-Acceso controlado de clientes de acuerdo al tamaño de la sala y afluencia de público.
 
@@ -80,7 +80,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Preferir productos envasados en autoservicio, en vez de venta asistida para compras más rápidas.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Reforzaron medidas de higiene, sanitización y desinfección de equipos en cajas, puntos de autoatención y zonas de mayor tráfico.
 
@@ -89,7 +89,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 ![null](/images/uploads/utilidad-pu-blica-superlider.jpg)
 
 **LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB
-**-Atienden entre 9am y 18 horas.
+**-Atienden entre 9 y 18 horas.
 
 \-Desde hoy (viernes 27 de marzo) se está implementando atención y pago en caja preferencial para mayores de 60 años, embarazadas, personas en situación de discapacidad y enfermos crónicos.
 
@@ -107,13 +107,11 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 ![null](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
 
-
-
 **UNIMARC**
 
-\-Atienden entre 9am y 19 horas.
+\-Atienden entre 9 y 19 horas.
 
-\-De 9am a 10 am se garantiza la atención de adultos sobre 65 años y personas con movilidad reducida. NO incluye mujeres embarazadas.
+\-De 9 a 10 horas se garantiza la atención de adultos sobre 65 años y personas con movilidad reducida. NO incluye mujeres embarazadas.
 
 \-Aumentaron la frecuencia de reposición de mercadería. 
 
@@ -127,7 +125,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Reforzaron los procesos de la limpieza, aumentado la frecuencia en los procesos de aseo y desinfección de las superficies. 
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Difusión de campañas de autocuidado para asegurar la ejecución de las prácticas de prevención. 
 
