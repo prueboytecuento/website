@@ -24,11 +24,13 @@ tags:
   - 3era Edad
   - Embarazadas
   - Enfermos Crónicos
+  - Soyprueboytecuento
+  - Juntos Nos Cuidamos
 categories:
   - UTILIDAD PÚBLICA
 weight: '1'
 ---
-El Coronavirus nos tiene la vida de cabeza. Entre recomendación, cambio de planes del Gobierno, medidas preventivas, prohibiciones, salvo conducto y más, es fácil confundirse.
+El Coronavirus nos tiene la vida de cabeza. Entre recomendación, cambio de planes del gobierno, medidas preventivas, prohibiciones, salvo conducto y más, es fácil confundirse.
 
 <!--more-->
 
@@ -36,13 +38,13 @@ Por lo mismo, les dejo un ayuda memoria actualizado con el detalle de cómo est�
 
 Ojo que las indicaciones son las mismas para las 7 comunas en Cuarentena Total: Independencia, Santiago, Ñuñoa, Providencia, Las Condes, Lo Barnechea y Vitacura. 
 
-A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras. #Soyprueboytecuento #JuntosNosCuidamos
+A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras.
 
 **JUMBO y SANTA ISABEL** 
 
-\-Atienden entre 8 y 18 horas.
+\-Atienden entre 8am y 18 horas.
 
-\-De 8 a 10 horas la atención es exclusiva para mayores de 60 años, embarazadas y personas con movilidad reducida.
+\-De 8am a 10am la atención es exclusiva para mayores de 60 años, embarazadas y personas con movilidad reducida.
 
 \-Sólo se pueden comprar 5 artículos de 1era necesidad para garantizar el abantecimiento de todos los clientes.
 
@@ -60,9 +62,10 @@ _**Personal en tienda**_
 
 \-Si logras comprar en jumbo.cl o en la APP de Jumbo, el repartidor debe entregarte tus productos a 2 metros de distancia usando guantes de látex y aplicarse alcohol gel antes y después de entregarte los productos.
 
-**TOTTUS**
+**TOTTUS
+**
 
-\-Atienden entre 8 y 18 horas.
+\-Atienden entre 8m y 18 horas.
 
 \-Acceso controlado de clientes de acuerdo al tamaño de la sala y afluencia de público.
 
@@ -89,7 +92,9 @@ _**Personal en tienda**_
 ![null](/images/uploads/utilidad-pu-blica-superlider.jpg)
 
 **LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB
-**-Atienden entre 9 y 18 horas.
+**
+
+\-Atienden entre 9am y 18 horas.
 
 \-Desde hoy (viernes 27 de marzo) se está implementando atención y pago en caja preferencial para mayores de 60 años, embarazadas, personas en situación de discapacidad y enfermos crónicos.
 
@@ -107,11 +112,11 @@ _**Personal en tienda**_
 
 ![null](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
 
-**UNIMARC**
+** UNIMARC**
 
-\-Atienden entre 9 y 19 horas.
+\-Atienden entre 9am y 19 horas.
 
-\-De 9 a 10 horas se garantiza la atención de adultos sobre 65 años y personas con movilidad reducida. NO incluye mujeres embarazadas.
+\-De 9am a 10 am se garantiza la atención de adultos sobre 65 años y personas con movilidad reducida. NO incluye mujeres embarazadas.
 
 \-Aumentaron la frecuencia de reposición de mercadería. 
 
