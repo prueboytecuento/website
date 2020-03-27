@@ -40,9 +40,7 @@ Ojo que las indicaciones son las mismas para las 7 comunas en Cuarentena Total: 
 
 A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras.
 
-> **JUMBO y SANTA ISABEL **
-
-
+> **JUMBO y SANTA ISABEL**
 
 \-Atienden entre 8 y 18 horas.
 
@@ -64,7 +62,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Si logras comprar en jumbo.cl o en la APP de Jumbo, el repartidor debe entregarte tus productos a 2 metros de distancia usando guantes de látex y aplicarse alcohol gel antes y después de entregarte los productos.
 
-> **TOTTUS**
+> **TOTTUS**
 
 \-Atienden entre 8 y 18 horas.
 
@@ -84,15 +82,15 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Preferir productos envasados en autoservicio, en vez de venta asistida para compras más rápidas.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Reforzaron medidas de higiene, sanitización y desinfección de equipos en cajas, puntos de autoatención y zonas de mayor tráfico.
 
 \-Están Incentivando el lavado de manos y uso de alcohol gel de sus colaboradores de Click and Collect, centros de pago y servicio de despacho.
 
-![null](/images/uploads/utilidad-pu-blica-superlider.jpg)
-
 > **LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB**
+>
+> 
 
 \-Atienden entre 9 y 18 horas.
 
@@ -110,11 +108,9 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Mentenerse a dos carros de distancia con el resto de los clientes.
 
-![null](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
-
-> ** UNIMARC**
-
-
+> **UNIMARC**
+>
+> 
 
 \-Atienden entre 9 y 19 horas.
 
@@ -132,7 +128,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Reforzaron los procesos de la limpieza, aumentado la frecuencia en los procesos de aseo y desinfección de las superficies. 
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Difusión de campañas de autocuidado para asegurar la ejecución de las prácticas de prevención. 
 
