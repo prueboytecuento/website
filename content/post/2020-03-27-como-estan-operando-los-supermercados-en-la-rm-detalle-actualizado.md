@@ -30,31 +30,25 @@ weight: '1'
 ---
 El Coronavirus nos tiene la vida de cabeza. Entre recomendación, cambio de planes del Gobierno, medidas preventivas, prohibiciones, salvo conducto y más, es fácil confundirse.
 
-<!--more-->
+<!--more-->
 
 Por lo mismo, les dejo un ayuda memoria actualizado con el detalle de cómo están operando los supermercados en la Región Metropolitana. 
 
-
-
 Ojo que las indicaciones son las mismas para las 7 comunas en Cuarentena Total: Independencia, Santiago, Ñuñoa, Providencia, Las Condes, Lo Barnechea y Vitacura. 
-
-
 
 A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras. #Soyprueboytecuento #JuntosNosCuidamos
 
-
-
 **JUMBO y SANTA ISABEL** 
 
-\-Atienden entre 8am y 18 horas.
+\-Atienden entre 8 y 18 horas.
 
-\-De 8am a 10am la atención es exclusiva para mayores de 60 años, embarazadas y personas con movilidad reducida.
+\-De 8 a 10 horas la atención es exclusiva para mayores de 60 años, embarazadas y personas con movilidad reducida.
 
 \-Sólo se pueden comprar 5 artículos de 1era necesidad para garantizar el abantecimiento de todos los clientes.
 
 \-Ahora SIN despacho disponible por demanda. Se pueden hacer pedidos para ser recibidos más adelante (preguntar vía teléfono).
 
-\-Se habilitaron dispensadores de alcohol gel en el ingreso de todos los locales.
+\-Se habilitaron dispensadores de alcohol gel en el ingreso de todos los locales.
 
 _**Personal en tienda**_
 
@@ -66,11 +60,9 @@ _**Personal en tienda**_
 
 \-Si logras comprar en jumbo.cl o en la APP de Jumbo, el repartidor debe entregarte tus productos a 2 metros de distancia usando guantes de látex y aplicarse alcohol gel antes y después de entregarte los productos.
 
+**TOTTUS**
 
-
-**TOTTUS**
-
-\-Atienden entre 8m y 18 horas.
+\-Atienden entre 8 y 18 horas.
 
 \-Acceso controlado de clientes de acuerdo al tamaño de la sala y afluencia de público.
 
@@ -94,21 +86,14 @@ _**Personal en tienda**_
 
 \-Están Incentivando el lavado de manos y uso de alcohol gel de sus colaboradores de Click and Collect, centros de pago y servicio de despacho.
 
+![null](/images/uploads/utilidad-pu-blica-superlider.jpg)
 
-
-![](/images/uploads/utilidad-pu-blica-superlider.jpg)
-
-**LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB**
-
-\-Atienden entre 9am y 18 horas.
+**LIDER, EXPRESS LIDER, ACUENTA, CENTRAL MAYORISTA, MI CLUB
+**-Atienden entre 9 y 18 horas.
 
 \-Desde hoy (viernes 27 de marzo) se está implementando atención y pago en caja preferencial para mayores de 60 años, embarazadas, personas en situación de discapacidad y enfermos crónicos.
 
-
-
 \-Tienen un protocolo de control para dosificar el acceso de personas -cuando sea necesario- en todas sus tiendas en función de su tamaño.
-
-
 
 \-Incorporaron nuevas medidas de aseo en zonas de pago y atención a clientes, además de puntos limpios para la higienización de carros y otros.
 
@@ -116,23 +101,17 @@ _**Personal en tienda**_
 
 \-Asistir al supermercado solo y cuando sea estrictamente necesario.
 
-
-
 \-Realizar una “compra responsable” de productos altamente demandados.
-
-
 
 \-Mentenerse a dos carros de distancia con el resto de los clientes.
 
+![null](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
 
+**UNIMARC**
 
-![](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
+\-Atienden entre 9 y 19 horas.
 
-** UNIMARC**
-
-\-Atienden entre 9am y 19 horas.
-
-\-De 9am a 10 am se garantiza la atención de adultos sobre 65 años y personas con movilidad reducida. NO incluye mujeres embarazadas.
+\-De 9 a 10 horas se garantiza la atención de adultos sobre 65 años y personas con movilidad reducida. NO incluye mujeres embarazadas.
 
 \-Aumentaron la frecuencia de reposición de mercadería. 
 
