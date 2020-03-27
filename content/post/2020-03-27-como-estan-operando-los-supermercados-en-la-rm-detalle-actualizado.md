@@ -24,11 +24,13 @@ tags:
   - 3era Edad
   - Embarazadas
   - Enfermos Crónicos
+  - Soyprueboytecuento
+  - Juntos Nos Cuidamos
 categories:
   - UTILIDAD PÚBLICA
 weight: '1'
 ---
-El Coronavirus nos tiene la vida de cabeza. Entre recomendación, cambio de planes del Gobierno, medidas preventivas, prohibiciones, salvo conducto y más, es fácil confundirse.
+El Coronavirus nos tiene la vida de cabeza. Entre recomendación, cambio de planes del gobierno, medidas preventivas, prohibiciones, salvo conducto y más, es fácil confundirse.
 
 <!--more-->
 
@@ -36,7 +38,7 @@ Por lo mismo, les dejo un ayuda memoria actualizado con el detalle de cómo est�
 
 Ojo que las indicaciones son las mismas para las 7 comunas en Cuarentena Total: Independencia, Santiago, Ñuñoa, Providencia, Las Condes, Lo Barnechea y Vitacura. 
 
-A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras. #Soyprueboytecuento #JuntosNosCuidamos
+A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con el permiso de libre tránsito (www.comisariavirtual.cl): dura 4 horas. Si no cuentan con él no podrán entrar a hacer sus compras.
 
 **JUMBO y SANTA ISABEL** 
 
@@ -50,7 +52,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Se habilitaron dispensadores de alcohol gel en el ingreso de todos los locales.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Sobre medidas de higiene, todos los días se toma la temperatura de los trabajadores, han hecho incapié en el lavado de manos y uso de alcohol gel.
 
@@ -81,7 +83,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Preferir productos envasados en autoservicio, en vez de venta asistida para compras más rápidas.
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Reforzaron medidas de higiene, sanitización y desinfección de equipos en cajas, puntos de autoatención y zonas de mayor tráfico.
 
@@ -128,7 +130,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Reforzaron los procesos de la limpieza, aumentado la frecuencia en los procesos de aseo y desinfección de las superficies. 
 
-**_Personal en tienda_**
+_**Personal en tienda**_
 
 \-Difusión de campañas de autocuidado para asegurar la ejecución de las prácticas de prevención. 
 
