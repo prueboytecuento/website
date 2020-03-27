@@ -52,7 +52,7 @@ A los que vayan al supermercado (en las 7 comunas mencionadas), deben contar con
 
 \-Se habilitaron dispensadores de alcohol gel en el ingreso de todos los locales.
 
-_**Personal en tienda**_
+**_Personal en tienda_**
 
 \-Sobre medidas de higiene, todos los días se toma la temperatura de los trabajadores, han hecho incapié en el lavado de manos y uso de alcohol gel.
 
@@ -83,7 +83,7 @@ _**Personal en tienda**_
 
 \-Preferir productos envasados en autoservicio, en vez de venta asistida para compras más rápidas.
 
-_**Personal en tienda**_
+**_Personal en tienda_**
 
 \-Reforzaron medidas de higiene, sanitización y desinfección de equipos en cajas, puntos de autoatención y zonas de mayor tráfico.
 
@@ -110,8 +110,6 @@ _**Personal en tienda**_
 
 \-Mentenerse a dos carros de distancia con el resto de los clientes.
 
-![null](/images/uploads/utilidad-pu-blica-superunicarc.jpg)
-
 > ** UNIMARC**
 
 \-Atienden entre 9 y 19 horas.
@@ -130,7 +128,7 @@ _**Personal en tienda**_
 
 \-Reforzaron los procesos de la limpieza, aumentado la frecuencia en los procesos de aseo y desinfección de las superficies. 
 
-_**Personal en tienda**_
+**_Personal en tienda_**
 
 \-Difusión de campañas de autocuidado para asegurar la ejecución de las prácticas de prevención. 
 
