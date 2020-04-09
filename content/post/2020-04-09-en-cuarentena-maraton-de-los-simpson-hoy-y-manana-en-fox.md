@@ -23,8 +23,8 @@ Como todos los findes de Semana Santa, la TV chilena se llena de películas y pr
 
 Buena alternativa, por cierto, para los fanáticos de Los Simpson… Esos que se pueden repetir las mismas historias muchas veces. 
 
-Desde las 7am de hoy que FOX está transmitiendo una contundente e ininterrumpida maratón de capítulos de esta serie de 31 temporadas.
-
 ![](/images/uploads/dato-fox-lossimpson2.jpg)
+
+Desde las 7am de hoy que FOX está transmitiendo una contundente e ininterrumpida maratón de capítulos de esta serie de 31 temporadas.
 
 Son 48 horas porque la matarón comprende jueves y viernes Santo. O sea, Homero, Marge, Lisa, Bart y Maggie se tomaron la pantalla y la entrega será un cóctel de capitulos de todas la temporadas. Que lo disfruten. #SOYprueboytecuento
