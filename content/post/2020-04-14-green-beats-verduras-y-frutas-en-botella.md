@@ -44,13 +44,13 @@ Los frascos individuales de Green Beats son de 330ml, aunque también tienen de 
 
 ![null](/images/uploads/review-greenb-2.jpg)
 
-> CELERY BOOST es dulce. El jugo más dulce de todos los que probé. Y aunque son naturales, su sabor me recuerda mucho al de la miel. Así de almibarado. Ojo ahí los amigos de lo sweet.
+> **CELERY BOOST** es dulce. El jugo más dulce de todos los que probé. Y aunque son naturales, su sabor me recuerda mucho al de la miel. Así de almibarado. Ojo ahí los amigos de lo sweet.
 
 Es un jugo que mezcla apio, espinaca, limón, jengibre y manzana verde. El apio y espinaca marcan el sabor de este mix. Agradable y suave. 
 
 ![null](/images/uploads/review-greenb-3.jpg)
 
-> ORANGE POP tiene jugo de piña, manzana verde, naranja, zanahoria y jengibre, pero el sabor predominante es el de la naranja. Lo mismo en cuanto a aroma. 
+> **ORANGE POP** tiene jugo de piña, manzana verde, naranja, zanahoria y jengibre, pero el sabor predominante es el de la naranja. Lo mismo en cuanto a aroma. 
 
 Cuando chica, mi mamá me hacía todas las mañanas jugo de zanahoria-naranja o zanahoria-naranja-betarraga. Siempre me han gustado mucho. Pensé que me iba a encontrar con un sabor parecido al naranja-zanahoria, pero no. 
 
@@ -58,21 +58,21 @@ Es como beber una vitamina de naranja. Yo diría que este jugo puede ser una bue
 
 ![null](/images/uploads/review-greenb-4.jpg)
 
-> MELLOW SWIFT es lejos el que más me gustó. De hecho a mi Rafaela (6) le encantó. Pocas veces pruebo los prodcutos sola. Tengo a dos seres a mi lado (Marido e hija) que siempre miran con cara de “yo también quiero”, jajajá. 
+> **MELLOW SWIFT** es lejos el que más me gustó. De hecho a mi Rafaela (6) le encantó. Pocas veces pruebo los prodcutos sola. Tengo a dos seres a mi lado (Marido e hija) que siempre miran con cara de “yo también quiero”, jajajá. 
 
 Es muy refrescante, de dulzor intermedio y con un potente sabor y aroma a piña con pepino, que son 2 de los ingredientes. El otro es manzana verde. Si les gustan los jugos refrescante, de sabor y textura más ligera, váyanse a la segura con este.
 
 ![null](/images/uploads/review-greenb-5.jpg)
 
-> HIPSTER BEET mezcla piña, betarraga, manzana verde, limón y jengibre. A pesar de tener betarraga no es tan dulce. Sí van a encontrar el sabor de este tubérculo muy marcado con algo de la acidez del limón y un pequeño gusto a jengibre. No se me hizo muy atractivo la verdad.
+> **HIPSTER BEET** mezcla piña, betarraga, manzana verde, limón y jengibre. A pesar de tener betarraga no es tan dulce. Sí van a encontrar el sabor de este tubérculo muy marcado con algo de la acidez del limón y un pequeño gusto a jengibre. No se me hizo muy atractivo la verdad.
 
 ![null](/images/uploads/review-greenb-6.jpg)
 
-> GREEN HOPER es el único jugo que tiene pera y su sabor se siente muchísimo junto al de la piña y menta. El gusto de la espinaca queda en segundo plano. Se percibe, pero poco. Nuevamente la manzana no destaca por sobre sus compañeros de botella. Es rico.
+> **GREEN HOPER** es el único jugo que tiene pera y su sabor se siente muchísimo junto al de la piña y menta. El gusto de la espinaca queda en segundo plano. Se percibe, pero poco. Nuevamente la manzana no destaca por sobre sus compañeros de botella. Es rico.
 
 ![null](/images/uploads/review-greenb-7.jpg)
 
-> MINT PUNCH una mixtura que se me hacía realmente atractiva. Al leer en la etiqueta piña, albahaca y menta, me imaginé un jugo refrescante y dulce, pero es muy distinto. Lo encontré un tantp desabrido y al darle un sorbo deja un gusto amargo en la boca. 
+> **MINT PUNCH** una mixtura que se me hacía realmente atractiva. Al leer en la etiqueta piña, albahaca y menta, me imaginé un jugo refrescante y dulce, pero es muy distinto. Lo encontré un tantp desabrido y al darle un sorbo deja un gusto amargo en la boca. 
 
 Tengo la sensación que es la mezcla de menta y albahaca, porque el jugo piña-albahaca y el piña-menta es exquisito. Estas hojas definitivamente no pegan ni juntan. Ojo ahí amigos de Green Beats.
 
