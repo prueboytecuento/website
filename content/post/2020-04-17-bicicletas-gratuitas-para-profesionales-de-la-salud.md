@@ -31,7 +31,7 @@ El beneficio consta de viajes en bicicleta ilimitados de 1 hora por 30 días. De
 
 "La bicicleta ha demostrado ser un gran aliado de los profesionales que no tienen la opción de quedarse en casa, ya que es un medio de transporte saludable y ahora, más adecuado para combatir la propagación del COVID-19", comentó Tomás Martins, CEO de Tembici.
 
-El plan de acción contempla más de 30 estaciones cercanas a distintos centros de salud tanto en el sector poniente como en el oriente de la capital. De estas, 4 son nuevas: Hospital del Tórax, Quebec (cercano al Hospital Salvador), Román Díaz (cercano al Instituto de Neurocirugía) y Punta Arenas (cercano a Clínica Santa María).  
+El plan de acción contempla más de 30 estaciones cercanas a distintos centros de salud del sector poniente y oriente de la capital. De estas, 4 son nuevas: Hospital del Tórax, Quebec (cercano al Hospital Salvador), Román Díaz (cercano al Instituto de Neurocirugía) y Punta Arenas (cercano a Clínica Santa María).  
 
 Ojo que desde marzo Bike Santiago sanitiza diariamente todas sus bicicletas con alcohol al 70%. Andamos todos sugestionados con la posibilidad de contagiarnos y este tipo de medidas se agradecen.
 
