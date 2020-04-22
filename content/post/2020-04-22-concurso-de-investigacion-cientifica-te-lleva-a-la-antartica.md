@@ -2,7 +2,7 @@
 title: Concurso de investigación científica te lleva a la Antártica
 showonlyimage: true
 date: '2020-04-22T15:08:31-04:00'
-image: /images/uploads/dato-anta-rtica-ppal.jpg
+image: /images/uploads/dato-anta-rtica-ppl-3.jpg
 rating: '1'
 tags:
   - Científicos
