@@ -63,6 +63,6 @@ El premio de la FAE consiste en integrar una expedición al Continente Blanco y 
 
 Se seleccionarán 30 trabajos, de ahí se escogerán los 5 equipos que integrarán la Expedición Antártica Escolar a realizarse en la isla Rey Jorge, Territorio Chileno Antártico, el mes de diciembre de este año.
 
-**Descarga aquí las bases del concurso: **http://www.inach.cl/fae/wp-content/uploads/2020/04/BASES-FAE-2020-210420.pdf
+**Descarga aquí las bases del concurso:** http://www.inach.cl/fae/wp-content/uploads/2020/04/BASES-FAE-2020-210420.pdf
 
 Suerte a los postulantes. #SOYprueboytecuento
