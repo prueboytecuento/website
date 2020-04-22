@@ -29,15 +29,21 @@ Se trata de la Feria Antártica Escolar (FAE), que se realiza desde hace 17 año
 
 Pueden participar estudiantes de enseñanza media: de 1ero a 3er año humanístico-científicos y de 1ero a 4to año técnico-profesionales, TODOS los establecimientos educacionales del país. 
 
+![](/images/uploads/dato-anta-rtica-2.jpg)
+
 Dada la contengencia, el INACH construyó una Estación Antártica Virtual que servirá como punto de reunión, seguro y cómodo, para que los y las estudiantes puedan desarrollar un trabajo de investigación sobre el Continente Blanco.
 
 Según Paulina Rojas Paredes, directora de la feria, “utilizando herramientas digitales realizaremos sesiones masivas para abordar contenidos generales sobre la Antártica y el abecedario de la investigación científica, contando con investigadores antárticos de diferentes disciplinas”.
 
 A ello agrega que, “realizaremos sesiones por equipo o grupos de equipos acotados temáticamente, para resolver dudas puntuales y proveerles del material de consulta adecuado. Nos desafiamos como equipo para adaptarnos y brindar un acompañamiento que por virtual (que sea) no pierda lo dinámico”.
 
+![](/images/uploads/dato-anta-rtica-afiche.jpg)
+
 Ojo que los primeros 300 equipos inscritos recibirán un ejemplar impreso de la “Enciclopedia visual de la Antártica” editada por INACH.
 
 El premio de la FAE consiste en integrar una expedición al Continente Blanco y vivir la experiencia única de investigar en terreno junto a los científicos del Programa Nacional de Ciencia Antártica.
+
+
 
 **¿Cómo participar?**
 
@@ -52,6 +58,8 @@ El premio de la FAE consiste en integrar una expedición al Continente Blanco y 
 \-XVII Feria Antártica Escolar (virtual): Desde el 5 al 8 de noviembre.
 
 \-XVII Expedición Antártica Escolar: En Diciembre de 2020.
+
+![](/images/uploads/dato-anta-rtica-3.jpg)
 
 Se seleccionarán 30 trabajos, de ahí se escogerán los 5 equipos que integrarán la Expedición Antártica Escolar a realizarse en la isla Rey Jorge, Territorio Chileno Antártico, el mes de diciembre de este año.
 
