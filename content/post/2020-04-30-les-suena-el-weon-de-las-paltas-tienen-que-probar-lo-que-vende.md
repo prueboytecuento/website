@@ -20,7 +20,7 @@ tags:
   - Batido
   - Con Pan
   - Emprendedor
-  - Soy Pruebo y te cuento
+  - Soy Pruebo y te Cuento
 categories:
   - COMER Y BEBER
 weight: '1'
