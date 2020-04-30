@@ -35,7 +35,7 @@ Pero después de la insistencia de Marido (@kleberos), que sigue la cuenta de El
 
 ¿Saben qué? Nos hemos hecho chupete las paltas de don Weón, también conocido como Camilo Briceño. Son firmes, muy cremosas y sabrosas. Con ese aceite natural que las hace suaves y no dejan un amargor final.
 
-![null](/images/uploads/review-paltas-camilo2.jpg)
+![](/images/uploads/review-paltas-camilo2.jpg)
 
 Ninguna de las paltas que llegaron venían con imperfecciones en su piel ni partes blandas o duras. Totalmente uniformes. Eso sí, en distintas etapas de maduración que era un punto que me preocupaba considerando la cantidad.
 
