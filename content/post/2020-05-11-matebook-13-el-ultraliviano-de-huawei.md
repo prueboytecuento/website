@@ -30,9 +30,9 @@ En mi caso, que no sean más pesados que mi cartera, que su autonomía sin carga
 
 Los muchachos de Huawei definen este nuevo producto como un partner ideal para profesionales jóvenes… ¿Cuál será el rango etario que este gigante chino define como joven? Porque yo que estoy más cercana a los 45 y entro dentro de lo que algunos definen como “adulto fome”, encuentro que el MateBook 13 sería una estupenda herramienta de trabajo. 
 
-De hecho, me parece que éste es un equipo que perfectamente puede ser usado por un público cercano al medio siglo con afinidad con el mundo tech. Ojo al encasillar los productos porque eso puede detener a un potencial comprador a realizar “X” compra. Anda al video en mi canal de Youtube  https://youtu.be/L-xXv6MgJFM
+De hecho, me parece que este es un equipo que perfectamente puede ser usado por un público cercano al medio siglo con afinidad con el mundo tech. Ojo al encasillar los productos porque eso puede detener a un potencial comprador a realizar “X” compra. Anda al video en mi canal de Youtube  https://youtu.be/L-xXv6MgJFM
 
-![](/images/uploads/tech-huawei-matebook13-2.jpg)
+![null](/images/uploads/tech-huawei-matebook13-2.jpg)
 
 > CARACTERÍSTICAS Huawei MateBook 13
 
@@ -56,4 +56,4 @@ De hecho, me parece que éste es un equipo que perfectamente puede ser usado por
 
 \-Cargador portátil tipo C de 65W que se puede usar con una variedad de salidas de carga. Además de utilizar el adaptador de corriente para cargar el laptop, es compatible con Huawei SuperCharge para ciertos teléfonos. 
 
-El equipo está a la venta en tiendas de Huawei, Paris, Linio, PC Factory, Falabella y Ripley. Y, como les decía en el primer párrafo, los primeros en comprarlo se llevan el pack promocional que incluye la tablet Huawei T5 10” y Office 365. ¿Precio por todo? $899.990. Más info en #SOYprueboytecuento
+El equipo está a la venta en tiendas de Huawei, Paris, Linio, PC Factory, Falabella y Ripley. Y, como les decía en el primer párrafo, los primeros en comprarlo se llevan el pack promocional que incluye la tablet Huawei T5 10” y Office 365. ¿Precio por todo? $899.990. Más info en la web de Huawei. #SOYprueboytecuento
