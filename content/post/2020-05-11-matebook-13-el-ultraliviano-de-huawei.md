@@ -56,4 +56,4 @@ De hecho, me parece que éste es un equipo que perfectamente puede ser usado por
 
 \-Cargador portátil tipo C de 65W que se puede usar con una variedad de salidas de carga. Además de utilizar el adaptador de corriente para cargar el laptop, es compatible con Huawei SuperCharge para ciertos teléfonos. 
 
-El equipo está a la venta en tiendas de Huawei, Paris, Linio, PC Factory, Falabella y Ripley. Y, como les decía en el primer párrafo, los primeros en comprarlo se llevan el pack promocional que incluye la tablet Huawei T5 10” y Office 365. ¿Precio por todo? $899.990. Más info en #SOYprueboytecuento
+El equipo está a la venta en tiendas de Huawei, Paris, Linio, PC Factory, Falabella y Ripley. Y, como les decía en el primer párrafo, los primeros en comprarlo se llevan el pack promocional que incluye la tablet Huawei T5 10” y Office 365. ¿Precio por todo? $899.990. Más info en la web de Huawei. #SOYprueboytecuento
