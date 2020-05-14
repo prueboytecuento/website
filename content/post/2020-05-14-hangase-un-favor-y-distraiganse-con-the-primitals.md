@@ -37,4 +37,4 @@ Lógico, la pandemia por Coronavirus tiene todo detenido y, por lo mismo, el for
 
 Son 90 minutos de musical, aunque la trama avanza dinámicamente al ritmo del soul, temas clásicos y otros más actuales. Para que se hagan una idea, de “Yesterday” a “Malagueña”, las gaitas de la película “Corazón valiente”, el temón de Queen “Bohemian Rhapsody”, la pegajosa “Bella Ciao” (amo la versión de Goran Bregović) o “Stairway to heaven” de Led Zeppelin. Ve un adelanto en mi canal de Youtube: https://youtu.be/8hlpjUto4X8.
 
-Ya tienen las coordenadas: mañana viernes 15, a las 20 horas, ingresado a www.tmlascondes.cl. #SOYprueboytecuento
+Ya tienen las coordenadas: mañana viernes 15, a las 20 horas, ingresando a www.tmlascondes.cl. #SOYprueboytecuento
