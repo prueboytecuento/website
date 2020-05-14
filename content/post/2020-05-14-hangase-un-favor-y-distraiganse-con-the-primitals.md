@@ -1,7 +1,7 @@
 ---
 title: Hángase un favor y distráiganse con “The primitals”
 showonlyimage: true
-date: '2020-05-13T17:22:44-04:00'
+date: '2020-05-14T01:20:44-04:00'
 image: /images/uploads/panoramas-primitals-ppal.jpg
 rating: '1'
 tags:
