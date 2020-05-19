@@ -20,6 +20,8 @@ weight: '1'
 ---
 Me llegó el último celular de Huawei. Estoy conociéndolo y probando cada una de sus funciones para pronto contarles en detalle qué tal es en mi próximo review.
 
+<!--more-->
+
 Les dejo este registro para que se hagan una idea de lo que les hablo. Anda al video en mi canal de Youtube Pruebo y te cuento https://youtu.be/CvzyzC9RXwM
 
 Y, por cierto, los dejo invitadísimos a seguir mis RRSS:
