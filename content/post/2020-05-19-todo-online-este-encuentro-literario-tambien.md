@@ -38,9 +38,8 @@ Las inscripciones a las actividades en Zoom que requieran foro se harán mediant
 > PROGRAMA DE ACTIVIDADES
 > **
 
-**
-Sábado 23 de mayo
-**
+**Sábado 23 de mayo**
+
 **11 horas**
 Plan Regional de Lectura de Valparaíso (actividad inclusiva familiar).
 Audiolibros “Sueño azul”.
@@ -78,6 +77,7 @@ UPLA TV
 “La quinoa”. En las Salinas de Pullally vamos a encontrarnos con Olga Fres Quintanilla y Jesús Bazaez Encina, quienes junto a su familia se dedican a cultivar quinoa -patrimonio andino inmaterial- en la zona de Petorca. Un territorio afectado por la sequía que lleva más de 10 años arrasando con la fuente laboral de pequeñas y pequeños agricultores.
 
 **Domingo 24 de mayo**
+
 **11 horas**
 Plan Regional de Lectura de Valparaíso (actividad inclusiva familiar).
 Audiolibros “La casa del lado”.
