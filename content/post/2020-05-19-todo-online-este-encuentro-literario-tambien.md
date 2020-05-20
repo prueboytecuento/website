@@ -36,9 +36,8 @@ Las inscripciones a las actividades en Zoom que requieran foro se harán mediant
 
 > **PROGRAMA DE ACTIVIDADES**
 
-**
-Sábado 23 de mayo
-**
+**Sábado 23 de mayo**
+
 **11 horas**
 Plan Regional de Lectura de Valparaíso (actividad inclusiva familiar).
 Audiolibros “Sueño azul”.
