@@ -22,7 +22,7 @@ categories:
   - DATO
 weight: '1'
 ---
-Con mi Rafaela llevamos 6 años viendo videos de esta agrupación infantil y lo pasamos chancho. Que este fin de semana hagan un show vía zoom le da a ella la opción de entretenerse y a mí de hacer un alto en mis labores de mamá.
+Con mi Rafaela llevamos 6 años viendo videos de esta agrupación infantil y lo pasamos chancho. Que este fin de semana hagan un show vía Zoom le da a ella la opción de entretenerse y a mí de hacer un alto en mis labores de mamá.
 
 <!--more-->
 
