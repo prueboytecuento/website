@@ -1,5 +1,5 @@
 ---
-title: '¿Un chop? No vayas al bar, ten tu propio dispensador'
+title: '¿Un chop? No vayas al bar, ten tu dispensador en casa'
 showonlyimage: true
 date: '2020-06-05T18:42:06-04:00'
 image: /images/uploads/review-blade-rrss.jpg
@@ -9,7 +9,7 @@ tags:
   - Blade
   - Chop
   - Dispensador
-  - Sin Barril
+  - Sin barril
   - Fácil de usar
   - Heineken
   - Simple
