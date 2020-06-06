@@ -47,7 +47,7 @@ Aquí el dato: el vaso no sólo hay que ponerlo en 45 grados al momento de servi
 
 ![null](/images/uploads/review-blade-chop.jpg)
 
-Al principio y por temor a equivocarte, bajas la manilla suave y no completamente… Eso es espuma segura gente. Dénle hasta el tope y usen el corta espuma que trae la Blade para limpiar el exceso. 
+Al principio y por temor a equivocarte, bajas la manilla suave y no completamente… Eso es espuma segura gente. Denle hasta el tope y usen el corta espuma que trae la Blade para limpiar el exceso. 
 
 En la foto de arriba, por ejemplo, el vaso tiene bastante espuma y es de mis primeros intentos. Después olvidé tomar más y cuando quise hacerlo para esta nota, el chop ya se había acabado... Sí, en 5 días nos tomamos los 8 litros. 
 
