@@ -11,7 +11,6 @@ tags:
   - España
   - Netflix
   - Alejandro Bazzano
-  - España
   - Récord de Audiencia
   - Fenómeno Mundial
   - Universidad del Desarrollo
