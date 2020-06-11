@@ -1,7 +1,7 @@
 ---
 title: Director de “La casa de papel” dictará masterclass para todo público
 showonlyimage: true
-date: '2020-06-10T23:11:59-04:00'
+date: '2020-06-08T23:11:59-04:00'
 image: /images/uploads/dato-casa-de-papel-presunto-culpable.jpg
 rating: '1'
 tags:
