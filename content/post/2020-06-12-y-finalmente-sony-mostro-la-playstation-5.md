@@ -31,13 +31,13 @@ Y aunque el aspecto es importante y un detalle no menor para los amigos de las c
 
 “Con la PlayStation 5, damos un salto significativo para proporcionar una verdadera nueva generación de experiencias de juego. Innovadoras que redefinirán las expectativas que los usuarios tienen de los juegos”, comentó Jim Ryan, presidente y director ejecutivo de SIE (Sony Interactive Entertainment).
 
-![](/images/uploads/dato-playstation5-2da.jpg)
+![null](/images/uploads/dato-playstation5-2da.jpg)
 
 La nueva tecnología de la PS5 permite procesos instantáneos. Ya no hay que esperar unos cuantos segundos para empezar a jugar y, por ejemplo, la máquina se puede actualizar en medio de una jugada, ser imperceptible para el gammer y no perjudicará su jugada. 
 
-Lo anterior sólo por mencionar algunas características de la consola, porque otra joyita es el control (lo presentaron hace un tiempo). Cuenta con el diseño DualSense: aparato, obvio, inalámbrico, con micrófono, con botón para “crear” en vez de “compartir” y así generar gameplay para distribuir a través de otras plataformas. 
+Lo anterior sólo por mencionar algunas características de la consola, porque otra joyita es el control (lo presentaron hace un tiempo). Cuenta con el diseño DualSense: aparato, obvio, inalámbrico, con micrófono, con botón para “crear” en vez de “compartir” y así generar gameplay para distribuir a través de otras plataformas. (Video en https://youtu.be/RkC0l4iekYo).
 
-![](/images/uploads/dato-playstation5-control.jpg)
+![null](/images/uploads/dato-playstation5-control.jpg)
 
 La PS5 tiene 2 versiones muy distintas a sus antiguas generaciones. Está la clásica con lector de discos Ultra HD Blu-ray para quienes optan por tener los juegos físicos, y la digital, sin lector con juegos que se descargan en formato digital o se pueden jugar en streaming.
 
