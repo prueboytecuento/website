@@ -18,7 +18,7 @@ tags:
   - Lector Digital
   - Pruebo y te cuento
 categories:
-  - DATO
+  - TECH
 weight: '1'
 ---
 Hay gente que la pasa mal y los gammers esperando el lanzamiento de algún juguetito nuevo. Conocer la facha y características de esta consola, por supuesto, no fue la excepción.
@@ -35,7 +35,7 @@ Y aunque el aspecto es importante y un detalle no menor para los amigos de las c
 
 La nueva tecnología de la PS5 permite procesos instantáneos. Ya no hay que esperar unos cuantos segundos para empezar a jugar y, por ejemplo, la máquina se puede actualizar en medio de una jugada, ser imperceptible para el gammer y no perjudicará su jugada. 
 
-Lo anterior sólo por mencionar algunas características de la consola, porque otra joyita es el control (lo presentaron hace un tiempo). Cuenta con el diseño DualSense: aparato, obvio, inalámbrico, con micrófono, con botón para “crear” en vez de “compartir” y así generar gameplay para distribuir a través de otras plataformas. (Video en https://youtu.be/RkC0l4iekYo).
+Lo anterior sólo por mencionar algunas características de la consola, porque otra joyita es el control (lo presentaron hace un tiempo). Cuenta con el diseño DualSense: aparato, obvio, inalámbrico, con micrófono, con botón para “crear” en vez de “compartir” y así generar gameplay para distribuir a través de otras plataformas. Video en https://youtu.be/RkC0l4iekYo
 
 ![null](/images/uploads/dato-playstation5-control.jpg)
 
