@@ -18,7 +18,7 @@ tags:
   - Lector Digital
   - Pruebo y te cuento
 categories:
-  - DATO
+  - TECH
 weight: '1'
 ---
 Hay gente que la pasa mal y los gammers esperando el lanzamiento de algún juguetito nuevo. Conocer la facha y características de esta consola, por supuesto, no fue la excepción.
