@@ -1,7 +1,7 @@
 ---
 title: Guía de regalos para el Día del Padre
 showonlyimage: true
-date: '2020-06-13T21:39:13-04:00'
+date: '2020-06-12T21:39:13-04:00'
 image: /images/uploads/dato-di-a-del-padre-ppal.jpg
 rating: '1'
 tags:
