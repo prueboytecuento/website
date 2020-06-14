@@ -29,7 +29,7 @@ categories:
   - DATO
 weight: '1'
 ---
-Soy de la que no espera ni pide regalos para el Día de la Madre. Sin embargo, me gusta regalar y regalonear a Marido (@kleberos), el hombre que hizo posible que la cabra chica más linda del mundo fuera parte de nuestras vidas… La Rafita (6).
+Soy de las que no espera ni pide regalos para el Día de la Madre. Sin embargo, me gusta regalar y regalonear a Marido (@kleberos), el hombre que hizo posible que la cabra chica más linda del mundo fuera parte de nuestras vidas… La Rafita (6).
 
 <!--more-->
 
@@ -75,9 +75,8 @@ Este modelo tiene una cámara cuádruple Ultra Vision de Leica, fotografía Gold
 
 Un caja, **3 lociones Natura**. Esa es una de las apuestas de la marca brasilera. “Aromas que se adaptan a cada situación del día, tal como tú lo haces”, dice la leyenda de este producto.
 
-**El kit incluye:**
-
--1 mini eau de toilette Homem clásico 25ml. Amaderado, leve, sándalo, cedro, jengibre.
+**El kit incluye:
+**-1 mini eau de toilette Homem clásico 25ml. Amaderado, leve, sándalo, cedro, jengibre.
 
 \-1 mini eau de toilette Kaiak clásico 25ml. Aromático herbal, leve, notas acuosas, albahaca, bergamota.
 
@@ -153,7 +152,8 @@ Hay papás bien buenos para leer y, miren que lindo, varios títulos con descuen
 
 ![null](/images/uploads/dato-di-a-del-padre-libro-maza.jpg)
 
-**Dónde comprar:** www.buscalibre.cl
+**
+Dónde comprar:** www.buscalibre.cl
 
 **Título:** “Somos polvo de estrellas”.
 
@@ -197,4 +197,5 @@ Durante cuatro años, Heather Morris entrevistó a un anciano Lale Sokolov. Apoy
 
 **Valor:** $9.430 (Está con 35% de descuento).
 
-Espero les sirvan las sugerencias… Son sólo eso. Cada uno sabe cómo y con qué regalonear a sus papás, abuelos o padres de sus hijos. Que sea un lindo 21 de junio. #SOYprueboytecuento
+Espero les sirvan las sugerencias… Son sólo eso. Cada uno sabe cómo y con qué regalonear a sus papás, abuelos o padres de sus hijos. Que sea un lindo 21 de junio. **\#SOYprueboytecuento
+**
