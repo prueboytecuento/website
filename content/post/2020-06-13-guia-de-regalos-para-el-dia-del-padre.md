@@ -193,7 +193,7 @@ Cuando a Lale Sokolov le fue encomendada la tarea de tatuar los números en las 
 
 De ser atrapado, lo habrían matado al instante. Lale se propuso vivir una vida tan plena como le fuera posible dentro de esas terribles circunstancias. Una mañana, en la fila de prisioneros que esperaban para ser tatuados, una joven temblorosa llamó su atención. Para él fue amor a primera vista y se juró que, si lograba salir del campo, la buscaría hasta encontrarla.
 
-Durante cuatro años, Heather Morris entrevistó a un anciano Lale Sokolov. Apoyándose en sus encuentros y en abundantes documentos pero con la potencia de la mejor de las ficciones, ‘El tatuador de Auschwitz’ narra esos hechos que permanecieron casi desconocidos durante más de setenta años. Por trágico que sea el relato, es un llamado a la esperanza y al coraje. Y, sobre todo, una inolvi- dable historia de amor y supervivencia”.
+Durante cuatro años, Heather Morris entrevistó a un anciano Lale Sokolov. Apoyándose en sus encuentros y en abundantes documentos pero con la potencia de la mejor de las ficciones, ‘El tatuador de Auschwitz’ narra esos hechos que permanecieron casi desconocidos durante más de setenta años. Por trágico que sea el relato, es un llamado a la esperanza y al coraje. Y, sobre todo, una inolvidable historia de amor y supervivencia”.
 
 **Valor:** $9.430 (Está con 35% de descuento).
 
