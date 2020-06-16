@@ -70,10 +70,9 @@ Por cada compra que hagas, las segundas rondas serán gratis y CCU entregará gr
 Los muchachos de **Stella Artois** están con **“Apoya a un restaurante”**, que consiste en comprar un voucher de $10.000 en los locales adheridos (búscalos en www.apoyaunrestaurante.cl). Por la compra del voucher, esta marca de cerveza y Mastercard duplican tu aporte con otros $10.000. O sea, $20.000 para canjear en los restaurante cuando vuelvan a abrir sus puertas.
 
 
-
 Hasta el momento hay 600 restaurantes beneficiados a lo largo de Chile y ya se han recaudado más de $260.000.000 millones. No es una suma menor.
 
-Pero ahora se suma una 2da etapa colaborativa. Se llama "**Sesiones Stella Artois"**, que son cápsulas bajo la conducción de María Gracia Subercaseaux, donde se pretende generar conciencia e invitar a conocer en detalle la gastronomía, coctelería y esencia de algunos de los principales e icónicos restaurantes de Chile. 
+Pero ahora se suma una 2da etapa colaborativa. Se llama **"Sesiones Stella Artois"**, que son cápsulas bajo la conducción de María Gracia Subercaseaux, donde se pretende generar conciencia e invitar a conocer en detalle la gastronomía, coctelería y esencia de algunos de los principales e icónicos restaurantes de Chile. 
 
 El objetivo con cada uno de los episodios es seguir apoyando a la mayor cantidad de restaurantes en todo Chile e incentivar a las personas a que colaboren con el local a través de sus servicios de delivery.
 
