@@ -20,7 +20,7 @@ tags:
   - Coopera
   - Cerveza
   - Beer
-  - Semana
+  - Senama
 categories:
   - DATO
 weight: '1'
