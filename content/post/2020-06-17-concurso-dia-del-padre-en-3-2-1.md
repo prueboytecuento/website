@@ -29,9 +29,7 @@ Comparte una historia inolvidable con tu papá… Una conversación, un paseo de
 
 Premiaré la mejor historia con Gran Reserva Cabernet Sauvignon 2017 de **Viña Calcu**, un kit con 3 perfumes de **Natura**, un shampoo **Head & Shoulders** y una botella de crema irlandesa **Baileys**. ¿Qué tal? Detalles en el video: https://youtu.be/8OVhx8SgGCk
 
-![](/images/uploads/concurso-di-a-del-padreregalos.jpg)
-
- 
+![](/images/uploads/concurso-di-a-del-padreregalos2.jpg)
 
 **¡MUY IMPORTANTE!** Leeré tu historia en los comentarios de esta nota (abajo), no en las RRSS de Pruebo y te cuento. Empieza desde ya a echar mano a los recuerdos porque el viernes a las 18 horas se cierra el concurso y a las 20 publicaré el resultado. ¡Suerte! #SOYprueboytecuento
 
