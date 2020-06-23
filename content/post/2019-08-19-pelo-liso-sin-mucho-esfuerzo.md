@@ -2,7 +2,7 @@
 title: Pelo liso sin mucho esfuerzo
 showonlyimage: true
 date: '2019-08-19T18:33:23-04:00'
-image: /images/uploads/review-tresemme-.jpg
+image: /images/uploads/review-tresemme-ok.jpg
 rating: '1'
 tags:
   - Shampoo
