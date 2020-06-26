@@ -12,7 +12,7 @@ tags:
   - Blend
   - Cepas
   - Diablo Dark Red
-  - '#Concha y Toro'
+  - Concha y Toro
   - Viña
   - Wine
   - Enología
