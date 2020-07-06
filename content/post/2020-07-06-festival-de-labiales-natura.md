@@ -38,7 +38,7 @@ Hoy quiero mostrarles 3 opciones bien distintas, partiendo por una de la colecci
 
 ![](/images/uploads/review-labiales-natura-aquarela.jpg)
 
-Es un labial que deja los labios húmedos e hidratados. Toda la colección de **AQUARELA** es Hidra FPS 8. Buena protección. Yo usé el Coral 805, cuya foto está sobre este párrafo y es el 1er color (de izquierda a derecha) en la foto principal. Ahí puedes ver cómo queda en piel. 
+Es un labial que deja los labios húmedos e hidratados. Todas las colección de Natura tiene buena protección. Este **AQUARELA** es el "Batom Color Hidra FPS 8". Yo usé el Coral 805, cuya foto está sobre este párrafo y es el 1er color (de izquierda a derecha) en la foto principal. Ahí puedes ver cómo queda en piel. 
 
 Como es un labial cremoso, les aconsejo usar un primer antes de maquillarse los labios para una mejor fijación e intensificar el color. Natura tiene primers, así es que échenle una mirada al catálogo virtual en la web de la marca. El valor de este producto es de $5.490 y contiene 3,5 g. 
 
@@ -52,14 +52,14 @@ Para aumentar el volumen y no gastar tanto producto de una sola vez, sugiero usa
 
 Me hice fotos con las 3 opciones de labiales, pero por tiempo no alcancé a editarlas, así es que será para los próximos reviews de pinta labios, ¿bueno? 
 
-Si te gusta este tono de la colección** UNA**, aquí el dato: es el Vermelho 100 (rojo en español) y en su envase lo describen como “Brillo, protección y acción antiseñales”. Contiene 8 ml y vale $9.200. 
+Si te gusta este tono de la colección **UNA**, aquí el dato: es el Vermelho 100 (rojo en español) y en su envase lo describen como “Brillo, protección y acción antiseñales”. Contiene 8 ml y vale $9.200. 
 
 ![](/images/uploads/review-labiales-natura-barraok.jpg)
 
-El 3er labial es un matte de **UNA**, se llama Labial Extreme Matific: Larga duración y color intenso. Se adhiere muy bien a la piel y es parte de nuestra sonrisa por mucho tiempo. Lo más importante para mí es que no rompe los labios. Perdí la cuenta de cuántos matte he usado durante varios días seguidos y terminan sacándome telitas de piel… Y ojo que no es fácil que se recuperen. 
+El 3er labial es un matte de **UNA**, se llama "Labial Extreme Matific: Larga duración y color intenso". Se adhiere muy bien a la piel y es parte de nuestra sonrisa por mucho tiempo. Lo más importante para mí es que no rompe los labios. Perdí la cuenta de cuántos matte he usado durante varios días seguidos y terminan sacándome telitas de piel… Y ojo que no es fácil que se recuperen. 
 
 Les recomiendo que después de su uso, al final del día, humecten tus labios. Natura tiene un hidratante también de la colección **UNA**, se llama Ultra Hidratante Labial Natura. 
 
-Yo probé el tono Coral 02 M, es un FPS 15 de 3,5 g y se trata de un labial en lanzamiento. Cuesta $8.900. Recuerda que todos los labiales y productos Natura son dermatológicamente testeados, de materia prima no artificial, los encuentras en **www.natura.cl** y el costo de envío es CERO… En tiempos de pandemia es una buena manera de acceder a lo que queremos y que el envío sea gratuito se aplaude. #SOYprueboytecuento 
+Yo probé el tono Coral 02 M, es un FPS 15 de 3,5 g y se trata de un labial en lanzamiento. Cuesta $8.900. Recuerda que todos los labiales y productos Natura son dermatológicamente testeados, de materia prima no artificial, los encuentras en www.natura.cl y el costo de envío es CERO… En tiempos de pandemia es una buena manera de acceder a lo que queremos y que el envío sea gratuito se aplaude. #SOYprueboytecuento 
 
 **FOTOS** by **P40 Pro de Huawei**
