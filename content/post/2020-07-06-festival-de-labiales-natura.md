@@ -34,7 +34,7 @@ La oferta de batoms de la marca brasilera es amplia y no me refiero sólo a tona
 
 <!--more-->
 
-Hoy quiero mostrarles 3 opciones bien distintas, partiendo por una de la colección **AQUARELA**. Es suave, cremosa, con mucho cuerpo. Una opción agradable al toque con mis labios, no precisas varios repasos y, por lo tanto, su vida útil en el cosmetiquero será más prolongada y no tendrás que reponerlo tan seguido. 
+Hoy quiero mostrarles 3 opciones bien distintas, partiendo por una de la colección **AQUARELA**. Es suave, cremosa, con mucho cuerpo. Una opción agradable al toque con mis labios, no precisas varios repasos y, por lo tanto, su vida útil en el cosmetiquero es más prolongada y no tendrás que reponerlo tan seguido. 
 
 ![null](/images/uploads/review-labiales-natura-aquarela.jpg)
 
@@ -52,7 +52,7 @@ Para aumentar el volumen y no gastar tanto producto de una sola vez, sugiero usa
 
 Me hice fotos con las 3 opciones de labiales, pero por tiempo no alcancé a editarlas, así es que será para los próximos reviews de pinta labios, ¿bueno? 
 
-Si te gusta este tono de la colección **UNA**, aquí el dato: es el Vermelho 100 (rojo en español) y en su envase lo describen como “Brillo, protección y acción antiseñales”. Contiene 8 ml y vale $9.200. 
+Si te gusta este tono de la colección **UNA**, aquí el dato: es el Vermelho 100 (rojo en español) y en su envase lo describen como “Gloss Labial FPS 15: Brillo, protección y acción antiseñales”. Contiene 8 ml y vale $9.200. 
 
 ![null](/images/uploads/review-labiales-natura-barraok.jpg)
 
