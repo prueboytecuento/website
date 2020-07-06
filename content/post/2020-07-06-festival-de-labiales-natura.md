@@ -34,15 +34,15 @@ La oferta de batoms de la marca brasilera es amplia y no me refiero sólo a tona
 
 <!--more-->
 
-Hoy quiero mostrarles 3 opciones bien distintas, partiendo por una de la colección **AQUARELA**. Es suave, cremosa, con mucho cuerpo. Una opción agradable al toque con mis labios, no precisas varios repasos y, por lo tanto, su vida útil en el cosmetiquero es más prolongada y no tendrás que reponerlo tan seguido. 
+Hoy quiero mostrarles 3 opciones bien distintas, partiendo por una de la colección **AQUARELA**. Es suave, cremosa, con mucho cuerpo. Una opción agradable al toque con mis labios, no precisas varios repasos y, por lo tanto, su vida útil en el cosmetiquero será más prolongada y no tendrás que reponerlo tan seguido. 
 
-![](/images/uploads/review-labiales-natura-aquarela.jpg)
+![null](/images/uploads/review-labiales-natura-aquarela.jpg)
 
 Es un labial que deja los labios húmedos e hidratados. Todas las colección de Natura tiene buena protección. Este **AQUARELA** es el "Batom Color Hidra FPS 8". Yo usé el Coral 805, cuya foto está sobre este párrafo y es el 1er color (de izquierda a derecha) en la foto principal. Ahí puedes ver cómo queda en piel. 
 
 Como es un labial cremoso, les aconsejo usar un primer antes de maquillarse los labios para una mejor fijación e intensificar el color. Natura tiene primers, así es que échenle una mirada al catálogo virtual en la web de la marca. El valor de este producto es de $5.490 y contiene 3,5 g. 
 
-![](/images/uploads/review-labiales-natura-glossok.jpg)
+![null](/images/uploads/review-labiales-natura-glossok.jpg)
 
 Siguiendo el orden de la imagen de mi muñeca, al centro van a ver cómo luce el Gloss Labial de **UNA**, que cuenta con una protección FPS 15 y que efectivamente da mucho volumen y el deseado efecto de labios carnosos… Efecto que todas queremos, ¿sí o no? 
 
@@ -54,7 +54,7 @@ Me hice fotos con las 3 opciones de labiales, pero por tiempo no alcancé a edit
 
 Si te gusta este tono de la colección **UNA**, aquí el dato: es el Vermelho 100 (rojo en español) y en su envase lo describen como “Brillo, protección y acción antiseñales”. Contiene 8 ml y vale $9.200. 
 
-![](/images/uploads/review-labiales-natura-barraok.jpg)
+![null](/images/uploads/review-labiales-natura-barraok.jpg)
 
 El 3er labial es un matte de **UNA**, se llama "Labial Extreme Matific: Larga duración y color intenso". Se adhiere muy bien a la piel y es parte de nuestra sonrisa por mucho tiempo. Lo más importante para mí es que no rompe los labios. Perdí la cuenta de cuántos matte he usado durante varios días seguidos y terminan sacándome telitas de piel… Y ojo que no es fácil que se recuperen. 
 
