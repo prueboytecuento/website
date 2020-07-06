@@ -24,7 +24,7 @@ tags:
   - Brillo
   - Protección
   - intenso
-  - Foto by P40 Pro
+  - Fotos by P40 Pro
   - SOYprueboytecuento
 categories:
   - BELLEZA
