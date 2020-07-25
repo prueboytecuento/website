@@ -2,7 +2,7 @@
 title: Exfoliador de poros Bioré
 showonlyimage: true
 date: '2020-07-24T19:17:14-04:00'
-image: /images/uploads/review-biore-1.jpg
+image: /images/uploads/review-biore-ppal2.jpg
 rating: '1'
 tags:
   - Exfoliación
@@ -31,7 +31,7 @@ Ahora en el encierro, imagino que por el estrés, mi piel se ha torando más ole
 
 Por otro lado y como ya lo he contado, me gusta tomar sol y lo hago con aceite bronceador, así es que mi cara está muy, pero muy manchada. ¿¡Piel manchada más impurezas!? No, no es una opción.
 
-![null](/images/uploads/review-biore-2.jpg)
+![null](/images/uploads/review-biore-cara.jpg)
 
 La crema de Bioré es a base de ácido salicílico, ideal para limpieza profunda. Es un producto suave al contacto, los cristalitos se sienten, pero no duelen. He probado exfoliantes faciales que, aunque los apliqué con movimientos suaves y leves, son molestos e irritan.
 
