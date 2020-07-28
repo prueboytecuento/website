@@ -26,7 +26,7 @@ Hace un tiempo hice el review de este producto y opté por no publicarlo debido 
 
 Cuando me llegaron los pañales en abril de inmediato hice la prueba del agua sobre estos. Recibí un paquete talla XXG para niñas y niños de 13 kilos máximo. Lo llené con ½ litro de agua. Usualmente las mamás cambiamos antes el pañal, pero quise ver su resistencia y aguantó la cantidad perfectamente. El video está en mi canal de Youtube Pruebo y te cuento. Aquí el link 
 
-![](/images/uploads/review-pilucho-con-agua.jpg)
+![null](/images/uploads/review-pilucho-con-agua.jpg)
 
 Es un producto hipoalergénico con Aloe Vera y PH neutro, factor que no pude confirmar porque usé una muñeca para probar la humedad del pañal. Pilucho Total Confort convirtió el agua en gel, como la mayoría, pero el rewet o retorno de humedad fue igual a 0... Este punto es importantísimo para evitar que la piel de los niños se irrite.
 
@@ -36,36 +36,22 @@ De acuerdo al estudio que presentó el Servicio Nacional del Consumidor, los Pil
 
 Antes de dejar el estudio, debo confesar que me sorpendió que marcas muy conocidas no hayan cumplido los parámetros que se usaron para este análisis. Y ahí vuelvo a lo que siempre les digo. La publicidad es eso… Publicidad y no siempre las marcas ultra-mega-conocidas son las mejores… Hay que probar mi gente. 
 
-![](/images/uploads/review-pilucho-resumen.jpg)
+![null](/images/uploads/review-pilucho-resumen.jpg)
 
 “El estudio incluyó pruebas de laboratorio y análisis del rotulado, considerando 25 marcas de pañales, correspondientes a 11 empresas, constituyendo un total de 28 unidades: 18 pañales de niños y 10 de adultos”, introduce el estudio. 
 
 El trabajo de ellos consideró como puntos “capacidad de absorción, tiempo o velocidad de absorción, retorno de la humedad (Rewet %). Adicionalmente se analizaron el peso total de los pañales (g), peso del material absorbente (g) y dimensiones del producto (cm).
 
+**\***Capacidad de Absorción** va entre 227 a 606 ml. en los pañales de niños.
 
+![null](/images/uploads/review-pan-ales-sernac-cap-absorcio-n.jpg)
 
-\***Capacidad de Absorción** va entre 227 a 606 ml. en los pañales de niños.
+**\***En cuanto al **Tiempo de Absorción**, los valores van desde 0,87 (s) hasta los 1,9 (s) en pañales de niños.
 
-![](/images/uploads/review-pan-ales-sernac-cap-absorcio-n.jpg)
+![null](/images/uploads/review-pilucho-ta.jpg)
 
-	
+**\***Por su parte, entre menor sea el porcentaje de **Retorno de Humedad**, hace que se mantenga la comodidad y se genere menor irritación al usuario, sensación de sequedad, el cual va de 0,7% hasta 2% en el caso de los pañales de niños.
 
-\*En cuanto al **Tiempo de Absorción**, los valores van desde 0,87 (s) hasta los 1,9 (s) en pañales de niños.
-
-
-
-![](/images/uploads/review-pilucho-ta.jpg)
-
-
-
-\*Por su parte, entre menor sea el porcentaje de **Retorno de Humedad**, hace que se mantenga la comodidad y se genere menor irritación al usuario, sensación de sequedad, el cual va de 0,7% hasta 2% en el caso de los pañales de niños.
-
-
-
-![](/images/uploads/review-pilucho-rewet.jpg)
-
-
-
-
+![null](/images/uploads/review-pilucho-rewet.jpg)
 
 Los pañales están a la venta en todos los locales de distribución de Fruna… Sí, los productores de dulces y helados. La tarea de ustedes ahora es contactar al centro más cercano a sus casa, confirmar que estén abiertos o buscar otro. En www.fruna.cl están las direcciones de locales a lo largo de todo Chile. Espero que esta nota les haya servido. #SOYprueboytecuento
