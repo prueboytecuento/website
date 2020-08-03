@@ -37,10 +37,9 @@ El bono se solicita en la página web del Servicio de Impuestos Internos (SII) q
 "Todos aquellos trabajadores y trabajadoras dependientes, independientes o empresarios individuales cuya renta normal antes de la pandemia estaba entre los $400 mil y el millón y medio de pesos.
  Y que además hayan perdido su trabajo o al menos hayan visto caer significativamente sus ingresos formales en un 30 por ciento o más". 
 
-**¿Qué requisitos debes cumplir?
-**
+**¿Qué requisitos debes cumplir?**
 
-**"**Para poder acceder al Bono para la Clase Media, debes cumplir con las siguientes características:
+\-Para poder acceder al Bono para la Clase Media, debes cumplir con las siguientes características:
 
 \-Ser trabajador(a) con un promedio mensual de rentas percibidas en 2019 que sea igual o mayor a $400.000".
 
