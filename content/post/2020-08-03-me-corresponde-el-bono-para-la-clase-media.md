@@ -32,25 +32,23 @@ Me han preguntado bastante sobre este tema, así es que aquí les dejo la inform
 
 El bono se solicita en la página web del Servicio de Impuestos Internos (SII) que es www.sii.cl Después de 10 días se realizará el pago.
 
-
-
 **¿A quiénes está dirigido?**
 
-"Todos aquellos trabajadores y trabajadoras dependientes, independientes o empresarios individuales cuya renta normal antes de la pandemia estaba entre los $400 mil y el millón y medio de pesos. Y que además hayan perdido su trabajo o al menos hayan visto caer significativamente sus ingresos formales en un 30 por ciento o más". 
+"Todos aquellos trabajadores y trabajadoras dependientes, independientes o empresarios individuales cuya renta normal antes de la pandemia estaba entre los $400 mil y el millón y medio de pesos.
+ Y que además hayan perdido su trabajo o al menos hayan visto caer significativamente sus ingresos formales en un 30 por ciento o más". 
 
-
-
-**¿Qué requisitos debes cumplir?**
+**¿Qué requisitos debes cumplir?
+**
 
 **"**Para poder acceder al Bono para la Clase Media, debes cumplir con las siguientes características:
 
 \-Ser trabajador(a) con un promedio mensual de rentas percibidas en 2019 que sea igual o mayor a $400.000".
 
-\-Que debido a la crisis sanitaria y socioeconómica del covid.19, experimentes una disminución de, al menos, un 30%, de tu ingreso mensual.
+\-Que debido a la crisis sanitaria y socioeconómica del covid.19, experimentes una disminución de, al menos, un 30%, de tu ingreso mensual.
 
 \-Y encontrarte en alguna de las siguientes situaciones: 
 
-1. Cesantes o trabajadores dependientes con contrato de trabajo suspendido que estén percibiendo las prestaciones del Seguro de Cesantía, o estén cesantes y ya hayan agotado sus recursos del Seguro.
+1. Cesantes o trabajadores dependientes con contrato de trabajo suspendido que estén percibiendo las prestaciones del Seguro de Cesantía, o estén cesantes y ya hayan agotado sus recursos del Seguro.
 2. Trabajadores dependientes que hayan sufrido una disminución de sus remuneraciones, incluyendo a trabajadores con pacto de reducción temporal de jornada de trabajo.
 3. Trabajadores que emiten boletas de honorarios y hayan visto reducidos sus ingresos formales.
 4. Personas naturales organizadas como empresas individuales (cuenta propia). 
