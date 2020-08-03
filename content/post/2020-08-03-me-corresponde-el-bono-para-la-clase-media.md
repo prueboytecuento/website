@@ -53,4 +53,4 @@ El bono se solicita en la página web del Servicio de Impuestos Internos (SII) q
 3. Trabajadores que emiten boletas de honorarios y hayan visto reducidos sus ingresos formales.
 4. Personas naturales organizadas como empresas individuales (cuenta propia). 
 
-Espero que la info les sirva esta info y sean beneficiados con este bono si están pasando por una compleja situación económica. #SOYprueboytecuento
+Espero que la info les sirva y sean beneficiados con este bono si están pasando por una compleja situación económica. #SOYprueboytecuento
