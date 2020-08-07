@@ -1,7 +1,7 @@
 ---
 title: 'Samsung presentó el Galaxy Note20, Galaxy Note20 Ultra'
 showonlyimage: true
-date: '2020-08-06T20:06:57-04:00'
+date: '2020-08-05T15:06:00-04:00'
 image: /images/uploads/tech-ecosystemppal2.jpg
 rating: '1'
 tags:
@@ -17,7 +17,7 @@ categories:
   - TECH
 weight: '1'
 ---
-Muy apegados a esta “tendencia obligada” de salir de nuestro metro cuadrado sólo de manera virtual y ante la imposibilidad de presentar los nuevos equipos Galaxy de forma presencial, la compañía surcoreana realizó el lanzamiento de este 2do semestre de 2020 en formato 100% digital.
+Muy apegados a la “tendencia obligada” de salir de nuestro metro cuadrado sólo de manera virtual y ante la imposibilidad de presentar los nuevos equipos Galaxy de forma presencial, la compañía surcoreana realizó el lanzamiento de este 2do semestre de 2020 en formato 100% digital.
 
 <!--more-->
 
@@ -29,7 +29,7 @@ De los demás productos sólo daré una pincelada y el review con mi experiencia
 
 Samsung sostiene que el Galaxy Note20 Ultra fue “diseñado para los que exigen lo último en potencia y productividad, y el Galaxy Note20 para usuarios que buscan maximizar su tiempo para trabajar y jugar”.
 
-![](/images/uploads/review-samsung-ppal.jpg)
+![null](/images/uploads/review-samsung-ppal.jpg)
 
 > **GALAXY NOTE20 ULTRA**
 
@@ -45,7 +45,7 @@ El nuevo sensor de enfoque automático con láser es mucho más preciso y su cá
 
 Los lentes de **Nivel Profesional y el Super Zoom** permiten fotografiar escenas con gran detalle. Eso además de poder controlar y ajustar las direcciones del micrófono hacia donde quieras. 
 
-Sé que es latero leer el detalle de las cámaras, pero a algunos consumidores les interesa así es aquí voy:
+Sé que es latero leer el detalle de las cámaras, pero a algunos consumidores les interesa así es que aquí voy:
 
 **Cámaras posteriores:**
 
@@ -88,8 +88,6 @@ Estará disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black
 Estará disponible en color **Mystic Bronze**, **Mystic Green** y **Mystic Gray**.
 
 > **CARÁCTERÍSTICAS COMPARTIDAS DEL NOTE20 Y NOTE20 ULTRA**
->
->
 
 ![](/images/uploads/tech-samsung-s-pen.jpg)
 
@@ -111,7 +109,7 @@ Con esta maravilla ultra inteligente y eficiente puedes grabar un audio nítido 
 
 Tiene la forma de un poroto que pones en tu oído. La gente de Samsung asegura que puedes usarlo hasta 6 horas sin molestia. 
 
-Algo muy choro es grabar audios y audios con videos a distancia. Ideal para reportear cuando tu potencial entrevistado está lejos y quieres saber de qué habla. Buenísimo… ¡Quiero este smartphone en mis manos ahora ya!
+Algo muy choro es grabar audios y videos a distancia. Ideal para reportear cuando tu potencial entrevistado está lejos y quieres saber de qué habla. Buenísimo… ¡Quiero este smartphone en mis manos ahora ya!
 
 Estará disponible en color **Mystic Bronze, Mystic Black y Mystic White**.
 
@@ -131,7 +129,7 @@ Tiene un cargador súper potente que ofrece un 50% de carga en 30 minutos. Está
 
 **RESISTENCIA AL AGUA**
 
-Sobre la resistencia al agua IP 68. Esta se basa en condiciones de prueba para inmersión de hasta 1,5 metros en agua dulce durante hasta 30 minutos. En Samsung Chile son más cautos sobre la resistencia de sus equipos. No se casan con esta idea del teléfono impenetrable en agua o ante la exposición al polvo.
+Sobre la resistencia al agua IP 68. Esta se basa en condiciones de prueba para inmersión de hasta 1,5 metros en agua dulce durante 30 minutos. En Samsung Chile son más cautos sobre la resistencia de sus equipos. No se casan con esta idea del teléfono impenetrable en agua o ante la exposición al polvo.
 
 **RESISTENCIA FRENTE A CAÍDAS Y GOLPES**
 
@@ -147,11 +145,11 @@ Me quiero detener en el procesador porque no es el mismo para todos los países 
 
 **GALAXY TAB S7 y TAB S7+**
 
-Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7 y Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y Samsung Notes completamente renovados.
+Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7 y Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y **Samsung Notes** completamente renovados.
 
 Estará disponible en color **Mystic Bronze**.
 
-![](/images/uploads/tech-samsung-watch3.jpg)
+![null](/images/uploads/tech-samsung-watch3.jpg)
 
 **GALAXY WATCH3**
 
@@ -159,14 +157,16 @@ Te ayuda a administrar rutinas, sobrepasar objetivos de acondicionamiento físic
 
 Mantiene el bisel y está blindado con una serie de sensores para, por ejemplo, medir la saturación de oxígeno, medición del VO2 Max, cuenta con un detector de caídas, etc. Todas características que solemos ver en relojes inteligentes. 
 
-Estará disponible en color **Mystic Silver** y **Mystic Black**
+Estará disponible en color **Mystic Silver** y **Mystic Black**.
 
-![](/images/uploads/tech-samsung-galaxy-z-fold-2.jpg)
+![null](/images/uploads/tech-samsung-galaxy-z-fold-2.jpg)
 
 **GALAXY Z FOLD2**
 
-La nueva generación de plegables en el mundo viene con 2 pantallas Infinity-O de borde a borde, casi sin bisel. La pantalla de la cubierta es de 6,2” y una pantalla principal masiva de 7,6”, lo que hace que ambos sean más grandes que la anterior versión Galaxy Fold. Viene en colores **Mystic Black** y **Mystic Bronze**. 
+La nueva generación de plegables en el mundo viene con 2 pantallas Infinity-O de borde a borde, casi sin bisel. La pantalla de la cubierta es de 6,2” y una pantalla principal masiva de 7,6”, lo que hace que ambos sean más grandes que la anterior versión Galaxy Fold.
+
+Viene en colores **Mystic Black** y **Mystic Bronze**. 
 
 Sobre valores aún no hay noticias, pero podemos tomar como referencia los precios que tendrán en Estados Unidos: **Galaxy Note20** costará **US$999 ($772.526)** y el **Galaxy Note20 Ultra**, **US$1.299 ($1.004.516)**.
 
-Tampoco se hizo pública la fecha de lanzamiento de los equipos en Chile, pero en www.samsung.com ya puedes inscribirte para la preventa a ciegas (sin precio). Espero haber respondido a todas tus dudas. **\#SOYprueboytecuento**
+Tampoco se hizo pública la fecha de lanzamiento de todos los equipos en Chile, pero en www.samsung.com ya puedes inscribirte para la preventa a ciegas (sin precio). Espero haber respondido a todas tus dudas. #SOYprueboytecuento
