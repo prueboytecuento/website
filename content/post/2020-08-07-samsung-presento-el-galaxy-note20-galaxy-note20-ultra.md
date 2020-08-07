@@ -174,6 +174,6 @@ Viene en colores **Mystic Black** y **Mystic Bronze**.
 
 Sobre valores aún no hay noticias, pero podemos tomar como referencia los precios que tendrán en Estados Unidos: **Galaxy Note20** costará **US$999 ($772.526)** y el **Galaxy Note20 Ultra**, **US$1.299 ($1.004.516)**.
 
-Si quieres ver el lanzamiento virtual, aquí te dejo el link: https://youtu.be/CmS5rlX9cDA
+Tampoco se hizo pública la fecha de lanzamiento de todos los equipos en Chile, pero en www.samsung.com ya puedes inscribirte para la preventa a ciegas (sin precio). 
 
-Tampoco se hizo pública la fecha de lanzamiento de todos los equipos en Chile, pero en www.samsung.com ya puedes inscribirte para la preventa a ciegas (sin precio). Espero haber respondido a todas tus dudas. #SOYprueboytecuento
+Si quieres ver el lanzamiento virtual, aquí te dejo el link: https://youtu.be/CmS5rlX9cDA. Espero haber respondido a todas tus dudas. #SOYprueboytecuento
