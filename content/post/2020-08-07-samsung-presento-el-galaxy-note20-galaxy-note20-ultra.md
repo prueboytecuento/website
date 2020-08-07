@@ -150,7 +150,7 @@ Me quiero detener en el procesador porque no es el mismo para todos los países 
 
 **GALAXY TAB S7 y TAB S7+**
 
-Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7** (modelo en la imagen de arriba) y** Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y **Samsung Notes** completamente renovados.
+Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7** (modelo en la imagen de arriba) y **Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y **Samsung Notes** completamente renovados.
 
 Estará disponible en color **Mystic Bronze**.
 
@@ -160,7 +160,7 @@ Estará disponible en color **Mystic Bronze**.
 
 El **Galaxy Watch3** (modelo en la imagen de arriba) te ayuda a administrar rutinas, sobrepasar objetivos de acondicionamiento físico y mantenerte alerta de tu salud. Estéticamente no ves un reloj deportivo, sino uno muy estiloso que puedes usar perfectamente de día, de noche y cuando entrenas. 
 
-Mantiene el bisel y está blindado con una serie de sensores para, por ejemplo, medir la saturación de oxígeno, medición del VO2 Max, cuenta con un detector de caídas, etc. Todas características que solemos ver en relojes inteligentes. 
+Mantiene el bisel y está blindado con una serie de sensores para, por ejemplo, medir la saturación de oxígeno, medición del VO2 Max (máximo de oxígeno que el organismo puede absorver, transportar y consumir en un tiempo determinado), cuenta con un detector de caídas, etc. Todas características que solemos ver en relojes inteligentes. 
 
 Estará disponible en color **Mystic Silver** y **Mystic Black**. Link video https://youtu.be/P4YuzFSIbJM
 
