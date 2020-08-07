@@ -21,7 +21,7 @@ Muy apegados a la “tendencia obligada” de salir de nuestro metro cuadrado s�
 
 <!--more-->
 
-Fueron 5 nuevos grupos de productos unpacked: **Galaxy Note20** y **Galaxy Note20 Ultra**, los **Galaxy Tab S7** y **Tab S7+**, el **Galaxy Watch3**, **Galaxy Buds Live** y **Galaxy Z Fold2**.
+Fueron 5 nuevos grupos de productos unpacked: **Galaxy Note20** y **Galaxy Note20 Ultra**, los **Galaxy Tab S7** y **Tab S7+**, el **Galaxy Watch3**, **Galaxy Buds Live** y **Galaxy Z Fold2**. Link video: https://youtu.be/3BJ7fF2aQqY
 
 En esta publicación quiero comentarles sobre el **GN20** (pantalla 6,7”) y **GN20 Ultra** (pantalla 6,9”), porque son smartphones súper esperados y sobre los cuales hay muchas expectativas. 
 
