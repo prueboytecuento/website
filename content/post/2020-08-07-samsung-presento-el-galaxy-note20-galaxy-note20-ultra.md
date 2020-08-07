@@ -61,11 +61,13 @@ Sé que es latero leer el detalle de las cámaras, pero a algunos consumidores l
 
 Estará disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**.
 
-![]()
+![](/images/uploads/tech-sansumg-note20.jpg)
 
 > **GALAXY NOTE 20**
 
-\-8GB de memoria RAM y 256 GB de almacenamiento. 
+Modelo en la imagen de arriba.
+
+**\-**8GB de memoria RAM y 256 GB de almacenamiento. 
 
 \-La batería de 4.300 mAh.
 
@@ -89,7 +91,7 @@ Estará disponible en color **Mystic Bronze**, **Mystic Green** y **Mystic Gray*
 
 > **CARÁCTERÍSTICAS COMPARTIDAS DEL NOTE20 Y NOTE20 ULTRA**
 
-![](/images/uploads/tech-samsung-s-pen.jpg)
+![null](/images/uploads/tech-samsung-s-pen.jpg)
 
 **S PEN** 
 
@@ -97,15 +99,15 @@ Los Galaxy Note20 y Note20 Ultra tienen una precisión más realista. Dan exacti
 
 Ni hablar de su capacidad de reescribir los apuntes y dejarlos con letra legible… ¿Será que el **S Pen** va a entender mi letra? Jajajá.
 
-El **S Pen **tiene además la capacidad de moverte por todas las apps que tengas abiertas. Pones el lápiz en la parte superior de celular y lo deslizas hacia abajo. 
+El **S Pen** (modelo en la imagen de arriba) tiene además la capacidad de moverte por todas las apps que tengas abiertas. Pones el lápiz en la parte superior de celular y lo deslizas hacia abajo. 
 
 Un detalle que me hace ruido es que ahora el lápiz se guarda en el extremo inferior izquierdo. Cuando estaba en el derecho lo sacabas de una sola vez con la mano derecha. Lo más probables es que ahora tengas que cambiar el teléfono de mano, sacar el **S Pen**, volverlo a la mano izquierda y usarlo. 
 
-![](/images/uploads/tech-samsung-buds-live.jpg)
+![null](/images/uploads/tech-samsung-buds-live.jpg)
 
 **GALAXY BUDS LIVE**
 
-Con esta maravilla ultra inteligente y eficiente puedes grabar un audio nítido sin importar cuánto ruido haya en el ambiente. El micrófono permite grabar audios y videos como si fuera un micrófono lavalier. **Galaxy Buds Live** se compone de 3 audífonos: 1 interno y 2 externos.
+Con esta maravilla ultra inteligente y eficiente puedes grabar un audio nítido sin importar cuánto ruido haya en el ambiente. El micrófono permite grabar audios y videos como si fuera un micrófono lavalier. **Galaxy Buds Live** (modelo en la imagen de arriba) se compone de 3 audífonos: 1 interno y 2 externos.
 
 Tiene la forma de un poroto que pones en tu oído. La gente de Samsung asegura que puedes usarlo hasta 6 horas sin molestia. 
 
@@ -141,11 +143,11 @@ Me quiero detener en el procesador porque no es el mismo para todos los países 
 
 > **OTROS EQUIPOS**
 
-![]()
+![null](/images/uploads/tech-samsung-tabs7.jpg)
 
 **GALAXY TAB S7 y TAB S7+**
 
-Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7 y Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y **Samsung Notes** completamente renovados.
+Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7** (modelo en la imagen de arriba) y** Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y **Samsung Notes** completamente renovados.
 
 Estará disponible en color **Mystic Bronze**.
 
@@ -153,17 +155,17 @@ Estará disponible en color **Mystic Bronze**.
 
 **GALAXY WATCH3**
 
-Te ayuda a administrar rutinas, sobrepasar objetivos de acondicionamiento físico y mantenerte alerta de tu salud. Estéticamente no ves un reloj deportivo, sino uno muy estiloso que puedes usar perfectamente de día, de noche y cuando entrenas. 
+El **Galaxy Watch3** (modelo en la imagen de arriba) te ayuda a administrar rutinas, sobrepasar objetivos de acondicionamiento físico y mantenerte alerta de tu salud. Estéticamente no ves un reloj deportivo, sino uno muy estiloso que puedes usar perfectamente de día, de noche y cuando entrenas. 
 
 Mantiene el bisel y está blindado con una serie de sensores para, por ejemplo, medir la saturación de oxígeno, medición del VO2 Max, cuenta con un detector de caídas, etc. Todas características que solemos ver en relojes inteligentes. 
 
 Estará disponible en color **Mystic Silver** y **Mystic Black**.
 
-![null](/images/uploads/tech-samsung-galaxy-z-fold-2.jpg)
+![](/images/uploads/tech-samsung-galaxy-z-fold-2.jpg)
 
 **GALAXY Z FOLD2**
 
-La nueva generación de plegables en el mundo viene con 2 pantallas Infinity-O de borde a borde, casi sin bisel. La pantalla de la cubierta es de 6,2” y una pantalla principal masiva de 7,6”, lo que hace que ambos sean más grandes que la anterior versión Galaxy Fold.
+La nueva generación de plegables (modelo en la imagen de arriba) en el mundo viene con 2 pantallas Infinity-O de borde a borde, casi sin bisel. La pantalla de la cubierta es de 6,2” y una pantalla principal masiva de 7,6”, lo que hace que ambos sean más grandes que la anterior versión Galaxy Fold.
 
 Viene en colores **Mystic Black** y **Mystic Bronze**. 
 
