@@ -6,7 +6,7 @@ image: /images/uploads/tech-ecosystemppal2.jpg
 rating: '1'
 tags:
   - Galaxy Note20
-  - Note20Ultra
+  - Note20 Ultra
   - Samsung Event
   - Galaxy Buds Live
   - Galaxy Watch3
