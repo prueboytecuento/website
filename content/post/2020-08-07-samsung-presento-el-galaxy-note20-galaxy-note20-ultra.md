@@ -61,7 +61,7 @@ Sé que es latero leer el detalle de las cámaras, pero a algunos consumidores l
 
 Estará disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**.
 
-![](/images/uploads/tech-sansumg-note20.jpg)
+![null](/images/uploads/tech-sansumg-note20.jpg)
 
 > **GALAXY NOTE 20**
 
@@ -101,7 +101,7 @@ Ni hablar de su capacidad de reescribir los apuntes y dejarlos con letra legible
 
 El **S Pen** (modelo en la imagen de arriba) tiene además la capacidad de moverte por todas las apps que tengas abiertas. Pones el lápiz en la parte superior de celular y lo deslizas hacia abajo. 
 
-Un detalle que me hace ruido es que ahora el lápiz se guarda en el extremo inferior izquierdo. Cuando estaba en el derecho lo sacabas de una sola vez con la mano derecha. Lo más probables es que ahora tengas que cambiar el teléfono de mano, sacar el **S Pen**, volverlo a la mano izquierda y usarlo. 
+Un detalle que me hace ruido es que ahora el lápiz se guarda en el extremo inferior izquierdo. Cuando estaba en el derecho lo sacabas de una sola vez con la mano derecha. Lo más probables es que ahora tengas que cambiar el teléfono de mano, sacar el **S Pen**, volverlo a la mano izquierda y usarlo. Link video https://youtu.be/DWRcNpR6Kdc
 
 ![null](/images/uploads/tech-samsung-buds-live.jpg)
 
@@ -159,9 +159,9 @@ El **Galaxy Watch3** (modelo en la imagen de arriba) te ayuda a administrar ruti
 
 Mantiene el bisel y está blindado con una serie de sensores para, por ejemplo, medir la saturación de oxígeno, medición del VO2 Max, cuenta con un detector de caídas, etc. Todas características que solemos ver en relojes inteligentes. 
 
-Estará disponible en color **Mystic Silver** y **Mystic Black**.
+Estará disponible en color **Mystic Silver** y **Mystic Black**. Link video https://youtu.be/P4YuzFSIbJM
 
-![](/images/uploads/tech-samsung-galaxy-z-fold-2.jpg)
+![null](/images/uploads/tech-samsung-galaxy-z-fold-2.jpg)
 
 **GALAXY Z FOLD2**
 
