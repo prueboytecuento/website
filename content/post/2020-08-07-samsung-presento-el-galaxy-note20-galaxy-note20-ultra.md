@@ -1,5 +1,5 @@
 ---
-title: 'Samsung presentó el Galaxy Note20, Galaxy Note20 Ultra'
+title: Samsung presentó el Galaxy Note20 y Galaxy Note20 Ultra
 showonlyimage: true
 date: '2020-08-05T15:06:00-04:00'
 image: /images/uploads/tech-ecosystemppal2.jpg
@@ -100,7 +100,7 @@ Estará disponible en color **Mystic Bronze**, **Mystic Green** y **Mystic Gray*
 
 Los Galaxy Note20 y Note20 Ultra tienen una precisión más realista. Dan exactitud y rápida capacidad de respuesta. Puedes hacer comentarios o dibujar sobre un “papel en blanco” o sobre un documento ya existente sin problema. Editar, anotar y resaltar PDF o presentaciones de Microsoft PowerPoint, por ejemplo.
 
-Ni hablar de su capacidad de reescribir los apuntes y dejarlos con letra legible… ¿Será que el **S Pen** va a entender mi letra? Jajajá.
+Ni hablar de su capacidad de reescribir los apuntes y dejarlos con letra legible. ¿Será que el **S Pen** va a entender mi letra? Jajajá.
 
 El **S Pen** (modelo en la imagen de arriba) tiene además la capacidad de moverte por todas las apps que tengas abiertas. Pones el lápiz en la parte superior de celular y lo deslizas hacia abajo. 
 
