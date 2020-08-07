@@ -61,6 +61,8 @@ Sé que es latero leer el detalle de las cámaras, pero a algunos consumidores l
 
 Estará disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**.
 
+Link video https://youtu.be/JSHt-pvTK8g
+
 ![null](/images/uploads/tech-sansumg-note20.jpg)
 
 > **GALAXY NOTE 20**
