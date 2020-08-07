@@ -152,7 +152,7 @@ Me quiero detener en el procesador porque no es el mismo para todos los países 
 
 Son dos tablets versátiles que combinan la capacidad de un PC, la flexibilidad de una tablet y la conectividad de un Smartphone. **Tab S7** (modelo en la imagen de arriba) y **Tab S7+** cuentan con pantallas de 11” y 12.4”, respectivamente, ambas con una tasa de refresco de 120Hz. Tienen teclado, **S Pen** y **Samsung Notes** completamente renovados.
 
-Estará disponible en color **Mystic Bronze**.
+Estará disponible en color **Mystic Bronze**. El Mystic Black de la foto es sólo referencial.
 
 ![null](/images/uploads/tech-samsung-watch3.jpg)
 
