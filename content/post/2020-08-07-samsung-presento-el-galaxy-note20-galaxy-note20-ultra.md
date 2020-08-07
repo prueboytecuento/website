@@ -5,14 +5,15 @@ date: '2020-08-05T15:06:00-04:00'
 image: /images/uploads/tech-ecosystemppal2.jpg
 rating: '1'
 tags:
-  - '#GalaxyNote20'
-  - '#Note20'
-  - '#SamsungEvent'
+  - Galaxy Note20
+  - Note20 Ultra
+  - Samsung Event
   - Galaxy Buds Live
-  - Galaxy Watch Active 3
-  - Galaxy Watch3 y Galaxy Buds Live
+  - Galaxy Watch3
+  - Galaxy Buds Live
+  - Galaxy Z Fold2
   - Unpacked
-  - Unpacked2020
+  - Unpacked 2020
 categories:
   - TECH
 weight: '1'
