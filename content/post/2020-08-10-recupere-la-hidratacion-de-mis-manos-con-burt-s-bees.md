@@ -34,7 +34,7 @@ Y ni hablar de esta temporada con el uso frecuente de alcohol gel. Manos-lija, j
 
 Es muy distinta a las que había usado antes. Es un producto full concentrado y algo duro al tacto. Manteca pura que se derrite con el calor de las manos, las deja aceitosas por unos minutos y, luego, se absorbe totalmente. Lo bacán es que puedes lavarte las manos varias veces y siguen protegidas con una capita de crema.
 
-![Y ni hablar de esta temporada con el uso frecuente de alcohol gel. Manos-lija, jajajá. Me imagino que a todos nos ha sucedido lo mismo y, en ese sentido, el uso de esta Crema Reparadora de Manos Burt’s Bees.](/images/uploads/review-bb-crema2.jpg)
+![Crema Reparadora de Manos Burt’s Bees.](/images/uploads/review-bb-crema2.jpg)
 
 Es con manteca de cacao y karité. A este último fruto lo llaman “oro africano” porque el efecto es mágicamente inmediato donde sea que lo uses (pelo, manos, cuerpo, etc.), tiene vitaminas A, D, E, F y es rico en ácidos grasos. 
 
@@ -48,9 +48,9 @@ Probé otros 2 productos de Burt’s Bees pero para hidratar labios. Ya había u
 
 ![Lip Shimmer.](/images/uploads/review-bb-ba-lsamo-rosa.jpg)
 
-Probé un segundo bálsamo que no conocía y me mega encantó, porque además de proteger los labios da un color nacarado y es mentolado. Se llama  ($6.990) y está en distintas variedades frutosas, pero no huele a frutas… Ideal para mí. Me apliqué el strawberry cuyo tono es palo rosa. Lindo.
+Probé un segundo bálsamo que no conocía y me mega encantó, porque además de proteger los labios da un color nacarado y es mentolado. Se llama **Lip Shimmer** ($6.990) y está en distintas variedades frutosas, pero no huele a frutas… Ideal para mí. Me apliqué el strawberry cuyo tono es palo rosa (el primero de la foto de abajo). Lindo.
 
-![](/images/uploads/reviews-bb-lip-shimmer-tonos-.jpg)
+![Tonos de los bálsamos Lip Shimmer.](/images/uploads/reviews-bb-lip-shimmer-tonos-.jpg)
 
 Burt’s Bees no usa poductos químicos en su elaboración y se preocupa que las materias primas naturales que usa sean sustentables. No testean en animales. 
 
