@@ -17,7 +17,7 @@ tags:
   - Karité
   - Cacao
   - Coco
-  - Avejas
+  - Abejas
   - Bees
   - Cruelty Free
   - Materias primas vegetales
