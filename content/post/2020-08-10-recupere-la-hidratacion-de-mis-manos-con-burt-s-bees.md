@@ -50,7 +50,7 @@ Probé otros 2 productos de Burt’s Bees pero para hidratar labios. Ya había u
 
 Probé un segundo bálsamo que no conocía y me mega encantó, porque además de proteger los labios da un color nacarado y es mentolado. Se llama **Lip Shimmer** ($6.990) y está en distintas variedades frutosas, pero no huele a frutas… Ideal para mí. Me apliqué el strawberry cuyo tono es palo rosa (el primero de la foto de abajo). Lindo.
 
-![Tonos de los bálsamos Lip Shimmer.](/images/uploads/reviews-bb-lip-shimmer-tonos-.jpg)
+![Tonos de los bálsamos Lip Shimmer.](/images/uploads/review-bb-lip-shimmer-tonos-.jpg)
 
 Burt’s Bees no usa poductos químicos en su elaboración y se preocupa que las materias primas naturales que usa sean sustentables. No testean en animales. 
 
