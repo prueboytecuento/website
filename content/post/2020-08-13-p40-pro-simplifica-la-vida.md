@@ -24,7 +24,7 @@ categories:
   - TECH
 weight: '1'
 ---
-Escribir de tecnología es interesante. Mis reviews son siempre desde mi experiencia como periodista-consumidora, no desde una postura absoluta de “crítica de” o “experta en”. O sea, aquí van a leer cómo funciona en la práctica el smartphone de **Huawei**, no sólo especificaciones abrumadoras. 
+Escribir de tecnología es interesante. Mis reviews son siempre desde mi experiencia como periodista-consumidora, no desde una postura absoluta de “crítica de” o “experta en”. O sea, aquí van a leer cómo funciona en la práctica el smartphone de \*\*Huawei\*\*, no sólo especificaciones abrumadoras. 
 
 <!--more-->
 
@@ -58,9 +58,9 @@ Hice un video en uno de los tantos tipos de **Cámara Lenta** que tiene el equip
 
 El **32X (960fps)** es ideal para grabar lluvia cayendo, así es que hace unas semanas hice un video bajo ésta y un segundo video con el movimientos de aceite y agua con tinta roja en un vaso. En mi canal de **Youtube, Pruebo y te cuento** están ambos videos. **Aquí los links:** 
 
-\-**Líquido rojo** https://youtu.be/Y2kOwzdbvfc
+\-**Líquido rojo **https://youtu.be/Y2kOwzdbvfc
 
-\-**Lluvia** https://youtu.be/7DgsyhiQ-Xs
+\-**Lluvia** https://youtu.be/Z3S8vpnSyMA
 
 ![null](/images/uploads/review-p40-pro-ca-marappl.jpg)
 
