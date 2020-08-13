@@ -38,6 +38,8 @@ Abro fuegos con el bloqueo de Estados Unidos para impedir que \*\*Google\*\* est
 
 \*\*¡Buenas noticias!\*\* Apenas comencé a cachurear el teléfono fui directo a \*\*App Gallery\*\* (3er tienda mundial de apps) y los productos Google estaban ahí. A un clic. Descargué sin problemas el buscador y lo predeterminé, tengo instalado mi Gmail como principal y ahora puedo administrar mis fotos y videos en el \*\*P40 Pro\*\* porque también pude bajar \*\*Google Fotos\*\*. 
 
+![](/images/uploads/dato-di-a-del-padre-p40-pro.jpg)
+
 Por los reviews para \*\*Pruebo y te cuento\*\* necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 años uso Google Fotos en el \*\*iPhone\*\*, \*\*Mac\*\*, \*\*Ipad\*\* y ahora en el P40 Pro. Sí… Soy consumidora estable de \*\*IOS\*\*, pero reconozco en imagen y video Huawei es inmensamente superior. 
 
 \> \*\*CÁMARAS LEICA\*\*
@@ -69,6 +71,8 @@ El \*\*32X (960fps)\*\* es ideal para grabar lluvia cayendo, así es que hace un
 \-\*\*Líquido rojo\*\* https://youtu.be/Y2kOwzdbvfc
 
 \-\*\*Lluvia\*\* 
+
+![](/images/uploads/review-p40-pro-ca-marappl.jpg)
 
 Ojo que la IA también nos ayuda a buscar productos para comprar porque es capaz de reconocer objetos. O sea, quiero comprar una mochila de X marca y X características, pero no sé dónde la venden, pongo mi smartphone sobre una foto del artículo (en una revista) y el teléfono te da las coordenadas de las tiendas en donde la venden. Súper útil. 
 
@@ -102,6 +106,8 @@ En el primer párrafo les dije que no los iba a abrumar con especificaciones del
 
 Para las radios me dio la alternativa de Radios de Chile, en \*\*Microsoft Office\*\* descargué en una sola app (\*\*Word\*\*, \*\*Excel\*\* y \*\*Power Point\*\*. Los documentos los puedo guardar en PDF. 
 
+![](/images/uploads/f-review-p40-procollage-ok.jpg)
+
 \> \*\*ESTÉTICA\*\*
 
 \>
@@ -119,6 +125,8 @@ Para las radios me dio la alternativa de Radios de Chile, en \*\*Microsoft Offic
 \-Me pasa algo similar con la \*\*isla de cámaras posteriores\*\*. Sobresale lo suficiente como para ganarse un rayón involutantario. Es un rectángulo tipo ficha de dominó en donde cohabitan las \*\*4 cámaras\*\* y \*\*flash\*\*. Ya no tiene forma de semáforo como el P30 Pro. Se entiende que por un tema técnico las cámaras no puedan quedar planas, así es que sólo queda ser muy cuidadosos. 
 
 \-El equipo está en 2 colores, \*\*Silver Frost\*\* y \*\*Deep Sea Blue\*\*. 
+
+![](/images/uploads/review-p40-pro-equipo.jpg)
 
 \> \*\*FUNCIONALIDAD\*\*
 
