@@ -52,15 +52,15 @@ Si fotografío comida, la **IA** la identifica y te da la **opción COMIDA**. Mi
 
 ![null](/images/uploads/review-p40-pro-queque.jpg)
 
-**A saber:** el P40 Pro cuenta con modo fotográfico de **Apertura**, **Noche**\*\* para las imágenes con poca luz, **Retrato**, **Foto**, **Foto Profesional**, entre muchas otras. En cuanto a \*\*Video\*\* (puedes mejorarlo en la función \*\*Belleza\*\*), \*\*Video en Cámara Lenta\*\*, \*\*Panorámica\*\*, \*\*Monocromáticos\*\* y más. 
+**A saber:** el P40 Pro cuenta con modo fotográfico de **Apertura**, **Noche** para las imágenes con poca luz, **Retrato**, **Foto**, **Foto Profesional**, entre muchas otras. En cuanto a **Video** (puedes mejorarlo en la función **Belleza**), **Video en Cámara Lenta**, **Panorámica**, **Monocromáticos** y más. 
 
-Hice un video en uno de los tantos tipos de \*\*Cámara Lenta\*\* que tiene el equipo. En el \*\*Ultra Slow Motion de 32X (960fps)\*\*, que en lenguaje sencillo significa que la cámara capta el movimiento que estás grabando 32 veces más lento que en velocidad real. Y 960fps o frames quiere decir que la cámara hace 960 capturas por cada segundo de video. 
+Hice un video en uno de los tantos tipos de **Cámara Lenta** que tiene el equipo. En el **Ultra Slow Motion de 32X (960fps)**, que en lenguaje sencillo significa que la cámara capta el movimiento que estás grabando 32 veces más lento que en velocidad real. Y 960fps o frames quiere decir que la cámara hace 960 capturas por cada segundo de video. 
 
-El \*\*32X (960fps)\*\* es ideal para grabar lluvia cayendo, así es que hace unas semanas hice un video bajo ésta y un segundo video con el movimientos de aceite y agua con tinta roja en un vaso. En mi canal de \*\*Youtube, Pruebo y te cuento\*\* están ambos videos. \*\*Aquí los links:\*\* 
+El **32X (960fps)** es ideal para grabar lluvia cayendo, así es que hace unas semanas hice un video bajo ésta y un segundo video con el movimientos de aceite y agua con tinta roja en un vaso. En mi canal de **Youtube, Pruebo y te cuento** están ambos videos. **Aquí los links:** 
 
-\-\*\*Líquido rojo\*\* https://youtu.be/Y2kOwzdbvfc
+\-**Líquido rojo **https://youtu.be/Y2kOwzdbvfc
 
-\-\*\*Lluvia\*\* 
+\-**Lluvia** 
 
 ![null](/images/uploads/review-p40-pro-ca-marappl.jpg)
 
