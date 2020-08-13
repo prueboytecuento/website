@@ -46,13 +46,13 @@ Vamos al detalle fotográfico. Parto destacando que es un celular con **CUATRO**
 
 Desde que estamos encerrados por la pandemia me he dedicado a capturar los coloridos atardeceres que se han visto en Santiago. Y no soy la única. Basta darse una vuelta por las RRSS para ver una importante cantidad de registros de otros santiaguinos. 
 
-¿La diferencia? El P40 Pro capta y potencia los colores de las imágenes automaticamente. **No hubo retoques ni efectos**. Fotos nítidas producto de la conjugación que existe entre **cámaras profesionales** e **Inteligencia Artificial**. 
+¿La diferencia? El P40 Pro capta y potencia los colores de las imágenes automaticamente. **No hubo retoques ni efectos**. Fotos nítidas producto de la conjugación que existe entre **cámaras profesionales** e **Inteligencia Artificial (IA)**. 
 
-Si fotografío comida, la \*\*IA\*\* la identifica y te da la \*\*opción COMIDA\*\*. Mira la imagen del queque bañado en chocolate que hice. Se ve espectacular. 
+Si fotografío comida, la **IA** la identifica y te da la **opción COMIDA**. Mira la imagen del queque bañado en chocolate que hice. Se ve espectacular. 
 
 ![null](/images/uploads/review-p40-pro-queque.jpg)
 
-\*\*A saber:\*\* el P40 Pro cuenta con modo fotográfico de \*\*Apertura\*\*, \*\*Noche\*\* para las imágenes con poca luz, \*\*Retrato\*\*, \*\*Foto\*\*, \*\*Foto Profesional\*\*, entre muchas otras. En cuanto a \*\*Video\*\* (puedes mejorarlo en la función \*\*Belleza\*\*), \*\*Video en Cámara Lenta\*\*, \*\*Panorámica\*\*, \*\*Monocromáticos\*\* y más. 
+**A saber:** el P40 Pro cuenta con modo fotográfico de **Apertura**, **Noche**\*\* para las imágenes con poca luz, **Retrato**, **Foto**, **Foto Profesional**, entre muchas otras. En cuanto a \*\*Video\*\* (puedes mejorarlo en la función \*\*Belleza\*\*), \*\*Video en Cámara Lenta\*\*, \*\*Panorámica\*\*, \*\*Monocromáticos\*\* y más. 
 
 Hice un video en uno de los tantos tipos de \*\*Cámara Lenta\*\* que tiene el equipo. En el \*\*Ultra Slow Motion de 32X (960fps)\*\*, que en lenguaje sencillo significa que la cámara capta el movimiento que estás grabando 32 veces más lento que en velocidad real. Y 960fps o frames quiere decir que la cámara hace 960 capturas por cada segundo de video. 
 
