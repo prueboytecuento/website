@@ -68,7 +68,7 @@ Ojo que la IA también nos ayuda a buscar productos para comprar porque es capaz
 
 En el primer párrafo les dije que no los iba a abrumar con especificaciones del equipo, pero me parece útil que sepan qué cámaras trae el P40 Pro de Huawei: 
 
-\*\*Cámaras Traseras \*\*
+**Cámaras Traseras**
 
 \-Sensor RYYB 50 MP, f/1.9, (1/1,28"), OIS. 
 
@@ -78,7 +78,7 @@ En el primer párrafo les dije que no los iba a abrumar con especificaciones del
 
 \-Sensor ToF 3D. 
 
-\*\*Cámara Frontal \*\*
+**Cámara Frontal**
 
 \-32 megapíxeles, f/2.2. 
 
@@ -86,15 +86,11 @@ En el primer párrafo les dije que no los iba a abrumar con especificaciones del
 
 \-Vídeo 4K 60 fps. 
 
-\> \*\*APP GALLERY\*\*
+> **APP GALLERY**
 
-\>
+\-Cuando la publicidad asegura que **App Gallery** es un contundente banco de aplicaciones, es real. Lo que me gustó y que no está en mi iPhone es que agrupa por temas lo que quiero. Me explico, iba a bajar la app de Canal 13 y me dio la opción de TV Chile, en donde está hasta TV Educa Chile. 
 
-\> 
-
-\-Cuando la publicidad asegura que \*\*App Gallery\*\* es un contundente banco de aplicaciones, es real. Lo que me gustó y que no está en mi iPhone es que agrupa por temas lo que quiero. Me explico, iba a bajar la app de Canal 13 y me dio la opción de TV Chile, en donde está hasta TV Educa Chile. 
-
-Para las radios me dio la alternativa de Radios de Chile, en \*\*Microsoft Office\*\* descargué en una sola app (\*\*Word\*\*, \*\*Excel\*\* y \*\*Power Point\*\*. Los documentos los puedo guardar en PDF. 
+Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office** descargué en una sola app (**Word**, **Excel **y **Power Point**). Los documentos los puedo guardar en PDF. 
 
 ![null](/images/uploads/f-review-p40-procollage-ok.jpg)
 
