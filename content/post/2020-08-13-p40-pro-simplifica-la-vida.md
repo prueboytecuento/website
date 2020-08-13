@@ -36,13 +36,9 @@ Abro fuegos con el bloqueo de Estados Unidos para impedir que **Google** esté e
 
 ![null](/images/uploads/dato-di-a-del-padre-p40-pro.jpg)
 
-Por los reviews para \*\*Pruebo y te cuento\*\* necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 años uso Google Fotos en el \*\*iPhone\*\*, \*\*Mac\*\*, \*\*Ipad\*\* y ahora en el P40 Pro. Sí… Soy consumidora estable de \*\*IOS\*\*, pero reconozco en imagen y video Huawei es inmensamente superior. 
+Por los reviews para **Pruebo y te cuento** necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 años uso Google Fotos en el **iPhone**, **Mac**, **Ipad** y ahora en el P40 Pro. Sí… Soy consumidora estable de **IOS**, pero reconozco en imagen y video Huawei es inmensamente superior. 
 
-\> \*\*CÁMARAS LEICA\*\*
-
-\>
-
-\> 
+**CÁMARAS LEICA** 
 
 Vamos al detalle fotográfico. Parto destacando que es un celular con \*\*4 cámaras\*\*… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre \*\*Huawei\*\* y \*\*Leica\*\* (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
 
