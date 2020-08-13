@@ -58,7 +58,7 @@ Hice un video en uno de los tantos tipos de **Cámara Lenta** que tiene el equip
 
 El **32X (960fps)** es ideal para grabar lluvia cayendo, así es que hace unas semanas hice un video bajo ésta y un segundo video con el movimientos de aceite y agua con tinta roja en un vaso. En mi canal de **Youtube, Pruebo y te cuento** están ambos videos. **Aquí los links:** 
 
-\-**Líquido rojo **https://youtu.be/Y2kOwzdbvfc
+\-**Líquido rojo** https://youtu.be/Y2kOwzdbvfc
 
 \-**Lluvia** https://youtu.be/Z3S8vpnSyMA
 
@@ -90,7 +90,7 @@ En el primer párrafo les dije que no los iba a abrumar con especificaciones del
 
 \-Cuando la publicidad asegura que **App Gallery** es un contundente banco de aplicaciones, es real. Lo que me gustó y que no está en mi iPhone es que agrupa por temas lo que quiero. Me explico, iba a bajar la app de Canal 13 y me dio la opción de TV Chile, en donde está hasta TV Educa Chile. 
 
-Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office** descargué en una sola app (**Word**, **Excel **y **Power Point**). Los documentos los puedo guardar en PDF. 
+Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office** descargué en una sola app (**Word**, **Excel** y **Power Point**). Los documentos los puedo guardar en PDF. 
 
 ![null](/images/uploads/f-review-p40-procollage-ok.jpg)
 
