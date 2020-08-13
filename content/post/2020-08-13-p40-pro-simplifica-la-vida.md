@@ -116,9 +116,9 @@ Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office*
 
 \-Ya les conté que **tengo equipos IOS** y cada vez que conecto el **P40 Pro (Android)** a mi MacBook Pro me pide verificar la conexión con una **serie de 8 números** que me quitan tiempo. Ojo ahí cerebros tras Huawei… Un tema no menor para mejorar. 
 
-\-Con el **Audio Zoom** podemos escuchar lo que otros están hablando cuando hacemos zoom sobre una persona. Algo similar promete el \*\*Galaxy Note20 Ultra\*\*, pero no puedo garantizar esta información porque aún no lo pruebo. 
+\-Con el **Audio Zoom** podemos escuchar lo que otros están hablando cuando hacemos zoom sobre una persona. Algo similar promete el **Galaxy Note20 Ultra**, pero no puedo garantizar esta información porque aún no lo pruebo. 
 
-\-\*\*Celia, la secretaria del P40 Pro\*\*. El sistema operativo \*\*EMUI 10.1\*\*, al igual que en otros celulares Huawei, ayuda a tener control sobre el permiso de la aplicación y protege tu información. La gran novedad se llama Celia que vendría siendo lo que Siri es para iPhone o Alexa para Amazon. Esta asistente telefónica habla español, francés e inglés. 
+\-**Celia, la secretaria del P40 Pro**. El sistema operativo **EMUI 10.1**, al igual que en otros celulares Huawei, ayuda a tener control sobre el permiso de la aplicación y protege tu información. La gran novedad se llama Celia que vendría siendo lo que Siri es para iPhone o Alexa para Amazon. Esta asistente telefónica habla español, francés e inglés. 
 
 \-Este Android funciona con el procesador Kirin 990, GPU Mali-G76. Tiene capacidad de almacenamiento de 256 GB + tarjeta NM, 8 GB RAM y la bateria es de 4.200 mAh: carga rápida 40W, carga inalámbrica 27W y carga inalámbrica inversa. 
 
