@@ -46,7 +46,7 @@ Vamos al detalle fotográfico. Parto destacando que es un celular con **CUATRO**
 
 Desde que estamos encerrados por la pandemia me he dedicado a capturar los coloridos atardeceres que se han visto en Santiago. Y no soy la única. Basta darse una vuelta por las RRSS para ver una importante cantidad de registros de otros santiaguinos. 
 
-¿La diferencia? El P40 Pro capta y potencia los colores de las imágenes automaticamente. \*\*No hubo retoques ni efectos\*\*. Fotos nítidas producto de la conjugación que existe entre \*\*cámaras profesionales\*\* e \*\*Inteligencia Artifical\*\*. 
+¿La diferencia? El P40 Pro capta y potencia los colores de las imágenes automaticamente. **No hubo retoques ni efectos**. Fotos nítidas producto de la conjugación que existe entre **cámaras profesionales** e **Inteligencia Artificial**. 
 
 Si fotografío comida, la \*\*IA\*\* la identifica y te da la \*\*opción COMIDA\*\*. Mira la imagen del queque bañado en chocolate que hice. Se ve espectacular. 
 
