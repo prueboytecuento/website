@@ -28,17 +28,13 @@ Escribir de tecnología es interesante. Mis reviews son siempre desde mi experie
 
 <!--more-->
 
-\> \*\*FACTOR GOOGLE\*\*
+> **FACTOR GOOGLE**
 
-\>
-
-\> 
-
-Abro fuegos con el bloqueo de Estados Unidos para impedir que \*\*Google\*\* esté en los teléfonos de la compañía China. Estoy segura que varios de ustedes se han cuestionado si comprar o no uno de estos equipos porque TODOS navegamos en su completo buscador, algunos tenemos cuenta \*\*Gmail\*\*, usamos \*\*Google Maps\*\*, etc. 
+Abro fuegos con el bloqueo de Estados Unidos para impedir que **Google** esté en los teléfonos de la compañía China. Estoy segura que varios de ustedes se han cuestionado si comprar o no uno de estos equipos porque TODOS navegamos en su completo buscador, algunos tenemos cuenta **Gmail**, usamos **Google Maps**, etc. 
 
 \*\*¡Buenas noticias!\*\* Apenas comencé a cachurear el teléfono fui directo a \*\*App Gallery\*\* (3er tienda mundial de apps) y los productos Google estaban ahí. A un clic. Descargué sin problemas el buscador y lo predeterminé, tengo instalado mi Gmail como principal y ahora puedo administrar mis fotos y videos en el \*\*P40 Pro\*\* porque también pude bajar \*\*Google Fotos\*\*. 
 
-![](/images/uploads/dato-di-a-del-padre-p40-pro.jpg)
+![null](/images/uploads/dato-di-a-del-padre-p40-pro.jpg)
 
 Por los reviews para \*\*Pruebo y te cuento\*\* necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 años uso Google Fotos en el \*\*iPhone\*\*, \*\*Mac\*\*, \*\*Ipad\*\* y ahora en el P40 Pro. Sí… Soy consumidora estable de \*\*IOS\*\*, pero reconozco en imagen y video Huawei es inmensamente superior. 
 
@@ -50,9 +46,7 @@ Por los reviews para \*\*Pruebo y te cuento\*\* necesito tener mi material de tr
 
 Vamos al detalle fotográfico. Parto destacando que es un celular con \*\*4 cámaras\*\*… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre \*\*Huawei\*\* y \*\*Leica\*\* (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
 
-![](/images/uploads/review-p4o-pro-paisaje-colorido.jpg)
-
-
+![null](/images/uploads/review-p4o-pro-paisaje-colorido.jpg)
 
 Desde que estamos encerrados por la pandemia me he dedicado a capturar los coloridos atardeceres que se han visto en Santiago. Y no soy la única. Basta darse una vuelta por las RRSS para ver una importante cantidad de registros de otros santiaguinos. 
 
@@ -60,7 +54,7 @@ Desde que estamos encerrados por la pandemia me he dedicado a capturar los color
 
 Si fotografío comida, la \*\*IA\*\* la identifica y te da la \*\*opción COMIDA\*\*. Mira la imagen del queque bañado en chocolate que hice. Se ve espectacular. 
 
-![](/images/uploads/review-p40-pro-queque.jpg)
+![null](/images/uploads/review-p40-pro-queque.jpg)
 
 \*\*A saber:\*\* el P40 Pro cuenta con modo fotográfico de \*\*Apertura\*\*, \*\*Noche\*\* para las imágenes con poca luz, \*\*Retrato\*\*, \*\*Foto\*\*, \*\*Foto Profesional\*\*, entre muchas otras. En cuanto a \*\*Video\*\* (puedes mejorarlo en la función \*\*Belleza\*\*), \*\*Video en Cámara Lenta\*\*, \*\*Panorámica\*\*, \*\*Monocromáticos\*\* y más. 
 
@@ -72,7 +66,7 @@ El \*\*32X (960fps)\*\* es ideal para grabar lluvia cayendo, así es que hace un
 
 \-\*\*Lluvia\*\* 
 
-![](/images/uploads/review-p40-pro-ca-marappl.jpg)
+![null](/images/uploads/review-p40-pro-ca-marappl.jpg)
 
 Ojo que la IA también nos ayuda a buscar productos para comprar porque es capaz de reconocer objetos. O sea, quiero comprar una mochila de X marca y X características, pero no sé dónde la venden, pongo mi smartphone sobre una foto del artículo (en una revista) y el teléfono te da las coordenadas de las tiendas en donde la venden. Súper útil. 
 
@@ -106,7 +100,7 @@ En el primer párrafo les dije que no los iba a abrumar con especificaciones del
 
 Para las radios me dio la alternativa de Radios de Chile, en \*\*Microsoft Office\*\* descargué en una sola app (\*\*Word\*\*, \*\*Excel\*\* y \*\*Power Point\*\*. Los documentos los puedo guardar en PDF. 
 
-![](/images/uploads/f-review-p40-procollage-ok.jpg)
+![null](/images/uploads/f-review-p40-procollage-ok.jpg)
 
 \> \*\*ESTÉTICA\*\*
 
@@ -126,7 +120,7 @@ Para las radios me dio la alternativa de Radios de Chile, en \*\*Microsoft Offic
 
 \-El equipo está en 2 colores, \*\*Silver Frost\*\* y \*\*Deep Sea Blue\*\*. 
 
-![](/images/uploads/review-p40-pro-equipo.jpg)
+![null](/images/uploads/review-p40-pro-equipo.jpg)
 
 \> \*\*FUNCIONALIDAD\*\*
 
