@@ -38,7 +38,8 @@ Abro fuegos con el bloqueo de Estados Unidos para impedir que **Google** esté e
 
 Por los reviews para **Pruebo y te cuento** necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 años uso Google Fotos en el **iPhone**, **Mac**, **Ipad** y ahora en el P40 Pro. Sí… Soy consumidora estable de **IOS**, pero reconozco en imagen y video Huawei es inmensamente superior. 
 
-**CÁMARAS LEICA** 
+> **CÁMARAS LEICA**
+ 
 
 Vamos al detalle fotográfico. Parto destacando que es un celular con **CUATRO** traseras y **UNA** frontal… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre **Huawei** y **Leica** (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
 
@@ -58,7 +59,7 @@ Hice un video en uno de los tantos tipos de **Cámara Lenta** que tiene el equip
 
 El **32X (960fps)** es ideal para grabar lluvia cayendo, así es que hace unas semanas hice un video bajo ésta y un segundo video con el movimientos de aceite y agua con tinta roja en un vaso. En mi canal de **Youtube, Pruebo y te cuento** están ambos videos. **Aquí los links:** 
 
-\-**Líquido rojo **https://youtu.be/Y2kOwzdbvfc
+\-**Líquido rojo** https://youtu.be/Y2kOwzdbvfc
 
 \-**Lluvia** https://youtu.be/Z3S8vpnSyMA
 
@@ -90,7 +91,7 @@ En el primer párrafo les dije que no los iba a abrumar con especificaciones del
 
 \-Cuando la publicidad asegura que **App Gallery** es un contundente banco de aplicaciones, es real. Lo que me gustó y que no está en mi iPhone es que agrupa por temas lo que quiero. Me explico, iba a bajar la app de Canal 13 y me dio la opción de TV Chile, en donde está hasta TV Educa Chile. 
 
-Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office** descargué en una sola app (**Word**, **Excel **y **Power Point**). Los documentos los puedo guardar en PDF. 
+Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office** descargué en una sola app (**Word**, **Excel** y **Power Point**). Los documentos los puedo guardar en PDF. 
 
 ![null](/images/uploads/f-review-p40-procollage-ok.jpg)
 
