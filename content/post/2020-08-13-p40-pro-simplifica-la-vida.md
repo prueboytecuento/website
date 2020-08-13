@@ -32,7 +32,7 @@ Escribir de tecnología es interesante. Mis reviews son siempre desde mi experie
 
 Abro fuegos con el bloqueo de Estados Unidos para impedir que **Google** esté en los teléfonos de la compañía China. Estoy segura que varios de ustedes se han cuestionado si comprar o no uno de estos equipos porque TODOS navegamos en su completo buscador, algunos tenemos cuenta **Gmail**, usamos **Google Maps**, etc. 
 
-\*\*¡Buenas noticias!\*\* Apenas comencé a cachurear el teléfono fui directo a \*\*App Gallery\*\* (3er tienda mundial de apps) y los productos Google estaban ahí. A un clic. Descargué sin problemas el buscador y lo predeterminé, tengo instalado mi Gmail como principal y ahora puedo administrar mis fotos y videos en el \*\*P40 Pro\*\* porque también pude bajar \*\*Google Fotos\*\*. 
+**¡Buenas noticias!** Apenas comencé a cachurear el teléfono fui directo a **App Gallery** (3er tienda mundial de apps) y los productos Google estaban ahí. A un clic. Descargué sin problemas el buscador y lo predeterminé, tengo instalado mi Gmail como principal y ahora puedo administrar mis fotos y videos en el **P40 Pro** porque también pude bajar **Google Fotos**. 
 
 ![null](/images/uploads/dato-di-a-del-padre-p40-pro.jpg)
 
