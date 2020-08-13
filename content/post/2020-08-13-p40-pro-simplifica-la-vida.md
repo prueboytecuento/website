@@ -120,6 +120,6 @@ Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office*
 
 \-**Celia, la secretaria del P40 Pro**. El sistema operativo **EMUI 10.1**, al igual que en otros celulares Huawei, ayuda a tener control sobre el permiso de la aplicación y protege tu información. La gran novedad se llama Celia que vendría siendo lo que Siri es para iPhone o Alexa para Amazon. Esta asistente telefónica habla español, francés e inglés. 
 
-\-Este Android funciona con el procesador Kirin 990, GPU Mali-G76. Tiene capacidad de almacenamiento de 256 GB + tarjeta NM, 8 GB RAM y la bateria es de 4.200 mAh: carga rápida 40W, carga inalámbrica 27W y carga inalámbrica inversa. 
+\-Este Android funciona con el **procesador Kirin 990,** GPU Mali-G76. Tiene capacidad de **almacenamiento de 256 GB** + tarjeta NM, **8 GB RAM** y la **bateria es de 4.200 mAh**: carga rápida 40W, carga inalámbrica 27W y carga inalámbrica inversa. 
 
-El P40 Pro tiene un valor cercano a los $950.000 y está a la venta en el retail, tiendas de telefonía movil, supermercado Lider y más. #SOYprueboytecuento
+El P40 Pro tiene un valor cercano a los **$950.000** y está a la venta en el retail, tiendas de telefonía movil, supermercado Lider y más. #SOYprueboytecuento
