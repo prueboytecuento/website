@@ -60,7 +60,7 @@ El **32X (960fps)** es ideal para grabar lluvia cayendo, así es que hace unas s
 
 \-**Líquido rojo** https://youtu.be/Y2kOwzdbvfc
 
-\-**Lluvia** 
+\-**Lluvia** https://youtu.be/7DgsyhiQ-Xs
 
 ![null](/images/uploads/review-p40-pro-ca-marappl.jpg)
 
