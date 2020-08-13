@@ -1,5 +1,5 @@
 ---
-title: 'P40 Pro, celular que simplifica la vida y llena de color'
+title: 'P40 Pro, simplifica la vida y llena de color'
 showonlyimage: true
 date: '2020-08-13T15:31:04-04:00'
 image: /images/uploads/review-p40-pro-ppal.jpg
