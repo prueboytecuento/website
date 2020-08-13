@@ -94,37 +94,29 @@ Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office*
 
 ![null](/images/uploads/f-review-p40-procollage-ok.jpg)
 
-\> \*\*ESTÉTICA\*\*
-
-\>
-
-\> 
+> **ESTÉTICA**
 
 \-El P40 Pro es un aparato robusto, con acabados mate y brillo. Mate en la parte posterior por una sola razón: que las huella se marquen menos. Tal cual. ¿Innecesario? A mi me carga tener el teléfono sucio así es que este acabado me viene bien. 
 
-\-Es un smartphone que \*\*se resbala mucho\*\* y me preocupa que termine en el suelo. Es lindo estéticamente y me encanta lucirlo pero lo más sensato es ponerle una carcasa. Ojo que en caso que tu teléfono se de un porrazo, el protector de vidrio que trae en la parte frontal va a ayudar a que el golpe no quiebre la pantalla. 
+\-Es un smartphone que **se resbala mucho** y me preocupa que termine en el suelo. Es lindo estéticamente y me encanta lucirlo pero lo más sensato es ponerle una carcasa. Ojo que en caso que tu teléfono se de un porrazo, el protector de vidrio que trae en la parte frontal va a ayudar a que el golpe no quiebre la pantalla. 
 
 \-Los 4 bordes de la pantalla son curvos. 
 
-\-El \*\*sensor de huella digital\*\* y \*\*botonera de números\*\* están bien ubicados en la pantalla. No es difícil tomarlo solamente con una mano para activarlo porque están en las parte media- inferior del teléfono. 
+\-El sensor de **huella digital** y **botonera de números** están bien ubicados en la pantalla. No es difícil tomarlo solamente con una mano para activarlo porque están en las parte media- inferior del teléfono. 
 
-\-Me pasa algo similar con la \*\*isla de cámaras posteriores\*\*. Sobresale lo suficiente como para ganarse un rayón involutantario. Es un rectángulo tipo ficha de dominó en donde cohabitan las \*\*4 cámaras\*\* y \*\*flash\*\*. Ya no tiene forma de semáforo como el P30 Pro. Se entiende que por un tema técnico las cámaras no puedan quedar planas, así es que sólo queda ser muy cuidadosos. 
+\-Me pasa algo similar con la **isla de cámaras posteriores**. Sobresale lo suficiente como para ganarse un rayón involutantario. Es un rectángulo tipo ficha de dominó en donde cohabitan las **4 cámaras** y **flash**. Ya no tiene forma de semáforo como el P30 Pro. Se entiende que por un tema técnico las cámaras no puedan quedar planas, así es que sólo queda ser muy cuidadosos. 
 
-\-El equipo está en 2 colores, \*\*Silver Frost\*\* y \*\*Deep Sea Blue\*\*. 
+\-El equipo está en 2 colores, **Silver Frost** y **Deep Sea Blue**. 
 
 ![null](/images/uploads/review-p40-pro-equipo.jpg)
 
-\> \*\*FUNCIONALIDAD\*\*
-
-\>
-
-\> 
+> **FUNCIONALIDAD**
 
 \-Si todos mis equipos son Huawei, tengo la opción de poner mi celular sobre la laptop e inmediatamente la info dede el teléfono al computador. 
 
-\-Ya les conté que \*\*tengo equipos IOS\*\* y cada vez que conecto el \*\*P40 Pro (Android)\*\* a mi MacBook Pro me pide verificar la conexión con una \*\*serie de 8 números\*\* que me quitan tiempo. Ojo ahí cerebros tras Huawei… Un tema no menor para mejorar. 
+\-Ya les conté que **tengo equipos IOS** y cada vez que conecto el **P40 Pro (Android)** a mi MacBook Pro me pide verificar la conexión con una **serie de 8 números** que me quitan tiempo. Ojo ahí cerebros tras Huawei… Un tema no menor para mejorar. 
 
-\-Con el \*\*Audio Zoom\*\* podemos escuchar lo que otros están hablando cuando hacemos zoom sobre una persona. Algo similar promete el \*\*Galaxy Note20 Ultra\*\*, pero no puedo garantizar esta información porque aún no lo pruebo. 
+\-Con el **Audio Zoom** podemos escuchar lo que otros están hablando cuando hacemos zoom sobre una persona. Algo similar promete el \*\*Galaxy Note20 Ultra\*\*, pero no puedo garantizar esta información porque aún no lo pruebo. 
 
 \-\*\*Celia, la secretaria del P40 Pro\*\*. El sistema operativo \*\*EMUI 10.1\*\*, al igual que en otros celulares Huawei, ayuda a tener control sobre el permiso de la aplicación y protege tu información. La gran novedad se llama Celia que vendría siendo lo que Siri es para iPhone o Alexa para Amazon. Esta asistente telefónica habla español, francés e inglés. 
 
