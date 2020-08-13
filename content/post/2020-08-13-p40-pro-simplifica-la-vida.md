@@ -24,7 +24,7 @@ categories:
   - TECH
 weight: '1'
 ---
-Escribir de tecnología es interesante. Mis reviews son siempre desde mi experiencia como periodista-consumidora, no desde una postura absoluta de “crítica de” o “experta en”. O sea, aquí van a leer cómo funciona en la práctica el smartphone de \*\*Huawei\*\*, no sólo especificaciones abrumadoras. 
+Escribir de tecnología es interesante. Mis reviews son siempre desde mi experiencia como periodista-consumidora, no desde una postura absoluta de “crítica de” o “experta en”. O sea, aquí van a leer cómo funciona en la práctica el smartphone de **Huawei**, no sólo especificaciones abrumadoras. 
 
 <!--more-->
 
