@@ -58,7 +58,7 @@ Hice un video en uno de los tantos tipos de **Cámara Lenta** que tiene el equip
 
 El **32X (960fps)** es ideal para grabar lluvia cayendo, así es que hace unas semanas hice un video bajo ésta y un segundo video con el movimientos de aceite y agua con tinta roja en un vaso. En mi canal de **Youtube, Pruebo y te cuento** están ambos videos. **Aquí los links:** 
 
-\-**Líquido rojo **https://youtu.be/Y2kOwzdbvfc
+\-**Líquido rojo** https://youtu.be/Y2kOwzdbvfc
 
 \-**Lluvia** 
 
