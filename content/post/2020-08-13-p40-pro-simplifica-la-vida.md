@@ -1,11 +1,25 @@
 ---
-title: 'P40 Pro simplifica la vida '
+title: 'P40 Pro simplifica tu vida y le da color '
 showonlyimage: true
 date: '2020-08-13T15:31:04-04:00'
 image: /images/uploads/review-p40-pro-ppal.jpg
 rating: '1'
 tags:
   - Smartphone
+  - Inteligencia Artificial
+  - Huawei
+  - P40 Pro
+  - Ultra Slow Motion
+  - Apertura
+  - Noche
+  - Retrato
+  - Foto Profesional
+  - Video
+  - Panorámica
+  - Monocromáticos
+  - Chile
+  - Google
+  - USA
 categories:
   - TECH
 weight: '1'
@@ -32,9 +46,11 @@ Por los reviews para \*\*Pruebo y te cuento\*\* necesito tener mi material de tr
 
 \> 
 
-Vamos al detalle fotográfico. Parto destacando que es un celular con \*\*4 cámaras\*\*… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre \*\*Huawei\*\* y \*\*Leica\*\* (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la que tomé y dejo abajo. 
+Vamos al detalle fotográfico. Parto destacando que es un celular con \*\*4 cámaras\*\*… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre \*\*Huawei\*\* y \*\*Leica\*\* (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
 
-!\[](/images/uploads/review-p4o-pro-paisaje-colorido.jpg)
+![](/images/uploads/review-p4o-pro-paisaje-colorido.jpg)
+
+
 
 Desde que estamos encerrados por la pandemia me he dedicado a capturar los coloridos atardeceres que se han visto en Santiago. Y no soy la única. Basta darse una vuelta por las RRSS para ver una importante cantidad de registros de otros santiaguinos. 
 
@@ -42,7 +58,7 @@ Desde que estamos encerrados por la pandemia me he dedicado a capturar los color
 
 Si fotografío comida, la \*\*IA\*\* la identifica y te da la \*\*opción COMIDA\*\*. Mira la imagen del queque bañado en chocolate que hice. Se ve espectacular. 
 
-!\[](/images/uploads/review-p40-pro-queque.jpg)
+![](/images/uploads/review-p40-pro-queque.jpg)
 
 \*\*A saber:\*\* el P40 Pro cuenta con modo fotográfico de \*\*Apertura\*\*, \*\*Noche\*\* para las imágenes con poca luz, \*\*Retrato\*\*, \*\*Foto\*\*, \*\*Foto Profesional\*\*, entre muchas otras. En cuanto a \*\*Video\*\* (puedes mejorarlo en la función \*\*Belleza\*\*), \*\*Video en Cámara Lenta\*\*, \*\*Panorámica\*\*, \*\*Monocromáticos\*\* y más. 
 
