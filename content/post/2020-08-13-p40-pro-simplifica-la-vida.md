@@ -40,7 +40,7 @@ Por los reviews para **Pruebo y te cuento** necesito tener mi material de trabaj
 
 **CÁMARAS LEICA** 
 
-Vamos al detalle fotográfico. Parto destacando que es un celular con4 cámaras\*\*… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre \*\*Huawei\*\* y \*\*Leica\*\* (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
+Vamos al detalle fotográfico. Parto destacando que es un celular con **CUATRO** traseras y **UNA** frontal… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre **Huawei** y **Leica** (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
 
 ![null](/images/uploads/review-p4o-pro-paisaje-colorido.jpg)
 
