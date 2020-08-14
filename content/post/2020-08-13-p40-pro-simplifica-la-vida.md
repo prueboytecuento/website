@@ -32,16 +32,15 @@ Escribir de tecnología es interesante. Mis reviews son siempre desde mi experie
 
 Abro fuegos con el bloqueo de Estados Unidos para impedir que **Google** esté en los teléfonos de la compañía China. Estoy segura que varios de ustedes se han cuestionado si comprar o no uno de estos equipos porque TODOS navegamos en su completo buscador, algunos tenemos cuenta **Gmail**, usamos **Google Maps**, etc. 
 
-**¡Buenas noticias!** Apenas comencé a cachurear el teléfono fui directo a **App Gallery** (3er tienda mundial de apps) y los productos Google estaban ahí. A un clic. Descargué sin problemas el buscador y lo predeterminé, tengo instalado mi Gmail como principal y ahora puedo administrar mis fotos y videos en el **P40 Pro** porque también pude bajar **Google Fotos**. 
+**¡Buenas noticias!** Apenas comencé a cachurear el teléfono fui directo a **App Gallery** (3era tienda mundial de apps) y los productos Google estaban ahí. A un clic. Descargué sin problemas el buscador y lo predeterminé, tengo instalado mi Gmail como principal y ahora puedo administrar mis fotos y videos en el **P40 Pro** porque también pude bajar **Google Fotos**. 
 
 ![null](/images/uploads/dato-di-a-del-padre-p40-pro.jpg)
 
-Por los reviews para **Pruebo y te cuento** necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 años uso Google Fotos en el **iPhone**, **Mac**, **Ipad** y ahora en el P40 Pro. Sí… Soy consumidora estable de **IOS**, pero reconozco en imagen y video Huawei es inmensamente superior. 
+Por los reviews para **Pruebo y te cuento** necesito tener mi material de trabajo a mano, así es que desde hace poco más de 1 año uso Google Fotos en el **iPhone**, **Mac**, **Ipad** y ahora en el P40 Pro. Sí… Soy consumidora estable de **IOS**, pero reconozco que en imagen y video Huawei es inmensamente superior. 
 
 > **CÁMARAS LEICA**
- 
 
-Vamos al detalle fotográfico. Parto destacando que es un celular con **CUATRO** traseras y **UNA** frontal… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre **Huawei** y **Leica** (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo.
+Vamos al detalle fotográfico. Parto destacando que es un celular con **CUATRO** cámaras traseras y **UNA** frontal… Me dan ganas de llorar cuando pienso en la cantidad de opciones que tengo para hacer fotos y videos. La alianza entre **Huawei** y **Leica** (reconocida compañía alemana de cámaras fotográficas profesionales), llevó la fotografía en celulares a un nivel superior. Desde 2016 que estas marcas trabajan de la mano y como usuarios podemos hacer imágenes fantásticas… Como la foto que tomé y pueden ver bajo este párrafo. ¡Impresionantes los colores!
 
 ![null](/images/uploads/review-p4o-pro-paisaje-colorido.jpg)
 
@@ -97,17 +96,19 @@ Para las radios me dio la alternativa de Radios de Chile, en **Microsoft Office*
 
 > **ESTÉTICA**
 
-\-El P40 Pro es un aparato robusto, con acabados mate y brillo. Mate en la parte posterior por una sola razón: que las huella se marquen menos. Tal cual. ¿Innecesario? A mi me carga tener el teléfono sucio así es que este acabado me viene bien. 
+\-El P40 Pro es un aparato robusto, con acabados mate y brillo. Mate en la parte posterior por una sola razón: que las huella se marquen menos. Tal cual. ¿Innecesario? A mi me carga tener el teléfono sucio así es que este acabado me viene bien. Los 4 bordes de la pantalla son curvos.  
 
-\-Es un smartphone que **se resbala mucho** y me preocupa que termine en el suelo. Es lindo estéticamente y me encanta lucirlo pero lo más sensato es ponerle una carcasa. Ojo que en caso que tu teléfono se de un porrazo, el protector de vidrio que trae en la parte frontal va a ayudar a que el golpe no quiebre la pantalla. 
+\-Es un smartphone que **se resbala mucho** y me preocupa que termine en el suelo. Es lindo estéticamente y me encanta lucirlo pero lo más sensato es ponerle una carcasa. 
 
-\-Los 4 bordes de la pantalla son curvos. 
-
-\-El sensor de **huella digital** y **botonera de números** están bien ubicados en la pantalla. No es difícil tomarlo solamente con una mano para activarlo porque están en las parte media- inferior del teléfono. 
+Ojo que de todos modos y al igual que la mayoría de los smartphones del mercado, el P40 Pro viene con protector de vidrio en la parte frontal. O sea, si tu teléfono se da un porrazo, tu pantalla no será lo 1er que toque el suelo.
 
 \-Me pasa algo similar con la **isla de cámaras posteriores**. Sobresale lo suficiente como para ganarse un rayón involutantario. Es un rectángulo tipo ficha de dominó en donde cohabitan las **4 cámaras** y **flash**. Ya no tiene forma de semáforo como el P30 Pro. Se entiende que por un tema técnico las cámaras no puedan quedar planas, así es que sólo queda ser muy cuidadosos. 
 
-\-El equipo está en 2 colores, **Silver Frost** y **Deep Sea Blue**. 
+\-El sensor de **huella digital** y la **botonera** (números) están bien ubicados en la pantalla. Puedes activarlo con sólo una mano porque están en la parte media-inferior del teléfono. 
+
+
+
+\-El equipo está en 2 colores, **Silver Frost** (foto de abajo) y **Deep Sea Blue** (1era imagen del texto). 
 
 ![null](/images/uploads/review-p40-pro-equipo.jpg)
 
