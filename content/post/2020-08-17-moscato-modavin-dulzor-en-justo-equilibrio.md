@@ -39,6 +39,6 @@ A saber: los dolce son los que tienen mayor cantidad de azúcar residual por lit
 
 ![null](/images/uploads/review-moscato-copa.jpg)
 
-Una buena manera de acompañar este vino espumante es con comida muy especiada: con tailandesa o india es perfecto. Pero, claro, considerando que son plato que en Chile muy pocos van a preparar en sus casas, la opción de maridar con queso azul es buenísima.
+Una buena manera de acompañar este vino espumante es con comida muy especiada: con tailandesa o india es perfecto. Pero, claro, considerando que son platos que en Chile muy pocos van a preparar en sus casas, la opción de maridar con queso azul es buenísima.
 
 ¿Dónde comprarlo? La importadora y comercializadora Monteverdi tiene despacho para Santiago y regiones. Para ello, ingresa a www.monteverdi.cl. Su valor es de $8.900. #SOYprueboytecuento
