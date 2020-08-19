@@ -2,7 +2,7 @@
 title: 'Dove Regeneración Extrema, una pausa para mi resquebrajado pelo'
 showonlyimage: true
 date: '2020-08-19T13:12:46-04:00'
-image: /images/uploads/rrss-dove-preview.jpg
+image: /images/uploads/review-dove-ppal.jpg
 rating: '1'
 tags:
   - Dove
@@ -18,13 +18,13 @@ Shampoo y acondicionador cada 3 días… No, no ando con el pelo sucio, jajajá.
 
 Y ojo que mi cuero cabelludo es más bien graso y delicado, por lo que preciso de lavados frecuentes con otras fórmulas. Los shampoo y acondicionador **Regeneración Extrema** son suaves y tienen un aroma muy masculino… A perfume de chicos y me encanta.
 
-Los que me leen desde los inicios de Pruebo y te cuento, saben que por muchos años evité usar acondicionador, pero a mis 44 años el pelo se me ha puesto muy áspero y resquebrajado. Lo anterior, derechamente por un proceso natural de la adultez, porque no uso tintes ni decoloro: hace 3 años que no tiño mis canas y luzco un lindo salt & pepper.
+Los que me leen desde los inicios de Pruebo y te cuento, saben que por muchos años evité usar acondicionador, pero a mis 44 años el pelo se me ha puesto muy áspero y resquebrajado. Lo anterior, derechamente por un proceso natural de la adultez, porque no uso de tintes o decoloración: hace 3 años que no tiño mis canas y luzco un lindo salt & pepper.
 
-Sugiero que los pruebes y no me refiero sólo a nosotras, porque creo, y espero no equivocarme, que es un producto que puede funcionar súper bien en cabellos masculinos. Más aún si son largos.
+Sugiero que lo pruebes y no me refiero sólo a nosotras, porque creo, y espero no equivocarme, que es un producto que puede funcionar súper bien en cabellos masculinos. Más aún si son largos.
 
 Como les comenté en el primer párrafo, esta línea Dove tiene 4 productos: **shampoo** y **acondicionador**, más el **“Super Acondicionador 1 Minuto”** y **“Máscara 1 Minuto: Factor de Nutrición 80+”**.
 
-![null](/images/uploads/review-dovere.jpg)
+![](/images/uploads/rrss-dove-preview.jpg)
 
 Eché mano al último y no me dejó el pelo pesado ni graso que era mi preocupación. Se ve horrible el pelo pegote y es más frecuente de lo que uno podría imaginar ver a mujeres con el pelo insufriblemente grasos.
 
@@ -34,8 +34,8 @@ Esta máscara es factor de nutrición 80+, lo que significa qué… No sabía qu
 
 \-**Factor de Nutrición 60** está diseñado para pelos expuestos a agresiones químicas como decoloración, coloración y alisado.
 
-\-**Factor de Nutrición 50** es para pelos expuestos a las agresiones diarias del styling, o sea, uso de aparatos de calor: secador de pelo, rizador y plancha para el cabello.
+\-**Factor de Nutrición 50** es para pelos expuestos a las agresiones diarias del styling, o sea, uso de aparatos de calor (secador de pelo, rizador y plancha para el cabello).
 
-Basándome en estas categorías, el factor ideal para mi tipo de pelo es el 50, pero a pesar de ello, el 80+ que probé no dejó el pelo graso que es un temor constante ante el uso de cualquier tratamiento. Punto para Dove.
+Basándome en estas categorías, el factor ideal para mi tipo de pelo es el 50, pero a pesar de ello, el 80+ no me dejó el pelo graso que es un temor constante ante el uso de cualquier tratamiento. Punto para Dove.
 
 Mi experiencia con la línea Regeneración Extrema fue satisfactorias y ojalá sea de ayuda para las/los que se animen a probarla. Están a la venta es supermercados y farmacias. Valor referencia de cada producto de $3.990. Ojo que en el Jumbo tiene 2x1. Nos leemos en un próximo review. **\#SOYprueboytecuento**
