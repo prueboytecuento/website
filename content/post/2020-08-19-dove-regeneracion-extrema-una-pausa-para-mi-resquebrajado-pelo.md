@@ -18,7 +18,7 @@ Shampoo y acondicionador cada 3 días… No, no ando con el pelo sucio, jajajá.
 
 Y ojo que mi cuero cabelludo es más bien graso y delicado, por lo que preciso de lavados frecuentes con otras fórmulas. Los shampoo y acondicionador **Regeneración Extrema** son suaves y tienen un aroma muy masculino… A perfume de chicos y me encanta.
 
-Los que me leen desde los inicios de Pruebo y te cuento, saben que por muchos años evité usar acondicionador, pero a mis 44 años el pelo se me ha puesto muy áspero y resquebrajado. Lo anterior, derechamente por un proceso natural de la adultez, porque no uso de tintes o decoloración: hace 3 años que no tiño mis canas y luzco un lindo salt & pepper.
+Los que me leen desde los inicios de Pruebo y te cuento, saben que por muchos años evité usar acondicionador, pero a mis 44 años el pelo se me ha puesto muy áspero y resquebrajado. Lo anterior, derechamente por un proceso natural de la adultez, porque no uso tintes ni decoloro: hace 3 años que no tiño mis canas y luzco un lindo salt & pepper.
 
 Sugiero que lo pruebes y no me refiero sólo a nosotras, porque creo, y espero no equivocarme, que es un producto que puede funcionar súper bien en cabellos masculinos. Más aún si son largos.
 
