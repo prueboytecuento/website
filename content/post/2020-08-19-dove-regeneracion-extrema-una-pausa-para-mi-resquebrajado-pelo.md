@@ -24,7 +24,7 @@ Sugiero que los pruebes y no me refiero sólo a nosotras, porque creo, y espero 
 
 Como les comenté en el primer párrafo, esta línea Dove tiene 4 productos: **shampoo** y **acondicionador**, más el **“Super Acondicionador 1 Minuto”** y **“Máscara 1 Minuto: Factor de Nutrición 80+”**.
 
-![](/images/uploads/review-dovere.jpg)
+![null](/images/uploads/review-dovere.jpg)
 
 Eché mano al último y no me dejó el pelo pesado ni graso que era mi preocupación. Se ve horrible el pelo pegote y es más frecuente de lo que uno podría imaginar ver a mujeres con el pelo insufriblemente grasos.
 
@@ -36,6 +36,6 @@ Esta máscara es factor de nutrición 80+, lo que significa qué… No sabía qu
 
 \-**Factor de Nutrición 50** es para pelos expuestos a las agresiones diarias del styling, o sea, uso de aparatos de calor: secador de pelo, rizador y plancha para el cabello.
 
-Basándome en estas categorías, el factor ideal para mi tipo de pelo es el 50, pero a pesar de ello, el 80+ no me dejó el pelo graso que es un temor constante ante el uso de cualquier tratamiento. Punto para Dove.
+Basándome en estas categorías, el factor ideal para mi tipo de pelo es el 50, pero a pesar de ello, el 80+ que probé no dejó el pelo graso que es un temor constante ante el uso de cualquier tratamiento. Punto para Dove.
 
 Mi experiencia con la línea Regeneración Extrema fue satisfactorias y ojalá sea de ayuda para las/los que se animen a probarla. Están a la venta es supermercados y farmacias. Valor referencia de cada producto de $3.990. Ojo que en el Jumbo tiene 2x1. Nos leemos en un próximo review. **\#SOYprueboytecuento**
