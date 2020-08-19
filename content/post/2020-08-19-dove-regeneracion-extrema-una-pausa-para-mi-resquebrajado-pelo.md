@@ -20,7 +20,7 @@ categories:
   - BELLEZA
 weight: '1'
 ---
-La última vez que fui a la peluquería fue en octubre del año pasado. No necesito de visitas tan frecuentes, pero cuando ya era tiempo de volver, la pandemia no me permitió ir a cortármelo. Sí retomé los masajes caseros porque este review así lo demandaba. Son 4 productos y yo probé 3.
+La última vez que fui a la peluquería fue en octubre del año pasado. No necesito de visitas tan frecuentes, pero cuando ya era tiempo de volver, la pandemia no me permitió ir a cortármelo. Sí retomé los masajes caseros porque se estaba poniendo opaco y porque este review así lo demandaba. Son 4 productos y yo probé 3.
 
 <!--more-->
 
@@ -34,7 +34,7 @@ Sugiero que lo pruebes y no me refiero sólo a nosotras, porque creo, y espero n
 
 Como les comenté en el primer párrafo, esta línea Dove tiene 4 productos: **shampoo** y **acondicionador**, más el **“Super Acondicionador 1 Minuto”** y **“Máscara 1 Minuto: Factor de Nutrición 80+”**.
 
-![](/images/uploads/rrss-dove-preview.jpg)
+![null](/images/uploads/rrss-dove-preview.jpg)
 
 Eché mano al último y no me dejó el pelo pesado ni graso que era mi preocupación. Se ve horrible el pelo pegote y es más frecuente de lo que uno podría imaginar ver a mujeres con el pelo insufriblemente grasos.
 
