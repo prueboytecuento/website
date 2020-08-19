@@ -1,5 +1,5 @@
 ---
-title: 'Dove Regeneración Extrema, una pausa para mi resquebrajado pelo'
+title: 'Dove Regeneración Extrema, una pausa para mi maltratado pelo'
 showonlyimage: true
 date: '2020-08-19T13:12:46-04:00'
 image: /images/uploads/review-dove-ppal.jpg
