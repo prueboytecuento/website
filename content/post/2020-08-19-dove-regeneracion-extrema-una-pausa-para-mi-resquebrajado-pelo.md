@@ -20,7 +20,7 @@ Y ojo que mi cuero cabelludo es más bien graso y delicado, por lo que preciso d
 
 Los que me leen desde los inicios de Pruebo y te cuento, saben que por muchos años evité usar acondicionador, pero a mis 44 años el pelo se me ha puesto muy áspero y resquebrajado. Lo anterior, derechamente por un proceso natural de la adultez, porque no uso tintes ni decoloro: hace 3 años que no tiño mis canas y luzco un lindo salt & pepper.
 
-Sugiero que lo pruebes y no me refiero sólo a nosotras, porque creo, y espero no equivocarme, que es un producto que puede funcionar súper bien en cabellos masculinos. Más aún si son largos.
+Sugiero que los pruebes y no me refiero sólo a nosotras, porque creo, y espero no equivocarme, que es un producto que puede funcionar súper bien en cabellos masculinos. Más aún si son largos.
 
 Como les comenté en el primer párrafo, esta línea Dove tiene 4 productos: **shampoo** y **acondicionador**, más el **“Super Acondicionador 1 Minuto”** y **“Máscara 1 Minuto: Factor de Nutrición 80+”**.
 
@@ -34,7 +34,7 @@ Esta máscara es factor de nutrición 80+, lo que significa qué… No sabía qu
 
 \-**Factor de Nutrición 60** está diseñado para pelos expuestos a agresiones químicas como decoloración, coloración y alisado.
 
-\-**Factor de Nutrición 50** es para pelos expuestos a las agresiones diarias del styling, o sea, uso de aparatos de calor (secador de pelo, rizador y plancha para el cabello).
+\-**Factor de Nutrición 50** es para pelos expuestos a las agresiones diarias del styling, o sea, uso de aparatos de calor: secador de pelo, rizador y plancha para el cabello.
 
 Basándome en estas categorías, el factor ideal para mi tipo de pelo es el 50, pero a pesar de ello, el 80+ no me dejó el pelo graso que es un temor constante ante el uso de cualquier tratamiento. Punto para Dove.
 
