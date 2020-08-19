@@ -6,6 +6,16 @@ image: /images/uploads/review-dove-ppal.jpg
 rating: '1'
 tags:
   - Dove
+  - Belleza
+  - Shampoo
+  - Acondicionador
+  - Cuidados
+  - Pelo
+  - Hair
+  - Máscara Capilar
+  - Pruebo y te cuento
+  - Regeneración Extrema
+  - Limpio y Aromático
 categories:
   - BELLEZA
 weight: '1'
