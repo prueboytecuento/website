@@ -38,36 +38,8 @@ Abajo valores, capacidad y colores.
 > -Capacidad de **256GB**.
 > -Colores **Mystic Gray**, **Mystic Green** y **Mystic Bronze**.
 > -Valor **$999.990** con los Galaxy Buds+ de regalo.
->
+
 > **Galaxy Note20 Ultra**
->
->
-> -Capacidad 
->
-> **256GB**
->
->  
->
-> **expandible hasta 1TB**
->
-> .
-> -Colores 
->
-> **Mystic Black**
->
-> , 
->
-> **Mystic White**
->
->  y 
->
-> **Mystic Bronze**
->
-> .
-> -Valor 
->
-> **$1.199.990**
->
->  con los nuevos Galaxy Buds Live de regalo. 
->
-> **\#SOYprueboytecuento**
+-Capacidad **256GB expandible hasta 1TB**.
+-Colores **Mystic Black**, **Mystic White** y **Mystic Bronze**.
+-Valor **$1.199.990** con los nuevos Galaxy Buds Live de regalo. **\#SOYprueboytecuento**
