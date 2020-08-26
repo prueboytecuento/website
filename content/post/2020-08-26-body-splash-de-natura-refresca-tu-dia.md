@@ -25,7 +25,7 @@ Da lo mismo el momento. A veces uso mi perfume regalón y a veces prefiero aroma
 
 <!--more-->
 
-Me refiero al **Body Splash** de la colección** Tododia** en su aroma **Frambuesa y Pimienta Rosa** ($9.990). Una fragancia muy azucarada al olerla, pero que en piel se suaviza rápidamente. No confundas bajar el aroma dulce con que se evapore y pierda. De hecho, no se va en horas.
+Me refiero al **Body Splash** de la colección **Tododia** en su aroma **Frambuesa y Pimienta Rosa** ($9.990). Una fragancia muy azucarada al olerla, pero que en piel se suaviza rápidamente. No confundas bajar el aroma dulce con que se evapore y pierda. De hecho, no se va en horas.
 
 ¿Cómo una colonia dulce no es tan dulce? Ahí entra en juego la pimienta rosa, que no es del tipo de pimientas que usas para cocinar. Es un fruto originario de Brasil que le da a este aroma de Body Splash un toque picantito.
 
