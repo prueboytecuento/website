@@ -25,13 +25,13 @@ Da lo mismo el momento. A veces uso mi perfume regalón y a veces prefiero aroma
 
 <!--more-->
 
-Me refiero al **Body Splash** de la colección** Tododia** en su aroma **Frambuesa y Pimienta Rosa**. Una fragancia muy azucarada al olerla, pero que en piel se suaviza rápidamente. No confundas bajar el aroma dulce con que se evapore y pierda. De hecho, no se va en horas.
+Me refiero al **Body Splash** de la colección** Tododia** en su aroma **Frambuesa y Pimienta Rosa** ($9.990). Una fragancia muy azucarada al olerla, pero que en piel se suaviza rápidamente. No confundas bajar el aroma dulce con que se evapore y pierda. De hecho, no se va en horas.
 
 ¿Cómo una colonia dulce no es tan dulce? Ahí entra en juego la pimienta rosa, que no es del tipo de pimientas que usas para cocinar. Es un fruto originario de Brasil que le da a este aroma de Body Splash un toque picantito.
 
 Para que te hagas una idea, siempre y cuando los hayas usado, Aqua de Goia de Armani y el 212 Sexy de Carolina Herrera está fabricado con pimienta rosa. El siempre fascinante mundo de los perfumistas que hacen maravillas con los aromas desde las fragancias más costosas a las más accesible como las de Natura.
 
-![](/images/uploads/review-natura-bodysplash-2.jpg)
+![null](/images/uploads/review-natura-bodysplash-2.jpg)
 
 En su ficha técnica la firma brasilera recomienda varios retoques al día, pero honestemente no me parecen necesarios. Sólo recuerda aplicarte **SIEMPRE** las fragancias en el dobles de brazos, atrás de las rodillas, muñecas y muy poco en el cuello. Sigue esos parámetros de uso y has que los productos te duren hasta 1 mes más. Confía en mí.
 
