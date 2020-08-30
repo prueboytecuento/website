@@ -38,9 +38,7 @@ Son más de 35 ofertas que los usuarios podrán encontrar en modelos como Foreru
 
 Aquí les dejo el listado con todas las marcas que tendrán descuentos este CyberDay. Evidentemente robusta, pero es la manera de saber si lo que buscas es parte de esta venta con precios rebajados. **\#SOYprueboytecuento**
 
-**
-\*Información del Comité de Comercio Electrónico de la Cámara de Comercio de Santiago (CCS)\*
-**
+> **Información del Comité de Comercio Electrónico de la Cámara de Comercio de Santiago (CCS).**
 
 •	https://www.atrapalo.cl/
 
