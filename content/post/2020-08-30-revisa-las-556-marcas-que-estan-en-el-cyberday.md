@@ -24,7 +24,7 @@ Para que tengan una referencia en porcentajes, **Natura** tiene productos con ha
 
 Muchas marcas están colaborando con instituciones que trabajan con comunidades más expuestas al contagio de COVID-19.
 
-![]()
+![](/images/uploads/dato-cyber-natura2.jpg)
 
 Otra de las marcas que será parte de este evento de e-commerce es **Garmin**. Tendrán hasta un 33% de descuento en smartwatches, relojes con carga solar, bandas cardiacas, ciclocomputadores y sensores de cadencia para la bicicleta. 
 
