@@ -16,27 +16,31 @@ weight: '1'
 ---
 No sé ustedes pero yo ya estoy lista para irme de compras por la red. Nunca lo he hecho, pero este año hay muchas tiendas que me interesan para renovar la línea blanca que agoniza en esta casa y adelantar las compras de Navidad.
 
-<!--more-->
+<!--more-->
 
 El **CyberDay** -que francamente debería llamarse CyberWeek, porque varias marcas extienden sus ofertas hasta el viernes 4 de septiembre- parte a las **00:00 de este lunes 31 de agosto**. 
-
-
 
 Para que tengan una referencia en porcentajes, **Natura** tiene productos con hasta un 60% de descuento en varios productos y por cada venta que se realice en www.natura.cl donarán una unidad de alcohol gel a Desafío Levantemos Chile. 
 
 Muchas marcas están colaborando con instituciones que trabajan con comunidades más expuestas al contagio de COVID-19.
 
+![]()
+
 Otra de las marcas que será parte de este evento de e-commerce es **Garmin**. Tendrán hasta 33% de descuento en smartwatches, relojes con carga solar, bandas cardiacas, ciclocomputadores y sensores de cadencia para la bicicleta. 
 
-Son más de 35 ofertas que los usuarios podrán encontrar en modelos como Forerunner, Instinct o Fēnix.
+Son más de 35 ofertas que los usuarios podrán encontrar en modelos como Forerunner, Instinct o Fēnix.
 
 **Aceite de oliva Las Piedras** también tiene rebajas en sus productos. En www.laspiedras.cl se encontrarán con un 20% de descuento en todos los formatos y variedades de este aceite pertenecientes a la cosecha 2020.
+
+![](/images/uploads/dato-cyber-hp.jpg)
 
 **HP Chile** otra vez se suma al CyberDay con descuentos en notebooks, desktops, impresoras y accesorios. En el caso de computación, en notebooks será posible encontrar ofertas de hasta un 38% de descuento, y en desktops los descuentos llegarán a un 33%. Más detalles en HP Online.
 
 Aquí les dejo el listado con todas las marcas que tendrán descuentos este CyberDay. Evidentemente es larga, pero es la manera de saber si lo que buscas es parte de esta venta con precios rebajados. **\#SOYprueboytecuento**
 
-**\*Información del Comité de Comercio Electrónico de la Cámara de Comercio de Santiago (CCS)\***
+**
+\*Información del Comité de Comercio Electrónico de la Cámara de Comercio de Santiago (CCS)\*
+**
 
 •	https://www.atrapalo.cl/
 
