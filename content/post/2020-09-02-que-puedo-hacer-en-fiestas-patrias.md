@@ -14,13 +14,13 @@ tags:
   - COVID-19
 categories:
   - UTILIDAD PÚBLICA
-weight: 0
+weight: '1'
 ---
 Septiembre es lejos el mes del año que más me gusta. Calorcito, árboles en flor, comerme un asadito con el familión y armar juegos típicos chilenos para los niños. Este año sólo seremos 3 junto a la parrilla.
 
-<!--more-->
+<!--more-->
 
-El gobierno entregó hoy las medidas que se adoptarán para el 18, 19 y 20 de septiembre por la crisis sanitaria. Para empezar, sólo podrás estar con un **máximo de 5 personas en espacios cerrados** y de **10 en áreas abiertas**. Imposible estar con los míos, porque tendría que dejar a más de la mitad afuera de mi departamento.
+El gobierno entregó hoy las medidas que se adoptarán para el 18, 19 y 20 de septiembre por la crisis sanitaria. Para empezar, sólo podrás estar un **máximo de 5 personas en espacios cerrados** y de **10 en áreas abiertas**. Imposible estar con los míos, porque tendría que dejar a más de la mitad afuera de mi departamento.
 
 ¿Fome? Súper fome, pero hay que tomar los resguardos del caso y evitar que la curva de contagios por Coronavirus se dispare, como ocurrió el fin de semana del Día de la Madre.
 
@@ -32,4 +32,5 @@ Al límite de personas reunidas, se suma además la **prohibición de traslados 
 
 **De las fondas ni hablar**. Hace meses muchas comunas suspendieron la celebración de Fiestas Patrias y ahora el gobierno ratificó que no se podrá desarrollar.
 
-Otra medida adoptada es la **implementación de cordones sanitarios** a partir del jueves 17 de septiembre a las 18 horas en las regiones Metropolitana, Valparaíso, Gran Concepción, Temuco y Padre Las Casas. **\#SOYprueboytecuento**
+Otra medida adoptada es la **implementación de cordones sanitarios** a partir del jueves 17 de septiembre a las 18 horas en las regiones Metropolitana, Valparaíso, Gran Concepción, Temuco y Padre Las Casas. **\#SOYprueboytecuento
+**
