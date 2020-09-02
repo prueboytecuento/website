@@ -20,7 +20,7 @@ Septiembre es lejos el mes del año que más me gusta. Calorcito, árboles en fl
 
 <!--more-->
 
-El gobierno entregó hoy las medidas que se adoptarán para el 18, 19 y 20 de septiembre por la crisis sanitaria. Para empezar, sólo podrás estar un **máximo de 5 personas en espacios cerrados** y de **10 en áreas abiertas**. Imposible estar con los míos, porque tendría que dejar a más de la mitad afuera de mi departamento.
+El gobierno entregó hoy las medidas que se adoptarán para el 18, 19 y 20 de septiembre por la crisis sanitaria. Para empezar, sólo podrás estar con un **máximo de 5 personas en espacios cerrados** y de **10 en áreas abiertas**. Imposible estar con los míos, porque tendría que dejar a más de la mitad afuera de mi departamento.
 
 ¿Fome? Súper fome, pero hay que tomar los resguardos del caso y evitar que la curva de contagios por Coronavirus se dispare, como ocurrió el fin de semana del Día de la Madre.
 
