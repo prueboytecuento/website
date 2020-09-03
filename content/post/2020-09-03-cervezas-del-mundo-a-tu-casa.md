@@ -30,7 +30,7 @@ Se llaman **Beers Premium** y son un emprendimiento familiar que abastece a dist
 
 No son pocos los que están vendiendo cervezas internacionales en la web y a domicilio, pero creo que el plus de Gonzalo Torres y Carmen Gloria Gómez con Beers Premium (**@beers_premium** en **Instagram**) es que tienen precios infinitamente mejores que, por ejemplo, **Neftis** (**www.neftis.cl**) y un importante pool de marcas. Más de 15.
 
-> **Hice un comparativo en base a precio y misma marca**
+> **COMPARATIVO EN BASE A PRECIOS Y MISMA MARCA**
 
 En **NEFTIS** por **$25.990**. 
 
