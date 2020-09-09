@@ -23,9 +23,7 @@ Hay varias maneras de quitarse el maquillaje o limpiar el rostro después de tod
 
 Una de esas maneras es con toallas húmedas y yo probé las de Burt’s Bees de pepino con extractos salvia. Para ello, maquillé exageradamente mi mano y, luego, pasé la toalla una vez para ver qué tan efectiva es. 
 
-La verdad es que el Facial Cleansing Towelettes remueve súper bien el maquillaje y así se ve en las fotos de abajo. No es un producto aceitoso, no irrita la piel ni provoca ardor. Al menos a mi no me pasó.
-
-
+La verdad es que las Facial Cleansing Towelettes remueven súper bien el maquillaje y así se ve en las fotos de abajo. No es un producto aceitoso, no irrita la piel ni provoca ardor. Al menos a mi no me pasó.
 
 ![null](/images/uploads/review-bb-wipes-ppal.jpg)
 
