@@ -29,8 +29,6 @@ Y puntualizo en mini gamers, porque la Nintendo Switch y sus juegos están pensa
 
 ![](/images/uploads/review-nintendo-sub-collage.jpg)
 
-. 
-
 
 
 Por lo anterior, le pedí a mi Rafaela (7) que grabáramos un video para que ella les mostrara en el canal de Youtube de Pruebo y te cuento la experiencia con su kit: manubrio de auto con pedal (también sirve para Mario Kart 8 Deluxe), control de submarino, control de avión, llave maestra para echarlos a andar e incluso un comando para pintar con spray los vehículos que están en la pantalla. Muy choro.
@@ -43,10 +41,9 @@ En otras palabras, Nintendo Labo es la posibilidad de jugar con herramientas rea
 
 Ojo que este kit no es el único que existe. Hay uno de un robot, uno de espías, otro de variedades con una caña de pescar, control de una moto y así. ¡Lo más Nintendo Labo! 
 
-**Abajo la caja de controles de Rafita y su video explicativo en el link **
+**Abajo la caja de controles de Rafita y su video explicativo en el link**
 
 ![](/images/uploads/review-nintenido-caja.jpg)
-
 
 
 Los Labo están a la venta en Falabella, Mercado Libre, Linio, Zmart y otras tiendas. Si de precios se trata, el kit de Rafaela va desde los $59.990 a $79.990… Impresionante las diferencias entre tiendas.  #SOYprueboytecuento
