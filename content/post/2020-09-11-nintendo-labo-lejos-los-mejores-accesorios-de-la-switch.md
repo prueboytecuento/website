@@ -23,7 +23,7 @@ weight: '1'
 
 <!--more-->
 
-Y puntualizo en mini gamers, porque la Nintendo Switch y sus juegos están pensados para niños y adolescentes. No excluye, lógico, a los más maduritos.
+Y puntualizo en mini gamers, porque la Nintendo Switch y sus juegos están pensados para niños y adolescente. No excluye, lógico, a los más maduritos.
 
 **Abajo la foto del submarino.**
 
@@ -39,7 +39,7 @@ En otras palabras, Nintendo Labo es la posibilidad de jugar con herramientas rea
 
 Ojo que este kit no es el único que existe. Hay uno de un robot, uno de espías, otro de variedades con una caña de pescar, control de una moto y así. ¡Lo más Nintendo Labo! 
 
-**Abajo la caja de controles de Rafita y su video explicativo en el link**
+**Abajo la caja de controles de Rafita y su video explicativo en el link  https://youtu.be/tGbSeLhMIKQ**
 
 ![null](/images/uploads/review-nintenido-caja.jpg)
 
