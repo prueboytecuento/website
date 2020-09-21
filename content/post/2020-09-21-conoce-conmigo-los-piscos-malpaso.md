@@ -33,7 +33,7 @@ Piscola, pisco sour, mango sour, etc. para mí vienen bien con el picoteo de tur
 
 Un pisco Especial es el que va de 35 a 39,5 grados. Este es el único que la marca tiene con esa graduación alcohólica y destaca fuertemente su aroma a vainilla… A vainilla y frutas. Hay algo de ese dulzor de las frutas al beberlo: esta variedad de pisco está hecha con moscatel de Alejandría y Rosada.
 
-![](/images/uploads/review-malpaso-35.jpg)
+![null](/images/uploads/review-malpaso-35.jpg)
 
 **Carlo Astudillo, el sommelier** que ofició de guía en esta cata para periodistas, habló de frutos secos como el huesillo y concuerdo con eso. No así con el toque floral. Al menos yo no lo percibí.
 
@@ -59,7 +59,7 @@ Hay un equilibrio que no apaga los sabores ni del pastel ni del pisco. Varios pe
 
 No, Pedro Jiménez (PX) no es el nombre de un cantante de rancheras ni este pisco honra su nombre. Es una uva comúnmente no conocida que da vida a este pisco de 40 grados. Un pisco monovarietal. 
 
-Es muy distinto a los 2 anterior, partiendo por su color transparente y el marcado aroma a limón que se siente al abrir la botella. Cítricos muy presentes. Frutas verdes, como manzana y kiwi.
+Es muy distinto a los 2 anteriores, partiendo por su color transparente y el marcado aroma a limón que se siente al abrir la botella. Cítricos muy presentes. Frutas verdes, como manzana y kiwi.
 
 Ideal, por ejemplo, para los que toman piscola con una rodaja de limón. Este y Pedro Jiménez regulan el dulzor en el clásico combinado. Es además una muy buena opción para coctelería, comentó Astudillo.
 
