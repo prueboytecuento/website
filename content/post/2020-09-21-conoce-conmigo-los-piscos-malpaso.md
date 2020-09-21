@@ -49,7 +49,7 @@ De los 35 grados pasamos a los reservados que son de 40 grados hacia arriba. Su 
 
 El aroma es intenso, algo floral y dulce. Muy agradable y empata súper bien con el atún rosado, previamente untado en salsa de soya. Hay un quiebre de sabores interesante. Reservado 40º envuelve la sal de la soya. La neutraliza. Es muy loco lo que pasa ahí. Hagan la prueba y me cuentan sensaciones y sabores.
 
-![](/images/uploads/review-malpaso-reservado-40.jpg)
+![null](/images/uploads/review-malpaso-reservado-40.jpg)
 
 Este pisco también lo maridamos con una mini tarta de maracuyá (cero onda) y pastel de milhojas. Este último fue la gloria. Puede sonar exagerado, pero fue una explosión de dulces en mi boca. Explosión en ningún caso empalagosa.
 
@@ -63,7 +63,7 @@ Es muy distinto a los 2 anterior, partiendo por su color transparente y el marca
 
 Ideal, por ejemplo, para los que toman piscola con una rodaja de limón. Este y Pedro Jiménez regulan el dulzor en el clásico combinado. Es además una muy buena opción para coctelería, comentó Astudillo.
 
-![](/images/uploads/review-malpaso-pjok.jpg)
+![null](/images/uploads/review-malpaso-pjok.jpg)
 
 Su color se debe a que se reposa en cubas de acero inoxidable sin duelas. Distinto a los 2 anteriores. Su tiempo de reposo es de 3 meses.
 
@@ -77,7 +77,7 @@ A diferencia del PX que también es un pisco transparente, este tiene un periodo
 
 Ícono junto a un pulpo pasado por soya pega súper bien. Son sabores que se complementan. Cómplices totales. Recomiendo esta opción.
 
-![](/images/uploads/review-malpaso-icono.jpg)
+![null](/images/uploads/review-malpaso-icono.jpg)
 
 Son 4 variedades en nariz y boca muy distintas e interesantes. No se repite ni aroma ni sabor. Aclaro esto porque aquí hay 3 opciones de 40º y no se asemejan en nada. Todas opciones muy atractivas para mí.
 
