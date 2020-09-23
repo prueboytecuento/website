@@ -22,15 +22,13 @@ weight: '1'
 ---
 Para deportes radicales, deportes en el mar, deportes en tabla, deportes en profundidad… Deportes 100% en el agua. Para eso está pensada la nueva colección **G-SHOCK** y **Baby-G** de la ochentera marca de relojes.
 
-<!--more-->
+<!--more-->
 
 Son de la línea **G-LIDE** para surfistas. Casio desarrolló modelos originales que integran material, construcción, función y diseño para entregar la mejor experiencia a los amigos de las olas, considerando las condiciones del mar y factores meteorológicos. Son 3 modelos.
 
-**BLX- 560VH-4DR** es un reloj unisex que resalta la evolución de la identidad de sus líneas G-SHOCK y Baby-G. Todos los detalles son hechos a mano por artesanos japoneses. Este modelo resiste 200 metros bajo el agua, tiene indicador de marea y fase lunar para exprimir una jornada de olas. 
+**BLX- 560VH-4DR** es un reloj unisex que resalta la evolución de la identidad de sus líneas G-SHOCK y Baby-G. Todos los detalles fueron hechos a mano por artesanos japoneses. Este modelo resiste 200 metros bajo el agua, tiene indicador de marea y fase lunar para exprimir una jornada de olas. 
 
-
-
-![](/images/uploads/dato-casio-playa.jpg)
+![null](/images/uploads/dato-casio-playa.jpg)
 
 Con las mismas características, el **BLX-560VH-1DR** pone más énfasis en la artesanía de la fabricación: también tiene detalles hechos manualmente, componentes más pequeños, un bisel cuadrado de resina como los clásicos modelos de los 80’s y más. Todo apuntando siempre a la comodidad, calidad y durabilidad. 
 
