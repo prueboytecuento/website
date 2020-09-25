@@ -24,7 +24,9 @@ weight: '1'
 
 Athleisure es la combinación de deporte con moda y belleza. Y ahí encaja súper bien el kit de la colección **Sports de Natura FACES**, que incluye un bálsamo hidratante SPF 10 para proteger e hidratar los labios. 
 
-Lo anterior, más un polvo translúcido que reduce ese insufrible brillo en la cara. Natura asegura (no lo he probado aún) que se consigue un efecto mate manteniendo el maquillaje en su lugar. 
+En la foto pareciera verse un labial, pero no. Este bálsamo es con color y deja un suave tono cuando maquillas tus labios.
+
+Lo anterior, más un polvo translúcido que reduce ese insufrible brillo en la cara. Natura asegura que se consigue un efecto mate manteniendo el maquillaje en su lugar. 
 
 Viene además con una máscara incolora que alarga y define las pestañas. Se puede usar también en las cejas para definirlas.
 
