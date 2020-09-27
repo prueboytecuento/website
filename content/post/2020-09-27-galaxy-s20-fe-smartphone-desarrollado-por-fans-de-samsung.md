@@ -17,7 +17,7 @@ categories:
   - TECH
 weight: '1'
 ---
-Que te den la oportunidad de aportar con ideas en el desarrollo de un smartphone debe ser fascinante. Eso hizo la compañía coreana al tomar en cuenta un puñado de sugerencias de sus seguidores tech.
+Que te den la oportunidad de aportar con ideas en el contenido y forma de un smartphone debe ser fascinante. Eso hizo la compañía coreana al tomar en cuenta un puñado de sugerencias de sus seguidores tech.
 
 <!--more-->
 
