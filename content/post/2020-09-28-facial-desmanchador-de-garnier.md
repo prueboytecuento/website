@@ -13,7 +13,7 @@ tags:
   - Mascarilla de Tela
   - Hidratante con FPS
   - Express Aclara
-  - Voitamina C
+  - Vitamina C
   - Exposición al Sol
   - Desmancha
   - Extractos de Limón
@@ -25,11 +25,11 @@ Rutinas de belleza para el rostro hay muchas. Como ya les he comentado en otras 
 
 <!--more-->
 
-**Garnier** tiene un kit de productos para atenuar las manchas faciales con extractos de limón y vitamina C. Mi cara está muy manchada por la exposición al sol y estos productos podría ser una solución. Aún no los he usado. 
+**Garnier** tiene un kit de productos para atenuar las manchas faciales con extractos de limón y vitamina C. Mi cara está muy manchada por la exposición al sol y estos productos podrían ser una solución. Aún no los he usado. 
 
 De todos modos, aquí les dejo el datito de la línea **Express Aclara**.
 
-**Agua Micelar:** Se puede usar sobre todo tipo de piel, ayuda a desmaquillconar sin frotar la piel y remueve el exceso de impurezas ambientales. Contiene vitamina C.
+**Agua Micelar:** Se puede usar sobre todo tipo de piel, ayuda a desmaquillar sin frotar la piel y remueve el exceso de impurezas ambientales. Contiene vitamina C.
 
 **Mascarilla en tela:** Garnier recomienda hacer una prueba de esta mascarilla en el cuello si tienen la piel sensible y, luego, aplicarla por completo en sus caritas. Contiene vitamina C, extracto de limón y ácido hialurónico. 
 
@@ -37,4 +37,4 @@ Después de usarla por 15 minutos, la piel se verá hidratada, iluminada, con un
 
 **Crema Hidratante con protector solar:** Disminuye las manchas visiblemente en 7 días, mientras protege la piel contra los rayos UV. Es FPS 30. Se supone que es una fórmula de rápida absorción, hidrata e ilumina, dejando la piel más uniforme y sin sensación grasosa.
 
-Es súper importante tener en cuenta que estos beneficios se obtienen sólo al usar productos de belleza con extractos, nunca el fruto directo sobre la piel. En este caso, el limón. Si prueban este kit facial, me cuentan sus resultados, ¿bueno? **\#SOYprueboytecuento**
+Es súper importante tener en cuenta que estos beneficios se obtienen sólo al usar productos de belleza con extractos, nunca el fruto directo sobre la piel. En este caso, el limón. Si prueban este kit facial, me cuentan sus resultados, ¿bueno? **\#SOYprueboytecuento**
