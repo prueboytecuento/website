@@ -38,7 +38,7 @@ Después de unos minutos me atreví y eché un hidratante pero no se pasó. Sól
 
 La hinchazón duró hasta que me fui a dormir. Según el horario en que fueron tomadas las fotos la reacción alérgica partió a las 17.41 horas. Mucho tiempo con mi cara maltratada. (Abajo la foto del resultado)
 
-![null](/images/uploads/review-biore-malo-roja.jpg)
+![](/images/uploads/review-biore-malo-roja.jpg)
 
 Hoy amanecí con un rojo leve en la cara y sin hinchazos, pero claramente no volveré a usar este limpiador. 
 
