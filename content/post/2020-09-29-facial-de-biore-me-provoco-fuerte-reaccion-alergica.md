@@ -30,11 +30,11 @@ Por lo general, me encuentro con productos que funcionan bien y otros que derech
 
 Entonces comprenderán que el susto de ayer con este limpiador de poros equilibrante de **Bioré: Agave Azul + Bicarbonato de Sodio**, no fue menor. Sobre todo porque está hecho para pieles mixtas como la mía. No secas. No debería hacerse resentido tanto la piel de mi rostro. (Arriba la foto del proceso)
 
-Y, ojo, que seguí las instrucciones al piel de la letra. Humedecí mi cara, eché el limpiador en mi mano, lo hice espuma, apliqué y enjuagué. Terminé, en buen chileno, como jaiba.
+Y, ojo, que seguí las instrucciones al piel de la letra. Humedecí mi cara, eché el limpiador en mi mano, lo hice espuma, apliqué y enjuagué. Terminé, en buen chileno, como jaiba.  (Abajo la foto del producto)
 
 ![null](/images/uploads/review-biore-agave.jpg)
 
-Después de unos minutos me atreví y eché un hidratante pero no se pasó. Sólo con el gel de aloe vera que uso después de tomar sol en verano el ardor bajó. (Arriba la foto del producto)
+Después de unos minutos me atreví y eché un hidratante pero no se pasó. El ardor bajó sólo con el gel de aloe vera que uso después de tomar sol.
 
 La hinchazón duró hasta que me fui a dormir. Según el horario en que fueron tomadas las fotos la reacción alérgica partió a las 17.41 horas. Mucho tiempo con mi cara maltratada. (Abajo la foto del resultado)
 
@@ -44,6 +44,6 @@ Hoy amanecí con un rojo leve en la cara y sin hinchazos, pero claramente no vol
 
 Siempre existe la posibilidad de que a ustedes no les pase lo mismo porque todas las pieles son diferentes, pero no me atrevo a recomendarles este limpiador de Bioré. 
 
-Sí el Exfoliador Desincrustante de poros que testee en julio pasado y es de la misma marca. 
+Sí el Exfoliador Desincrustante de poros que testee en julio pasado y que es de la misma marca. 
 
 Por todo lo anterior, decidí comenzar a hacer los reviews de faciales primero en mi muñeca y luego, si todo anda bien, aplicar la crema o tratamiento en la cara. No puedo arriesgarme a dañar mi rostro. **\#SOYprueboytecuento**
