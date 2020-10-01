@@ -12,7 +12,7 @@ tags:
   - Huella de Carbono
   - Google
   - Pixel 5
-  - Pixel 4a (5G)
+  - Pixel 4a 5G
   - Nest Audio
   - Chromecast
   - Google TV
