@@ -19,7 +19,7 @@ weight: '1'
 
 <!--more-->
 
-... Así es que el jueves 8 de octubre a las 20 horas daré el nombre de la o él ganador (ellos también pueden participar y regalonear a alguna chica especial) de:
+...Así es que el jueves 15 de octubre a las 20 horas daré el nombre de la o él ganador (ellos también pueden participar y regalonear a alguna chica especial) de:
 
 * 1 Jockey Under Armour reflectante, con traspirabilidad máxima gracias a su sistema de ventilación (armourvent), UPF 30 y más.
 * 1 Esmalte de uñas hipoalergénico y de secado rápido de Natura en tono cereza.
@@ -33,4 +33,4 @@ weight: '1'
 1. Dale sí o sí like a esta publicación en Instagram o Facebook.
 2. Etiqueta a 3 amigas/os y que comiencen a seguir Pruebo y te cuento en cualquiera de sus RRSS. Dale la oportunidad de ganar a tus partners.
 3. Deja un comentario acerca de Pruebo y te cuento… Cuáles son los productos sobre los que te gustaría leer (belleza, comida, tecnología, etc.), qué temas te interesan, cómo llegaste a esta cuenta. Lo que tu quieran. Quiero tener tu feedback.
-4. No hay 4. ¡Suerte! **\#SOYprueboytecuento**
+4. 4 No hay 4. ¡Suerte! **\#SOYprueboytecuento**
