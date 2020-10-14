@@ -33,5 +33,4 @@ Los míos llegaron en proceso inicial de descongelamiento así es que los probé
 
 Son ideales para quienes disfrutan de cocteles bien dulces. Yo soy amiga de los secos y me encantaría probar estos sours menos sweet. Sugiero humildemente tener ambas opciones en la carta. Me parece que son demasiado ricos para renunciar a ellos.
 
-Puedes comprar los Bendito Sour en su cuenta de Instagram **@benditosour** o en el **+56939592023**. Están en formato de 330cc. y 1 litros. Los precios van de los $3.500 a $11.900 en el caso del Gin Sour. ¡Que los disfruten! **\#SOYprueboytecuento
-**
+Puedes comprar los Bendito Sour en su cuenta de Instagram **@benditosour** o en el **+56939592023**. Están en formato de 330cc. y 1 litros. Los precios van de los $3.500 a $11.900 en el caso del Gin Sour. ¡Que los disfruten! **\#SOYprueboytecuento**
