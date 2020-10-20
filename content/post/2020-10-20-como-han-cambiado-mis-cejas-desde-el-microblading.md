@@ -50,4 +50,4 @@ Ustedes saben que cuando un producto o servicio no es bueno se los digo. En este
 
 En el Instagram @anamariagomeztorres van a poder conocer más de su arte. Si de precios se trata, el microblading vale $130.000. Ese monto incluye el trabajo sobre las cejas y retoque de las mismas. Estuve averiguando y muchas personas cobran por separado ambos procedimientos.
 
-Si alguna o alguno de ustedes se anima a hacerse el microblading me cuenta cómo les fue, ¿bueno? Quedo atenta. #SOYprueboytecuento
+Si alguna o alguno de ustedes se anima a hacerse el microblading me cuenta cómo les fue, ¿bueno? Quedo atenta. **\#SOYprueboytecuento**
