@@ -42,7 +42,7 @@ En mi caso, las cejas no se han adelgazado tanto, así es no creo que necesite r
 
 ![null](/images/uploads/review-microb-durante.jpg)
 
-Como les conté en mis RRSS, mi intención no era engrosar mis cejas, sino rellenar los espacios que estaban sin pelitos y darles forma. ¡Me encanta el resultado!
+Como les conté en mis RRSS y al principio de esta nota, mi intención no era engrosar mis cejas, sino rellenar los espacios que estaban sin pelitos y darles forma. ¡Me encanta el resultado hasta ahora!
 
 Ustedes saben que cuando un producto o servicio no es bueno se los digo. En este caso, doy fe que el trabajo de la chilena Ana María Gómez es muy bueno. Hace años que vengo siguiendo lo que hace no sólo sobre cejas y, por lo mismo, me atreví a hacer este Pruebo y te cuento con ella. (En la foto de abajo se ve cómo están las cejas actualmente. El proceso aún no termina)
 
