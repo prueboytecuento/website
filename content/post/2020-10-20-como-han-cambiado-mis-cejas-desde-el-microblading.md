@@ -22,7 +22,7 @@ Hace más de una semana me sometí a este proceso de micropigmentación para per
 
 <!--more-->
 
-Cuando digo que ha funcionado bien me refiero a 2 cosas súper importante. Primero, la artista Ana María Gómez es súper porfesional, el cambio fue súper conversado e hizo lo que yo buscaba, no lo que ella quería (suele pasar mucho en la peluquería). Segundo, el paso a paso del proceso de cicatrización ha sido tal como ella lo describió y no he experimentado deformación o reacción alérgica.
+Cuando digo que ha funcionado bien me refiero a 2 cosas súper importante. Primero, la artista Ana María Gómez es súper profesional, el cambio fue súper conversado e hizo lo que yo buscaba, no lo que ella quería (suele pasar mucho en la peluquería). Segundo, el paso a paso del proceso de cicatrización ha sido tal como ella lo describió y no he experimentado deformación o reacción alérgica.
 
 ![null](/images/uploads/review-microb-antes.jpg)
 
@@ -45,8 +45,6 @@ En mi caso, las cejas no se han adelgazado tanto, así es no creo que necesite r
 Como les conté en mis RRSS, mi intención no era engrosar mis cejas, sino rellenar los espacios que estaban sin pelitos y darles forma. ¡Me encanta el resultado!
 
 Ustedes saben que cuando un producto o servicio no es bueno se los digo. En este caso, doy fe que el trabajo de la chilena Ana María Gómez es muy bueno. Hace años que vengo siguiendo lo que hace no sólo sobre cejas y, por lo mismo, me atreví a hacer este Pruebo y te cuento con ella. (En la foto de abajo se ve cómo están las cejas actualmente. El proceso aún no termina)
-
-
 
 ![null](/images/uploads/review-microb-ppal4.jpg)
 
