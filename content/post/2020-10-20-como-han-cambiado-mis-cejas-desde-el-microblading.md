@@ -1,0 +1,51 @@
+---
+title: ¿Cómo han cambiado mis cejas desde el microblading?
+showonlyimage: true
+date: '2020-10-20T10:52:06-03:00'
+image: /images/uploads/review-microb-collage-3.jpg
+rating: '1'
+tags:
+  - Microblading
+  - Cejas
+  - Rellenar
+  - Reconstruir
+  - Corregir
+  - Tatuaje
+  - Rostro
+  - Expresión
+  - Belleza
+categories:
+  - BELLEZA
+weight: '1'
+---
+Hace más de una semana me sometí a este proceso de micropigmentación para perfilar y rellenar los espacios vacios en mis cejas y hasta ahora ha funcionado bien.
+
+<!--more-->
+
+Cuando digo que ha funcionado bien me refiero a 2 cosas súper importante. Primero, la artista Ana María Gómez es súper porfesional, el cambio fue súper conversado e hizo lo que yo buscaba, no lo que ella quería (suele pasar mucho en la peluquería). Segundo, el paso a paso del proceso de cicatrización ha sido tal como ella lo describió y no he experimentado deformación o reacción alérgica. 
+
+Ese paso a paso es muy importante no saltárselo y consiste en que después de hecha la micropigmentación tienen que limpiar las cejas cada media hora con algodones mojados para que no se haga una costra, el segundo día cada 1 hora y el tercero cada 3 horas. Como en la noche no se pueden limpiar hay que aplicar vaselina.
+
+![](/images/uploads/review-microb-dibujo.jpg)
+
+Después de esos 3 días no hay que volver a humedecer con agua, pero pueden echarse vaselina si las sienten muy tirates. Es normal que pase porque se están cicatrizando.
+
+
+
+“Los 15 primeros días no piscina, no sauna, no depilación con cera, no maquillaje en la zona de las cejas, no hacerse pelling ni exfoliaciones ni tratamiento cosmetológicos”, dice Gómez categórica y explica: “Una exfoliación facial irritaría y nos sacaría incluso la tinta (del microblading). Si bien no hay una herida, hay una micro incisión que tiene que cicatrizar bien”.
+
+Con el correr de los días van a ver que sus cejas se adelgazarán un poco. También es normal, pero si quieren lograr el grosor de cuando recién se sometieron al microblading pueden hacerlo el día 28 o día del retoque.
+
+En mi caso, las cejas no se han adelgazado tanto, así es no creo que necesite retoque pero, por supuesto, voy a ir a la sesión porque quiero que Ana María revise el resultado y me confirme que todo anda bien. Y, lógico, les voy a mostrar ese resultado final.
+
+![](/images/uploads/review-microb-3era-parte.jpg)
+
+
+
+Como les conté en mis RRSS, mi intención no era engrosar mis cejas, sino rellenar los espacios que estaban sin pelitos y darles forma. ¡Me encanta el resultado!
+
+Ustedes saben que cuando un producto o servicio no es bueno se los digo. En este caso, doy fe que el trabajo de la chilena Ana María Gómez es muy bueno. Hace años que vengo siguiendo sus trabajos no sólo sobre cejas y, por lo mismo, me atreví a hacer este Pruebo y te cuento con ella. 
+
+En el Instagram @anamariagomeztorres van a poder conocer más de su arte. Si de precios se trata, microblading vale $130.000. Ese monto es por trabajo sobre cejas y retoque. Estuve averiguando y muchas personas cobran por separa las 2 intervenciones.
+
+Si alguna o alguno de ustedes se anima a hacerse el microblading me cuenta por qué se lo hicieron, cómo le fue y si quedaron conformes. Ojo que existe la posibilidad de borrar este tatuaje porque no es tan profundo y porque Ana María te da esa opción. Quedo atenta. #SOYprueboytecuento
