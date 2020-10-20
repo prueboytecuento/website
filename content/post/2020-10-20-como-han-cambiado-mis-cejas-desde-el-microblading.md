@@ -26,7 +26,7 @@ Cuando digo que ha funcionado bien me refiero a 2 cosas súper importante. Prime
 
 ![null](/images/uploads/review-microb-antes.jpg)
 
-Es muy importante no saltarse ninguna de sus instrucciones: inmediatamente después de realizada la micropigmentación hay que limpiar las cejas con algodones mojados cada media hora y así evitar que se forme una costra. El segundo día hay que hacerlo cada 1 hora y el tercero cada 3. Como en la noche no se pueden limpiar hay que aplicar vaselina. 
+El microblading es un tatuaje de poca porfundidad y, por lo mismo, es muy importante no saltarse ninguna de sus instrucciones de cuidado: inmediatamente después de realizada la micropigmentación hay que limpiar las cejas con algodones mojados cada media hora y así evitar que se forme una costra. El segundo día hay que hacerlo cada 1 hora y el tercero cada 3. Como en la noche no se pueden limpiar hay que aplicar vaselina. 
 
 Después de esos 3 días no se vuelven a humedecer con agua, pero pueden echarse vaselina si las sienten muy tirates. Es normal que pase porque están cicatrizando. (Antes del microblading en la foto de arriba. Abajo Ana María mide y dibuja la zona a trabajar) 
 
