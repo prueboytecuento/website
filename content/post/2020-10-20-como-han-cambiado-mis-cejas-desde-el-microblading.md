@@ -38,12 +38,12 @@ Con el correr de los días van a ver que sus cejas se adelgazarán un poco. Tamb
 
 En mi caso, las cejas no se han adelgazado tanto, así es no creo que necesite retoque pero, por supuesto, voy a ir a la sesión porque quiero que Ana María revise el resultado y me confirme que todo anda bien. Y, lógico, les voy a mostrar ese resultado final.
 
-![null](/images/uploads/review-microb-3era-parte.jpg)
+![](/images/uploads/review-microb-3era-parte.jpg)
 
-Como les conté en mis RRSS, mi intención no era engrosar mis cejas, sino rellenar los espacios que estaban sin pelitos y darles forma. ¡Me encanta el resultado! (En la foto de arriba se ve cómo están cejas actualmente. El proceso aún no termina)
+Como les conté en mis RRSS, mi intención no era engrosar mis cejas, sino rellenar los espacios que estaban sin pelitos y darles forma. ¡Me encanta el resultado! (En la foto de arriba se ve cómo están las cejas actualmente. El proceso aún no termina)
 
 Ustedes saben que cuando un producto o servicio no es bueno se los digo. En este caso, doy fe que el trabajo de la chilena Ana María Gómez es muy bueno. Hace años que vengo siguiendo sus trabajos no sólo sobre cejas y, por lo mismo, me atreví a hacer este Pruebo y te cuento con ella. 
 
-En el Instagram @anamariagomeztorres van a poder conocer más de su arte. Si de precios se trata, microblading vale $130.000. Ese monto es por trabajo sobre cejas y retoque. Estuve averiguando y muchas personas cobran por separa las 2 intervenciones.
+En el Instagram @anamariagomeztorres van a poder conocer más de su arte. Si de precios se trata, el microblading vale $130.000. Ese monto incluye el trabajo sobre cejas y retoque. Estuve averiguando y muchas personas cobran por separado los 2 procedimientos.
 
-Si alguna o alguno de ustedes se anima a hacerse el microblading me cuenta por qué se lo hicieron, cómo le fue y si quedaron conformes. Ojo que existe la posibilidad de borrar este tatuaje porque no es tan profundo y porque Ana María te da esa opción. Quedo atenta. #SOYprueboytecuento
+Si alguna o alguno de ustedes se anima a hacerse el microblading me cuenta por qué se lo hicieron, cómo les fue. Quedo atenta. #SOYprueboytecuento
