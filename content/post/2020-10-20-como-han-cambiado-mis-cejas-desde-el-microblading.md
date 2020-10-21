@@ -22,7 +22,7 @@ Hace más de una semana me sometí a este proceso de micropigmentación para per
 
 <!--more-->
 
-Cuando digo que ha funcionado bien me refiero a 2 cosas súper importante. Primero, la artista Ana María Gómez es súper profesional, el cambio fue súper conversado e hizo lo que yo buscaba, no lo que ella quería (suele pasar mucho en la peluquería). Segundo, el paso a paso del proceso de cicatrización ha sido tal como ella lo describió y no he experimentado deformación o reacción alérgica.
+Cuando digo que ha funcionado bien me refiero a 2 cosas súper importantes. Primero, la artista Ana María Gómez es súper profesional, el cambio fue súper conversado e hizo lo que yo buscaba, no lo que ella quería (suele pasar mucho en la peluquería). Segundo, el paso a paso del proceso de cicatrización ha sido tal como ella lo describió y no he experimentado deformación o reacción alérgica.
 
 ![null](/images/uploads/review-microb-antes.jpg)
 
@@ -32,7 +32,7 @@ Después de esos 3 días no se vuelven a humedecer con agua, pero pueden echarse
 
 ![null](/images/uploads/review-microb-dibujo.jpg)
 
-“Los 15 primeros días no piscina, no sauna, no depilación con cera, no maquillaje en la zona de las cejas, no hacerse peeling ni exfoliaciones ni tratamiento cosmetológicos”, dice Gómez categórica y explica: “Una exfoliación facial irritaría y nos sacaría incluso la tinta (del microblading). Si bien no hay una herida, hay una micro incisión que tiene que cicatrizar bien”.
+“Los 15 primeros días no piscina, no sauna, no depilación con cera, no maquillaje en la zona de las cejas, no hacerse peeling ni exfoliaciones ni tratamientos cosmetológicos”, dice Gómez categórica y explica: “Una exfoliación facial irritaría y nos sacaría incluso la tinta (del microblading). Si bien no hay una herida, hay una micro incisión que tiene que cicatrizar bien”.
 
 ![null](/images/uploads/review-microb-anita.jpg)
 
