@@ -20,11 +20,11 @@ weight: '1'
 ---
 ¿Hay vinos buenos? ¿Hay vinos malos? Desde mi punto de vista va a depender del paladar de cada uno y el mío se complace en presentarles esta colección premium de Concha y Toro.
 
-<!--more-->
+<!--more-->
 
 Se trata de 6 cepas, de viñedos que se alimentan del Rapel, Cachapoal, Tinguiririca y Loncomilla. De parras plantadas en laderas y terrazas alrededor de estas riberas.
 
-En compañía del enólogo Marcio Ramírez y un grupo de periodistas hicimos el tasting de 4 de estos **Gran Reserva Serie Riberas**: los rojos Cabernet Sauvignon (2018), Carmenere (2018), y los blancos Sauvignon Blanc (2019) y Chardonnay (2017).
+En compañía del enólogo Marcio Ramírez y un grupo de periodistas hicimos el tasting de 4 de estos **Gran Reserva Serie Riberas**: los rojos Cabernet Sauvignon (2018), Carmenere (2018), y los blancos Sauvignon Blanc (2019) y Chardonnay (2017).
 
 Antes de ir al vino a vino, les dejo 2 tips de Ramírez para tomar el vino en su punto exacto.
 
@@ -32,13 +32,9 @@ Antes de ir al vino a vino, les dejo 2 tips de Ramírez para tomar el vino en su
 
 2 Si no tienes cava, es bueno guardar los tintos en el refrigerador para que tus vinos no se calienten. Es un error, por ejemplo, poner un tinto junto al fuego de una parrilla. Cuando se habla de calentarlos, en realidad se refiere a descorcharlo y que tomen la temperatura ambiente. 17 grados es la temperatura ideal.
 
-
-
-![](/images/uploads/review-serier-todos.jpg)
+![null](/images/uploads/review-serier-todos.jpg)
 
 > **UNO A UNO**
->
-> 
 
 **Carmenere (2018)**
 
@@ -56,24 +52,26 @@ Es un vino que recuerda el gusto al limón e incluso al ají verde. Un buen part
 
 Si me das a escoger entre los 2 blancos que degustamos el Chardonnay me coqueteó desde el primer sorbo y enamoró.
 
-**Chardonnay (2017)**
+**Chardonnay (2017)
+**
 
-Su amarillo es intenso, es de gruesa textura y muy poca acidez. Su dulzor y aroma me recuerda las papayas. No llega a ser empalagoso. El que me lee hace tiempo sabe que no soy muy amiga de los rosé, cremas irlandesas o los demi sec en el caso de los espumantes.
+Su amarillo es intenso, es de gruesa textura y muy poca acidez. Su dulzor y aroma me recuerda las papayas. No llega a ser empalagoso. El que me lee hace tiempo sabe que no soy muy amiga de los rosé, cremas irlandesas o los demi sec en el caso de los espumantes.
 
 En ese contexto, el equilibrio de este Chardonnay es el que me conquistó. Pinta bien con un pollo a la plancha, pasta con salsas blancas, cerdo al horno o chocolate amargo, dice el enólogo. 
 
-![](/images/uploads/review-serier-blancos.jpg)
+![null](/images/uploads/review-serier-blancos.jpg)
 
-**Cabernet Sauvignon (2018)**
+**Cabernet Sauvignon (2018)
+**
 
 Al primer contacto aparecen frutillas y guindas. Con primer contacto me refiero a nariz. En boca es una maravilla. También hay una marcada presencia de alcohol que no es para nada desagradable. Su rojo es intenso.
 
 Según el enólogo, este vino pega perfecto con quesos maduros y yo que amo el grana padano hice la prueba y la experiencia fue interesante. Su tiempo de guarda es de 12 meses en barricas de roble francés.
 
-![](/images/uploads/review-serier-cs.jpg)
+![null](/images/uploads/review-serier-cs.jpg)
 
 Un punto no menor sobre la génesis de estos vinos es el uso sustentable de los recursos. El regadío en los viñedos es por goteo, por lo tanto, hay un uso eficiente del agua. Los bosques no han sido intervenidos y eso ha permitido que las especies animales permanezcan en su lugar de origen.
 
 “Hay un corredor biológico de árboles en la mitad del viñedo. Son 1000 hectáreas y se decidió no talarlos para no perjudicar el ecosistema”, comenta Ramírez.
 
-Los Gran Reserva Serie Riberas están a la venta en supermercados y tiendas especializadas. Una de ellas es descorcha.com que es de la misma viña Concha y Toro. A modo de referencia cada botella de 750cc. vale 8 mil pesos. #SOYprueboytecuento
+Los Gran Reserva Serie Riberas están a la venta en supermercados y tiendas especializadas. Una de ellas es descorcha.com que es de la misma viña Concha y Toro. A modo de referencia cada botella de 750cc. vale 8 mil pesos. **\#SOYprueboytecuento**
