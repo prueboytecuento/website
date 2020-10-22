@@ -52,8 +52,7 @@ Es un vino que recuerda el gusto al limón e incluso al ají verde. Un buen part
 
 Si me das a escoger entre los 2 blancos que degustamos el Chardonnay me coqueteó desde el primer sorbo y enamoró.
 
-**Chardonnay (2017)
-**
+**Chardonnay (2017)**
 
 Su amarillo es intenso, es de gruesa textura y muy poca acidez. Su dulzor y aroma me recuerda las papayas. No llega a ser empalagoso. El que me lee hace tiempo sabe que no soy muy amiga de los rosé, cremas irlandesas o los demi sec en el caso de los espumantes.
 
@@ -61,8 +60,7 @@ En ese contexto, el equilibrio de este Chardonnay es el que me conquistó. Pinta
 
 ![null](/images/uploads/review-serier-blancos.jpg)
 
-**Cabernet Sauvignon (2018)
-**
+**Cabernet Sauvignon (2018)**
 
 Al primer contacto aparecen frutillas y guindas. Con primer contacto me refiero a nariz. En boca es una maravilla. También hay una marcada presencia de alcohol que no es para nada desagradable. Su rojo es intenso.
 
