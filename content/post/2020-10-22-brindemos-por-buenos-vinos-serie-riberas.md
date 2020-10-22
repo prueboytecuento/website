@@ -22,7 +22,7 @@ weight: '1'
 
 <!--more-->
 
-Se trata de 6 cepas, de viñedos que se alimentan del Rapel, Cachapoal, Tinguiririca y Loncomilla. De parras plantadas en laderas y terrazas alrededor de estas riberas.
+Se trata de 6 cepas de viñedos que se alimentan del Rapel, Cachapoal, Tinguiririca y Loncomilla. De parras plantadas en laderas y terrazas alrededor de estas riberas.
 
 En compañía del enólogo Marcio Ramírez y un grupo de periodistas hicimos el tasting de 4 de estos **Gran Reserva Serie Riberas**: los rojos Cabernet Sauvignon (2018), Carmenere (2018), y los blancos Sauvignon Blanc (2019) y Chardonnay (2017).
 
@@ -30,7 +30,7 @@ Antes de ir al vino a vino, les dejo 2 tips de Ramírez para tomar el vino en su
 
 1 Los vinos blancos se beben a 12 o 13 grados de temperatura. Si vas a tomar un Sauvignon Blanc que sea del año o el año anterior. El periodo de guarda es breve y en acero inoxidable. Eso lo convierte en un vino fresco y liviano. 
 
-2 Si no tienes cava, es bueno guardar los tintos en el refrigerador para que tus vinos no se calienten. Es un error, por ejemplo, poner un tinto junto al fuego de una parrilla. Cuando se habla de calentarlos, en realidad se refiere a descorcharlo y que tomen la temperatura ambiente. 17 grados es la temperatura ideal.
+2 Si no tienes cava, guarda los tintos en el refrigerador para que no se calienten. Es un error, por ejemplo, poner un tinto junto al fuego de una parrilla. Cuando se habla de calentarlos, en realidad se refiere a descorcharlo y que tomen la temperatura ambiente. 17 grados es la temperatura ideal.
 
 ![null](/images/uploads/review-serier-todos.jpg)
 
@@ -38,11 +38,11 @@ Antes de ir al vino a vino, les dejo 2 tips de Ramírez para tomar el vino en su
 
 **Carmenere (2018)**
 
-Carmenere o cepa insigne de Chile. Abunda en nuestro territorio y por muchos años se consumió por error como Merlot. Desde el primer sorbo hay suavidad. Es un vino sedoso, redondo… Se expande en tu boca. Un Gran Reserva de aroma y gusto a frutos rojos como el arándano y las moras.
+Carmenere o cepa insigne de Chile. Abunda en nuestro territorio y por muchos años se consumió por error como Merlot. Desde el primer sorbo hay suavidad. Es un vino sedoso, redondo… Se expande en tu boca. Un Gran Reserva de aroma y gusto a frutos como el arándano y moras.
 
 El proceso de maduración de las uvas es lento y se sabe que están listas para cosechar cuando sus hojas se tornan rojas. Su textura densa tiene que ver con el fruto, pero también con el tiempo de guarda que es de 10 meses en barricas de roble. A pesar de que hay contacto directo con la madera, yo no sentí su presencia.
 
-Marcio Ramírez recomienda maridar con comida chilena. Platos contundentes como el charquicán. Unas empanadas de pino, porotos, comidas especiadas e incluso una pizza picante. De los 2 rojos que probamos este hizo match con mi paladar.
+Marcio Ramírez recomienda maridar con comida chilena. Platos contundentes como el charquicán. Unas empanadas de pino, porotos, comidas especiadas e incluso una pizza picante. De los 2 rojos que probamos este hizo un mega match con mi paladar.
 
 **Sauvignon Blanc (2019)**
 
