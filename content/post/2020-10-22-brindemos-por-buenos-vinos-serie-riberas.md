@@ -48,13 +48,13 @@ Marcio Ramírez recomienda maridar con comida chilena. Platos contundentes como 
 
 Este vino es todo lo contrario al Carmenere, partiendo porque es un blanco. Un blanco fresco y liviano con agradables notas de acidez. Acidez que no se apropia de tu boca. Simplemente saluda y se va. 
 
-Es un vino que recuerda el gusto al limón e incluso al ají verde. Un buen partner es un mix de ensaladas verdes o unas ostras. Se conserva por 7 meses en tanques de acero inoxidables. Es un Gran Reserva correcto. 
+Es un vino que recuerda el gusto al limón e incluso al ají verde. Un buen partner es un mix de ensaladas verdes o unas ostras. Se conserva por 7 meses en tanques de acero inoxidable. Es un Gran Reserva correcto. 
 
 Si me das a escoger entre los 2 blancos que degustamos el Chardonnay me coqueteó desde el primer sorbo y enamoró.
 
 **Chardonnay (2017)**
 
-Su amarillo es intenso, es de gruesa textura y muy poca acidez. Su dulzor y aroma me recuerda las papayas. No llega a ser empalagoso. El que me lee hace tiempo sabe que no soy muy amiga de los rosé, cremas irlandesas o los demi sec en el caso de los espumantes.
+Su amarillo es intenso, es de gruesa textura y muy poca acidez. Su dulzor y aroma me recuerda las papayas. No llega a ser empalagoso. El que me lee desde hace un tiempo sabe que no soy muy amiga de los rosé, cremas irlandesas o los demi sec en el caso de los espumantes.
 
 En ese contexto, el equilibrio de este Chardonnay es el que me conquistó. Pinta bien con un pollo a la plancha, pasta con salsas blancas, cerdo al horno o chocolate amargo, dice el enólogo. 
 
@@ -62,13 +62,13 @@ En ese contexto, el equilibrio de este Chardonnay es el que me conquistó. Pinta
 
 **Cabernet Sauvignon (2018)**
 
-Al primer contacto aparecen frutillas y guindas. Con primer contacto me refiero a nariz. En boca es una maravilla. También hay una marcada presencia de alcohol que no es para nada desagradable. Su rojo es intenso.
+Al primer contacto aparecen frutillas y guindas. Con primer contacto me refiero en nariz. En boca es una maravilla. También hay una marcada presencia de alcohol que no es para nada desagradable. Su rojo es intenso.
 
-Según el enólogo, este vino pega perfecto con quesos maduros y yo que amo el grana padano hice la prueba y la experiencia fue interesante. Su tiempo de guarda es de 12 meses en barricas de roble francés.
+Según el enólogo, este vino pega perfecto con quesos maduros y yo que amo el Grana Padano hice la prueba y la experiencia fue interesante. Su tiempo de guarda es de 12 meses en barricas de roble francés.
 
 ![null](/images/uploads/review-serier-cs.jpg)
 
-Un punto no menor sobre la génesis de estos vinos es el uso sustentable de los recursos. El regadío en los viñedos es por goteo, por lo tanto, hay un uso eficiente del agua. Los bosques no han sido intervenidos y eso ha permitido que las especies animales permanezcan en su lugar de origen.
+Un punto no menor sobre la génesis de estos vinos es el uso sustentable de los recursos. El regadío de los viñedos es por goteo, por lo tanto, hay un uso eficiente del agua. Los bosques no han sido intervenidos y eso ha permitido que las especies animales permanezcan en su lugar de origen.
 
 “Hay un corredor biológico de árboles en la mitad del viñedo. Son 1000 hectáreas y se decidió no talarlos para no perjudicar el ecosistema”, comenta Ramírez.
 
