@@ -32,5 +32,4 @@ La casa-taller está en Recoleta. Ahí se estampan los rollos de tela de plásti
 
 Las mochilas de botellas se pueden comprar en www.botela.cl o en tiendas de retail como Falabella.
 
-**Fuente: Journey y Pruebo y te cuento
-**
+**Fuente: Journey y Pruebo y te cuento**
