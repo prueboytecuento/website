@@ -95,4 +95,4 @@ El S Pen también sirve para diseñar gráficos o dibujar sobre una foto que es 
 
 Hay una serie de especificaciones técnicas que te pueden interesar y están en www.samsung.com/cl/. No las detallo en esta nota, porque la idea de Pruebo y te cuento es relatar mi experiencia como periodista-consumidora con los productos. Para lo demás te dejo el link.
 
-El Galaxy Note20 Utra está disponible en color Mystic Bronze, Mystic White y Mystic Black, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. #SOYprueboytecuento
+El Galaxy Note20 Utra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
