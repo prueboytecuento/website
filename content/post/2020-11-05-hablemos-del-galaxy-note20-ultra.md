@@ -87,7 +87,11 @@ El S Pen también sirve para diseñar gráficos, dibujar o dibujar sobre una fot
 
 \-**Ecosistema Samsung**. Galaxy Note20 Ultra se puede conectar a todos los dispositivos de la familia Galaxy. De hecho puedes mandar a la pantalla de tu SmartTV lo mismo que estás viendo en el celular. No alcancé a probar esta función porque sólo tuve 2 semanas para revisar el equipo. 
 
-\-Sobre la duración de la **batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un Super Fast Charging que en 30 minutos deja la batería al 100%.
+\-Sobre la duración de la **batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un Super Fast Charging que en 30 minutos deja la batería al 100%. 
+
+Ojo que el cargador es con conexión USB-C en ambos extremos, por lo tanto, si vas a conectar el teléfono con tu laptop y tu puerto es el anterior vas a tener que usar un adaptador o, derechamente, comprar otro cable.
+
+El equipo viene además con audífonos tradicionales y la llave para la tarjeta SIM. 
 
 ![null](/images/uploads/review-galaxy-note20-equipos.jpg)
 
