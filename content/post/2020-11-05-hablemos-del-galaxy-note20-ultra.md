@@ -37,7 +37,7 @@ Ojo que no estoy diciendo que es imposible que este modelo Samsung se caiga, per
 
 \-**Vamos al primer contacto con la pantalla**. En una palabra, “alucinante”. Una pantalla en donde los colores están vivos, hay texturas, hay 3D. Una pantalla que se puede ver sin problema a pleno sol. En la imagen de arriba se puede apreciar la calidad de la que les hablo.
 
-Tomé la foto del collar sobre un fondo de rectángulos de madera y, luego, una del Galaxy Note20 Ultra con la foto lista sobre ese mismo fondo. Parece una tabla más. La amé.
+Tomé la foto del collar sobre un fondo de rectángulos de madera y, luego, una del Galaxy Note20 Ultra con la foto lista sobre ese mismo fondo. Parece una tabla más. Realidad.
 
 \-**¿Navegación?** Amigable, rápida, sin grandes dificultades al pasar de una función a otra, recorrer las apps, etc. Este punto no es menor cuando eres hija de IOS (iPhone, iPad, MacBook Pro), no estás familiarizado con Android y no quieres perder tiempo en detalles de navegación. En ese sentido el Galaxy Note20 Ultra anda bien.
 
