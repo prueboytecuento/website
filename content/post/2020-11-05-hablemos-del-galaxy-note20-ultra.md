@@ -89,10 +89,10 @@ El S Pen también sirve para diseñar gráficos o dibujar sobre una foto que es 
 
 \-**Ecosistema Samsung**. Galaxy Note20 Ultra se puede conectar a todos los dispositivos de la familia Galaxy. De hecho puedes mandar a la pantalla de tu SmartTV lo mismo que estás viendo en el celular. No alcancé a probar esta función porque sólo tuve 2 semanas para revisar el equipo. 
 
-\-Sobre la duración de la** batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un Super Fast Charging que en 30 minutos deja la batería al 100%.
+\-Sobre la duración de la** batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un **Super Fast Charging** que en 30 minutos deja la batería al 100%.
 
 ![null](/images/uploads/review-galaxy-n20-collar.jpg)
 
-Hay una serie de especificaciones técnicas que te pueden interesar y están en www.samsung.com/cl/. No las detallo en esta nota, porque la idea de Pruebo y te cuento es relatar mi experiencia como periodista-consumidora con los productos. Para lo demás te dejo el link.
+Hay una serie de especificaciones técnicas que te pueden interesar y están en **www.samsung.com/cl/**. No las detallo en esta nota, porque la idea de Pruebo y te cuento es relatar mi experiencia como periodista-consumidora con los productos. Para lo demás te dejo el link.
 
-El Galaxy Note20 Utra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
+El Galaxy Note20 Ultra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
