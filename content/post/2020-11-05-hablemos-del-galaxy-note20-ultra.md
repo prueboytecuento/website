@@ -33,7 +33,7 @@ Los smartphones con los 4 bordes redondeados bailan en la mano. Me pasa siempre 
 
 Ojo que no estoy diciendo que es imposible que este modelo Samsung se caiga, pero es menos “inestable”.
 
-![null](/images/uploads/review-galaxy-n20-paisaje2.jpg)
+![null](/images/uploads/review-galaxy-n20-collar.jpg)
 
 \-**Vamos al primer contacto con la pantalla**. En una palabra, “alucinante”. Una pantalla en donde los colores están vivos, hay texturas, hay 3D. Una pantalla que se puede ver sin problema a pleno sol.
 
@@ -43,7 +43,7 @@ Lo que no me gustó en términos de navegación y uso de funciones fue el **Smar
 
 Tiene una versión para Mac, pero el proceso es eterno. La aplicación se descarga en menos de un minuto en el compu, pero para usarla te pide habilitar una pila de funciones que, por lo general, bloqueas por seguridad. Es como ir pasando niveles en un videojuego.
 
-![null](/images/uploads/review-galaxy-note20-equipos.jpg)
+![null](/images/uploads/review-galaxy-n20-paisaje2.jpg)
 
 \-**Fotografía**. Apps para hacer y editar fotos o videos hay muchas, pero honestamente este celular no necesita nada. Con las funciones que ya tiene incorporadas puedes lograr imágenes espectaculares.
 
@@ -89,10 +89,10 @@ El S Pen también sirve para diseñar gráficos o dibujar sobre una foto que es 
 
 \-**Ecosistema Samsung**. Galaxy Note20 Ultra se puede conectar a todos los dispositivos de la familia Galaxy. De hecho puedes mandar a la pantalla de tu SmartTV lo mismo que estás viendo en el celular. No alcancé a probar esta función porque sólo tuve 2 semanas para revisar el equipo. 
 
-\-Sobre la duración de la** batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un **Super Fast Charging** que en 30 minutos deja la batería al 100%.
+\-Sobre la duración de la** batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un Super Fast Charging que en 30 minutos deja la batería al 100%.
 
-![null](/images/uploads/review-galaxy-n20-collar.jpg)
+![null](/images/uploads/review-galaxy-note20-equipos.jpg)
 
-Hay una serie de especificaciones técnicas que te pueden interesar y están en **www.samsung.com/cl/**. No las detallo en esta nota, porque la idea de Pruebo y te cuento es relatar mi experiencia como periodista-consumidora con los productos. Para lo demás te dejo el link.
+Hay una serie de especificaciones técnicas que te pueden interesar y están en www.samsung.com/cl/. No las detallo en esta nota, porque la idea de Pruebo y te cuento es relatar mi experiencia como periodista-consumidora con los productos. Para lo demás te dejo el link.
 
-El Galaxy Note20 Ultra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
+El Galaxy Note20 Utra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
