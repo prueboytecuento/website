@@ -49,7 +49,7 @@ Tiene una versión para Mac, pero el proceso es eterno. La aplicación se descar
 
 Yo me enamoré de la **Toma Única**. En un disparo el celular registra la misma foto en distintos colores, graba un boomerang y hace videos: uno con sonido ambiente y otro musicalizado.
 
-Hace unas noches salí a la calle e hice imágenes de la Luna Azul en esta función. ¡Im-pre-sio-nan-te! En la secuencia de fotos se ve cómo se potenciaron los colores en una captura nocturna. Lindo recuerdo de este fenémeno astronómico.
+Hace unas noches salí a la calle e hice imágenes de la Luna Azul en esta función. ¡Im-pre-sio-nan-te! En la secuencia de fotos de abajo se ve parte del resultado de la Toma Única y cómo se potenciaron los colores en esta captura nocturna. Lindo recuerdo de este fenémeno astronómico.
 
 ![null](/images/uploads/review-galaxy-n20-luna.jpg)
 
@@ -67,7 +67,7 @@ Hace unas noches salí a la calle e hice imágenes de la Luna Azul en esta funci
 
 \-De 10MP, Píxel Dual AF con tamaño del píxel de 1,22μm. FOV: 80˚ y F.No (apertura): F2,2.
 
-\-La** isla de cámaras** sobresale como en la mayoría de los smartphones que están en el mercado y me carga. Es súper fácil que se raye al contacto con cualquier superficie. Ni hablar de un golpe involuntario. El uso de carcasa es casi obligatorio. 
+\-La **isla de cámaras** sobresale como en la mayoría de los smartphones que están en el mercado y me carga. Es súper fácil que se raye al contacto con cualquier superficie. Ni hablar de un golpe involuntario. El uso de carcasa es casi obligatorio. 
 
 Ahí la deuda es de todas las compañías. Desarrollar y diseñar teléfonos con cámaras de alta gama que quedan desprotegidas no me hace sentido.
 
@@ -77,22 +77,20 @@ Ahí la deuda es de todas las compañías. Desarrollar y diseñar teléfonos con
 
 Hay una función que se llama **Escribir en Pantalla** (foto de arriba) que consiste en abrir el documento o página que quieras, pinchar la función e inmediatamente se va a hacer una captura del documento. Ahí ya está listo para ser intervenido. En la foto está el ejemplo. Puedes volver a editarlo después de haberlo cerrado.
 
-El S Pen también sirve para diseñar gráficos o dibujar sobre una foto que es lo que yo hice con la del hurón. Pequeños y bonitos detalles. También tienes la posibilidad de traducir lo que escribes. Muy útil. 
+El S Pen también sirve para diseñar gráficos, dibujar o dibujar sobre una foto que es lo que yo hice con la del hurón. Unos cuantos detalles en blanco. También tienes la posibilidad de traducir lo que escribes. Muy útil. 
 
 ![null](/images/uploads/review-galaxy-n20-huro-n.jpg)
 
 **Presentación S Pen** https://youtu.be/DWRcNpR6Kdc
 
-\-**Juegos**. La fluidez de imagen y sonido durante un juego es súper buena en pantalla. Lo pude ver mientras construía una casa y ciudad con mi hija Rafaela (7) en BlockMan Go. No es de los juegos que más recursos usan, pero hay smartphones en donde la imagen en este tipo de juegos se pixela.
-
-**PANTALLAZO JUEGO**
+\-**Juegos**. La fluidez de imagen y sonido durante un juego es súper buena en pantalla. Lo pude ver mientras construía una casa y ciudad con mi hija Rafaela (7) en BlockMan Go. No es de los juegos que más recursos usa, pero hay smartphones en donde la imagen en este tipo de juegos se pixela.
 
 \-**Ecosistema Samsung**. Galaxy Note20 Ultra se puede conectar a todos los dispositivos de la familia Galaxy. De hecho puedes mandar a la pantalla de tu SmartTV lo mismo que estás viendo en el celular. No alcancé a probar esta función porque sólo tuve 2 semanas para revisar el equipo. 
 
-\-Sobre la duración de la** batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un Super Fast Charging que en 30 minutos deja la batería al 100%.
+\-Sobre la duración de la **batería** (4.500 mAh), el Galaxy Note20 Ultra puede estar sin recarga hasta 2 días. Eso me duró a mí con uso medio diario. Viene con un Super Fast Charging que en 30 minutos deja la batería al 100%.
 
 ![null](/images/uploads/review-galaxy-note20-equipos.jpg)
 
 Hay una serie de especificaciones técnicas que te pueden interesar y están en www.samsung.com/cl/. No las detallo en esta nota, porque la idea de Pruebo y te cuento es relatar mi experiencia como periodista-consumidora con los productos. Para lo demás te dejo el link.
 
-El Galaxy Note20 Utra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black**, se pueden comprar en Samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
+El Galaxy Note20 Ultra está disponible en color **Mystic Bronze**, **Mystic White** y **Mystic Black** (foto superior), se puede comprar en www.samsung.com, tiendas de retail y operadores telefónicos. Este modelo vale $1.199.990. **\#SOYprueboytecuento**
