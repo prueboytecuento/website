@@ -1,5 +1,5 @@
 ---
-title: 'Lumina, pelo brillante garantizado'
+title: 'Lumina, brillo capilar garantizado'
 showonlyimage: true
 date: '2020-11-11T11:40:46-03:00'
 image: /images/uploads/review-lumina-natura.jpg
