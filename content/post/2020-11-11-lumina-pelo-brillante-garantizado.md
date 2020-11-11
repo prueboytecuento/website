@@ -30,4 +30,4 @@ No saben lo que es tener el pelo brillante antes de secarlo y sin ese peso que d
 
 La idea es que sigas usando tu shampoo de cabecera y una vez a la semana hagas este ritual de desintoxicación. A mí me gustó mucho y lo voy a seguir usando.
 
-Este Lumina se puede comprar en www.natura.cl o a través de las consultoras de la marca. En este momento está en oferta en la web a $3.890 ($4.990 si descuento). **\#SOYprueboytecuento**
+Este Lumina se puede comprar en www.natura.cl o a través de las consultoras de la marca. En este momento está en oferta en la web a $3.890 ($4.990 sin descuento). **\#SOYprueboytecuento**
