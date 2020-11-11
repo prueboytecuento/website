@@ -24,7 +24,7 @@ Les hablo de **Lumina**, un shampoo detox para limpieza profunda y para todo tip
 
 Cuando me lo apliqué sentí mi pelo súper áspero… Como si me hubiese echado detergente para ropa en la cabeza, jajajá. Lo empecé a distribuir y se me formaron montones de pelito. Lógico, me asusté, pero vino el enjuague y la magia se hizo.
 
-![](/images/uploads/review-lumina-natura-yo.jpg)
+![null](/images/uploads/review-lumina-natura-yo.jpg)
 
 No saben lo que es tener el pelo brillante antes de secarlo y sin ese peso que dejan otros shampoos. Es un eficiente antiresiduos. Un producto que, ojo, no es de uso diario.
 
