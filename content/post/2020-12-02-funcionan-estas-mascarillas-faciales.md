@@ -1,7 +1,7 @@
 ---
 title: ¿Funcionan estas mascarillas faciales?
 showonlyimage: true
-date: '2020-12-01T13:12:23-03:00'
+date: '2020-11-30T13:12:23-03:00'
 image: /images/uploads/review-mia-mascara-1.jpg
 rating: '1'
 tags:
