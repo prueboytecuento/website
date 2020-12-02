@@ -16,7 +16,7 @@ tags:
   - Mia
   - Maicao
   - Máscara Facial
-  - '#Mascarilla'
+  - Mascarilla
 categories:
   - BELLEZA
 weight: '1'
