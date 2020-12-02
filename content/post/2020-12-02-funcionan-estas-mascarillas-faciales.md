@@ -23,6 +23,8 @@ weight: '1'
 ---
 Después de mi mala experiencia con un producto **Bioré**, inevitablemente voy temerosa a probar cualquier fórmula en mi cara. No la quiero hinchada y enrojecida otra vez. Con esta máscara de **Mia** no tuve problemas.
 
+<!--more-->
+
 Probé la de ácido hialurónico y fue súper agradable la experiencia. La mayoría de las mascarillas refrescan y dan un efecto mentolado sobre la piel. Con esta lo que sientes es suavidad.
 
 ![null](/images/uploads/review-mia-collage.jpg)
