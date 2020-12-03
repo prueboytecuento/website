@@ -1,7 +1,7 @@
 ---
 title: 'Gana una botella de Malpaso edición Eclipse '
 showonlyimage: true
-date: '2020-12-03T10:39:09-03:00'
+date: '2020-11-27T10:39:00-03:00'
 image: /images/uploads/rrss-malpaso-eclipse2.jpg
 rating: '1'
 tags:
