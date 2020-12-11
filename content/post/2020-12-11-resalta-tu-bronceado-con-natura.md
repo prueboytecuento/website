@@ -2,7 +2,7 @@
 title: Resalta tu bronceado con Natura
 showonlyimage: true
 date: '2020-12-11T01:17:58-03:00'
-image: /images/uploads/review-natura-playa-base.jpg
+image: /images/uploads/review-natura-playa-ppalok.jpg
 rating: '1'
 tags:
   - Bronceado
