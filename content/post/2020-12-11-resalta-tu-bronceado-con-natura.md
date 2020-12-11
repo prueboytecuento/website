@@ -34,11 +34,11 @@ La primera vez que apliqué la base mi piel quedó oscura. No consideré que ten
 
 Es un producto ligero, así es que mi piel no quedó pesada y le dio un aspecto muy fresh. De hecho no fue necesario poner otro tipo de maquillaje para marcar, por ejemplo, los pómulos o usar un iluminador. Cushion FPS 40 (tono Medio 20) y mi bronceado hicieron buen match.
 
-Tengo un neutralizador de tonos. El** Primer Facial** ($10.990), que es súper bueno corrigiendo imperfecciones (soy la reina de las manchas), pero opté por no recargar mi carita con tantos productos esta vez. Ello, no quiere decir que dejaré de recomendarles este primer porque, al menos a mí, me ha ayudado bastante con el maquillaje. Pruébenlo.
+Tengo un neutralizador de tonos. El **Primer Facial** ($10.990), que es súper bueno corrigiendo imperfecciones (soy la reina de las manchas), pero opté por no recargar mi carita con tantos productos esta vez. Ello, no quiere decir que dejaré de recomendarles este primer porque, al menos a mí, me ha ayudado bastante con el maquillaje. Pruébenlo.
 
-Para resaltar la mirada usé la **Maxxi Palette Intensa** ($20.900). Me gusta porque son 12 sombras y, punto no menor, me ahorré hartas lucas comprándolas de una sola vez. Y además tiene tonos que se pueden usar tanto en el día como la noche.
+Para resaltar la mirada usé la **Maxxi Palette Intensa** ($20.900). Me gusta porque son 12 sombras y, punto no menor, me ahorré hartas lucas comprándolas de una sola vez. Y además tiene tonos que se pueden usar tanto en el día como en la noche.
 
-![](/images/uploads/review-natura-playa-collage.jpg)
+![null](/images/uploads/review-natura-playa-collage.jpg)
 
 Este maquillaje playero-primaveral lo armé usando el nude (2do color de izquierda a derecha) para el arco de la ceja y en el párpado movil el rosa (3er color de izquierda a derecha). Ambos los apliqué y difuminé con el dedo. Clásico truco de las maquilladoras. 
 
@@ -50,4 +50,4 @@ La duración tanto de la base como de las sombras fue buenísima. No hubo oleosi
 
 En los labios me apliqué el **Primer Pro Labial** ($6.350) para una textura y aspecto uniforme y, luego, me maquillé con el **Labial Matte Larga Duración FPS 15** ($8.900). Usé el color Rose 4-M que es muy similar al color de mis labios, así es que el maquillaje total fue muy natural y aportó más vida a mi bronceado. Me encantó.
 
-Estos productos están disponibles en **www.natura.cl**. Estuve revisando la web y de la base Cushion FPS 40 quedaban muy pocas unidades. Entren a la página y vayan por lo que más las identifique. Lo mío son sugerencias y experiencias que espero les sirvan. **\#SOYprueboytecuento**
+Estos productos están disponibles en **www.natura.cl**. Estuve revisando la web y de la base Cushion FPS 40 quedaban pocas unidades. Entren a la página y vayan por lo que más las identifique. Lo mío son sugerencias y experiencias que espero les sirvan. **\#SOYprueboytecuento**
