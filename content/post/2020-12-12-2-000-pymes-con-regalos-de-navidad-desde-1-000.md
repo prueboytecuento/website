@@ -1,5 +1,5 @@
 ---
-title: 2.000 pymes con regalos de Navidad desde $1.000
+title: 2.000 pymes con regalos de Navidad desde 1.000 pesos
 showonlyimage: true
 date: '2020-12-12T11:59:24-03:00'
 image: /images/uploads/dato-sercotec-catagologo.jpg
