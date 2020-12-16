@@ -2,7 +2,7 @@
 title: ¿Aún no compran los regalos de Navidad? Aquí opciones
 showonlyimage: true
 date: '2020-12-16T09:54:23-03:00'
-image: /images/uploads/dato-gn-maicao-collage.jpg
+image: /images/uploads/dato-gn-ppal2.jpg
 rating: '1'
 tags:
   - Navidad
@@ -16,7 +16,7 @@ Entre que no tenemos tiempo, que las tiendas cierran más temprano por pandemia,
 
 Así es que les armé una guía de regalos navideños para todo tipo de bolsillos. Espero te sirva. #SOYprueboytecuento
 
-![null]()
+![Emma, asesoría de belleza por WhatsApp.](/images/uploads/dato-gn-emma.jpg)
 
 > **BELLEZA**
 
@@ -35,7 +35,7 @@ Así es que les armé una guía de regalos navideños para todo tipo de bolsillo
 
 Disponibles en www.dbs.cl.
 
-**FOTO LABIALES ESSENCE**
+![Labiales Essence.](/images/uploads/dato-gn-essence-labial.jpg)
 
 **Microblading** con Ana María Gómez
 
@@ -44,8 +44,6 @@ Ya les adelanté en un post la oferta atómica que tiene la artista Ana María G
 El procedimiento cuesta $130.000, pero mencionando Pruebo y te cuento al momento de agendar tu hora, queda a $98.000. Tienes, además que seguir Pruebo y te cuento en sus RRSS (IG @prueboytecuento o FB Pruebo y te cuento) y la cuenta de la artista en IG @anamariagomeztorres. ¿Qué tal? Las reservas se hacen en el mismo Instagram de Ana María.
 
 Disponible en @anamariagomeztorres.
-
-**FOTO AMEIZ**
 
 **Ameiz**
 
@@ -56,6 +54,8 @@ Funciona así: tienen que ingresar a Ameiz App y reservar el servicio en el luga
 Algunos de los servicios son, manicure, manicure francesa, masajes de relajación, cambio de look para esperar el 2021, corte de pelo, balayage, mechas de color, botox y alisado, entre otros.
 
 Disponible en Ameiz app.
+
+![Colección LUZ de UNA, Natura](/images/uploads/dato-gn-natura.jpg)
 
 **Natura**
 
@@ -69,13 +69,13 @@ Pincel Rostro y Cuerpo - $10.850.
 
 Disponibles en www.natura.cl.
 
-**FOTO NATURA**
-
 **Emma**
 
 No sabes cómo maquillarte, que cremas aplicarte sobre el rostro, cómo eliminar manchas y granos. Todas esas respuestas las ofrece Emma, asesoría de belleza por whatsapp. Es un servicio totalmente personalizado, anónimo y de confianza.
 
 Son 30 expertas que están disponibles de lunes a domingo, entre las 9 y 22 horas, y para acceder a sus servicios, tienes que entrar al INSTAGRAM @emma_cares_cl, www.emma-cares.cl o al +569 3053 0001.
+
+![Box Emma.](/images/uploads/dato-gn-emma2.jpg)
 
 Pagas $20.000 y recibirás en tu casa todo los productos que la experta considere necesarios para tu rostro. En Emma trabajan con marcas como MAC, Clinique, Uriage, Bobbi Brown y otras.
 
@@ -84,14 +84,6 @@ Disponible en IG (@emma_cares_cl), www.emma-cares.cl o en el +569 3053 0001.
 **Maicao**
 
 Las opciones de esta tienda son infinitas y con varias marcas en stock.
-
-**Ohlala**
-
-Estuche con 3 unidades de esmaltes - $2.490.
-
-**Beauty 100**
-
-Crema corporal con Avena & Karité - $2.399.
 
 **Mia**
 
@@ -104,6 +96,16 @@ Set de 2 mascarillas faciales de aloe vera y kiwi + diadema para el pelo. $4.499
 **Gillette**
 
 Máquina de afeitar Confort Gel desechable X4 + estuche - $4.990
+
+**Ohlala**
+
+Estuche con 3 unidades de esmaltes - $2.490.
+
+**Beauty 100**
+
+Crema corporal con Avena & Karité - $2.399.
+
+![](/images/uploads/dato-gn-maicao-collage.jpg)
 
 **BRINDEMOS**
 
@@ -119,7 +121,7 @@ Son espumantes y frizzantes premium provenientes de la región de Lombardía (It
 
 El portafolio de Modavin cuenta con 5 interesantes etiquetas. Los espumantes **Prosecco Extra Dry**, el **Brut Riesling**, **Brut Pinot Nero** y el **Dolce Moscato**, además del frizzante tinto, **Sangue Di Giuda**.
 
-**FOTO ESPUMANTES**
+![](/images/uploads/dato-gn-modavin.jpg)
 
 ¿Precios?
 
@@ -147,15 +149,27 @@ Disponibles en Il Merkato, https://ilmerkato.cl.
 
 Se llama **MatePad Pro**, incluye el procesador Kirin 990, ofrece un rendimiento mejorado, lo que se complementa con sus 6GB de RAM y 128GB de almacenamiento. $599.990.
 
-**MatePad 10.4**, con su pantalla de gran resolución y protección ocular certificada por TÜV Rheinland, asegura 12 horas continuas de video, lo que la convierte en una tablet multipropósito. Ambas son compatibles con el **lápiz HUAWEI M-Pencil**. $369.990. 
+![](/images/uploads/dato-gn-huawei-matepad-pro.jpg)
 
-**FOTO MateBook 13**
+**MatePad 10.4**, con su pantalla de gran resolución y protección ocular certificada por TÜV Rheinland, asegura 12 horas continuas de video, lo que la convierte en una tablet multipropósito. Ambas son compatibles con el **lápiz HUAWEI M-Pencil**. $369.990. 
 
 El laptop **MateBook 13** es ideal para llevarlo a cualquier lado porque es muy liviano (1.3 gramos). Es un equipo que en 15 minutos de carga genera más de 2 horas de uso continuo. $699.990.
 
 **MateBook X Pro** es un equipo de diseño elegante, pantalla táctil FullView de 3K y un potente procesador. $ 1.799.990. 
 
 Disponibles en http://consumer.huawei.com/cl/.
+
+**Billboard**
+
+**Parlante Inalámbrico Billboard Allure Stand Gris**. Tiene conexión inalámbrica Bluetooth 4.2, rango de respuesta 10 metros, entradas Micro SD, USB y Aux, potencia 5W y el tamaño del parlante es de 1×2 pulgadas. $18.990
+
+![](/images/uploads/dato-gn-targus.jpg)
+
+**Targus **
+
+**Mochila 15,6 Strata Aqua & bluedots** tiene un compartimento acolchado que se adapta a computadoras portátiles de hasta 15.6“, gran bolsillo frontal para accesorios, 2 bolsillos laterales con cierre, correas de hombro contorneadas y ajustables, base de cuero sintético y más. $14.990.
+
+Disponibles en www.nht.cl
 
 **LECTURA**
 
