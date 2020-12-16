@@ -14,14 +14,14 @@ Entre que no tenemos tiempo, que las tiendas cierran más temprano por pandemia,
 
 <!--more-->
 
-Así es que les armé una guía de regalos navideños para todo tipo de bolsillos. Espero te sirva. #SOYprueboytecuento
+Así es que les armé una guía de regalos navideños para todo tipo de bolsillos. Espero te sirva. **\#SOYprueboytecuento**
 
 ![Emma, asesoría de belleza por WhatsApp.](/images/uploads/dato-gn-emma.jpg)
 
 > **BELLEZA**
 
-**Essence
-**-Máscara de pestañas Bye Bye Panda Eyes! - $4.290.
+**Essence**
+-Máscara de pestañas Bye Bye Panda Eyes! - $4.290.
 
 \-Paleta de sombras de ojos NUDE edition  - $4.990.
 
@@ -105,7 +105,7 @@ Estuche con 3 unidades de esmaltes - $2.490.
 
 Crema corporal con Avena & Karité - $2.399.
 
-![](/images/uploads/dato-gn-maicao-collage.jpg)
+![null](/images/uploads/dato-gn-maicao-collage.jpg)
 
 > **BRINDEMOS**
 
@@ -121,7 +121,7 @@ Son espumantes y frizzantes premium provenientes de la región de Lombardía (It
 
 El portafolio de Modavin cuenta con 5 interesantes etiquetas. Los espumantes **Prosecco Extra Dry**, el **Brut Riesling**, **Brut Pinot Nero** y el **Dolce Moscato**, además del frizzante tinto, **Sangue Di Giuda**.
 
-![](/images/uploads/dato-gn-modavin.jpg)
+![null](/images/uploads/dato-gn-modavin.jpg)
 
 ¿Precios?
 
@@ -149,7 +149,7 @@ Disponibles en Il Merkato, https://ilmerkato.cl.
 
 Se llama **MatePad Pro**, incluye el procesador Kirin 990, ofrece un rendimiento mejorado, lo que se complementa con sus 6GB de RAM y 128GB de almacenamiento. $599.990.
 
-![](/images/uploads/dato-gn-huawei-matepad-pro.jpg)
+![null](/images/uploads/dato-gn-huawei-matepad-pro.jpg)
 
 **MatePad 10.4**, con su pantalla de gran resolución y protección ocular certificada por TÜV Rheinland, asegura 12 horas continuas de video, lo que la convierte en una tablet multipropósito. Ambas son compatibles con el **lápiz HUAWEI M-Pencil**. $369.990. 
 
@@ -159,11 +159,12 @@ El laptop **MateBook 13** es ideal para llevarlo a cualquier lado porque es muy 
 
 Disponibles en http://consumer.huawei.com/cl/.
 
-**Billboard**
+**Billboard
+**
 
 **Parlante Inalámbrico Billboard Allure Stand Gris**. Tiene conexión inalámbrica Bluetooth 4.2, rango de respuesta 10 metros, entradas Micro SD, USB y Aux, potencia 5W y el tamaño del parlante es de 1×2 pulgadas. $18.990
 
-![](/images/uploads/dato-gn-targus.jpg)
+![null](/images/uploads/dato-gn-targus.jpg)
 
 **Targus **
 
