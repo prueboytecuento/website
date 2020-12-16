@@ -39,7 +39,7 @@ Disponibles en www.dbs.cl.
 
 **Microblading** con Ana María Gómez
 
-Ya les adelanté en un post la oferta atómica que tiene la artista Ana María Gómez para perfilar, rellenar o rehacer sus cejas en una sesión de micropigmentación más una de retoque.
+Ya les adelanté en un post la oferta atómica que tiene la artista Ana María Gómez para perfilar, rellenar o rehacer sus cejas en una sesión de micropigmentación más una de retoque. Anda a mi review https://bit.ly/2IEHz3R y conozcan su trabajo.
 
 El procedimiento cuesta $130.000, pero mencionando Pruebo y te cuento al momento de agendar tu hora, queda a $98.000. Tienes, además que seguir Pruebo y te cuento en sus RRSS (IG @prueboytecuento o FB Pruebo y te cuento) y la cuenta de la artista en IG @anamariagomeztorres. ¿Qué tal? Las reservas se hacen en el mismo Instagram de Ana María.
 
@@ -127,7 +127,7 @@ El portafolio de Modavin cuenta con 5 interesantes etiquetas. Los espumantes **P
 
 \-Prosecco Extra Dry cuesta $10.900 y es elaborado 100% con uva blanca Glera, que es la cepa que se usa para el prosecco. Una delicia y, aunque se recomienda para coctéles, yo lo prefiero solo. Que ningún sabor externo le quite protagonismo o lo convierta en un espumante más frutoso. A saber, es un poquito más dulce que un Extra Brut.
 
-\-Dolce Moscato vale $8.900. En mi review puedes conocer más sobre este moscato ( XXX).
+\-Dolce Moscato vale $8.900. En mi review puedes conocer más sobre este moscato, https://bit.ly/3h62p8K.
 
 \-Sangue Di Giuda cuesta $9.900. 
 
