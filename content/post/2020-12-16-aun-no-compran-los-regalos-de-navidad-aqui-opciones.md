@@ -107,7 +107,7 @@ Crema corporal con Avena & Karité - $2.399.
 
 ![](/images/uploads/dato-gn-maicao-collage.jpg)
 
-**BRINDEMOS**
+> **BRINDEMOS**
 
 **Viña Piernas Largas**
 
@@ -135,7 +135,7 @@ El portafolio de Modavin cuenta con 5 interesantes etiquetas. Los espumantes **P
 
 Disponibles en Il Merkato, https://ilmerkato.cl.
 
-**TECH**
+> **TECH**
 
 **Huawei**
 
@@ -171,7 +171,7 @@ Disponibles en http://consumer.huawei.com/cl/.
 
 Disponibles en www.nht.cl
 
-**LECTURA**
+> **LECTURA**
 
 “Que lo que pase por ti se transforme" se llama el libro del chileno Lysander. Actualmente es Best Seller en Amazon. “Es un texto muy sencillo y práctico que comienza con mi experiencia espiritual para luego dar información sobre cómo podemos desprogramarnos por medio de la meditación”, dice el autor que creó su propio método de meditación “Método SOPHIA”. $25.990.
 
