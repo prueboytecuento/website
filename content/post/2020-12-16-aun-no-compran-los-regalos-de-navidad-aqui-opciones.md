@@ -21,7 +21,7 @@ Así es que les armé una guía de regalos navideños para todo tipo de bolsillo
 > **BELLEZA**
 
 **Essence**
--Máscara de pestañas Bye Bye Panda Eyes! - $4.290.
+\-Máscara de pestañas Bye Bye Panda Eyes! - $4.290.
 
 \-Paleta de sombras de ojos NUDE edition  - $4.990.
 
@@ -159,8 +159,7 @@ El laptop **MateBook 13** es ideal para llevarlo a cualquier lado porque es muy 
 
 Disponibles en http://consumer.huawei.com/cl/.
 
-**Billboard
-**
+**Billboard**
 
 **Parlante Inalámbrico Billboard Allure Stand Gris**. Tiene conexión inalámbrica Bluetooth 4.2, rango de respuesta 10 metros, entradas Micro SD, USB y Aux, potencia 5W y el tamaño del parlante es de 1×2 pulgadas. $18.990
 
