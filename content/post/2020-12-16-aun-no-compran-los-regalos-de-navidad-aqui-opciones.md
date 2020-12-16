@@ -133,34 +133,32 @@ El portafolio de Modavin cuenta con 5 interesantes etiquetas. Los espumantes **P
 
 Disponibles en Il Merkato, https://ilmerkato.cl.
 
-TECH
+**TECH**
 
-Huawei
+**Huawei**
 
-\-Relojes inteligentes
+**Relojes inteligentes**
 
-Watch GT 2 Pro es el último lanzamiento de la marca. Tiene 100 modos y promete 2 semanas de autonomía con una sola carga. $299.990.
+\-**Watch GT 2 Pro** es el último lanzamiento de la marca. Tiene 100 modos y promete 2 semanas de autonomía con una sola carga. $299.990.
 
-Watch Fit es un equipo minimalista, pesa 21 gramos, su autonomía es de hasta 10 días. Ofrece un completo monitoreo de la salud, como mediciones del oxígeno en la sangre, estrés, frecuencia cardiaca, sueño y ciclo menstrual. $99.990. 
+\-**Watch Fit** es un equipo minimalista, pesa 21 gramos, su autonomía es de hasta 10 días. Ofrece un completo monitoreo de la salud, como mediciones del oxígeno en la sangre, estrés, frecuencia cardiaca, sueño y ciclo menstrual. $99.990. 
 
-\-Tablets
+**Tablets y laptops**
 
-Se llama MatePad Pro, incluye el procesador Kirin 990, ofrece un rendimiento mejorado, lo que se complementa con sus 6GB de RAM y 128GB de almacenamiento. $599.990.
+Se llama **MatePad Pro**, incluye el procesador Kirin 990, ofrece un rendimiento mejorado, lo que se complementa con sus 6GB de RAM y 128GB de almacenamiento. $599.990.
 
-MatePad 10.4, con su pantalla de gran resolución y protección ocular certificada por TÜV Rheinland, asegura 12 horas continuas de video, lo que la convierte en una tablet multipropósito. Ambas son compatibles con el lápiz HUAWEI M-Pencil. $369.990. 
+**MatePad 10.4**, con su pantalla de gran resolución y protección ocular certificada por TÜV Rheinland, asegura 12 horas continuas de video, lo que la convierte en una tablet multipropósito. Ambas son compatibles con el **lápiz HUAWEI M-Pencil**. $369.990. 
 
-FOTO MateBook 13
+**FOTO MateBook 13**
 
-\-Laptops
+El laptop **MateBook 13** es ideal para llevarlo a cualquier lado porque es muy liviano (1.3 gramos). Es un equipo que en 15 minutos de carga genera más de 2 horas de uso continuo. $699.990.
 
-MateBook 13 es ideal para llevarlo a cualquier lado porque es muy liviano (1.3 gramos). Es un equipo que en 15 minutos de carga genera más de 2 horas de uso continuo. $699.990.
-
-MateBook X Pro es un equipo de diseño elegante, pantalla táctil FullView de 3K, y un potente procesador. $ 1.799.990. 
+**MateBook X Pro** es un equipo de diseño elegante, pantalla táctil FullView de 3K y un potente procesador. $ 1.799.990. 
 
 Disponibles en http://consumer.huawei.com/cl/.
 
-LECTURA
+**LECTURA**
 
 “Que lo que pase por ti se transforme" se llama el libro del chileno Lysander. Actualmente es Best Seller en Amazon. “Es un texto muy sencillo y práctico que comienza con mi experiencia espiritual para luego dar información sobre cómo podemos desprogramarnos por medio de la meditación”, dice el autor que creó su propio método de meditación “Método SOPHIA”. $25.990.
 
-Diaponible en https://yosoylysander.com/producto/que-lo-que-pase-por-ti-se-transforme/ .
+Disponible en https://yosoylysander.com/producto/que-lo-que-pase-por-ti-se-transforme/ .
