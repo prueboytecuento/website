@@ -21,6 +21,7 @@ Así es que les armé una guía de regalos navideños para todo tipo de bolsillo
 > **BELLEZA**
 
 **Essence**
+
 \-Máscara de pestañas Bye Bye Panda Eyes! - $4.290.
 
 \-Paleta de sombras de ojos NUDE edition  - $4.990.
@@ -39,7 +40,7 @@ Disponibles en www.dbs.cl.
 
 **Microblading** con Ana María Gómez
 
-Ya les adelanté en un post la oferta atómica que tiene la artista Ana María Gómez para perfilar, rellenar o rehacer sus cejas en una sesión de micropigmentación más una de retoque. Anda a mi review https://bit.ly/2IEHz3R y conozcan su trabajo.
+Ya les adelanté en un post la oferta atómica que tiene la artista Ana María Gómez para perfilar, rellenar o rehacer sus cejas en una sesión de micropigmentación más una de retoque. Anda a mi review https://bit.ly/2IEHz3R y conoce su trabajo.
 
 El procedimiento cuesta $130.000, pero mencionando Pruebo y te cuento al momento de agendar tu hora, queda a $98.000. Tienes, además que seguir Pruebo y te cuento en sus RRSS (IG @prueboytecuento o FB Pruebo y te cuento) y la cuenta de la artista en IG @anamariagomeztorres. ¿Qué tal? Las reservas se hacen en el mismo Instagram de Ana María.
 
@@ -51,7 +52,7 @@ Ameiz es una app de servicios de belleza a domicilio. Ideal para regalarte a ti,
 
 Funciona así: tienen que ingresar a Ameiz App y reservar el servicio en el lugar y hora que más les acomode.
 
-Algunos de los servicios son, manicure, manicure francesa, masajes de relajación, cambio de look para esperar el 2021, corte de pelo, balayage, mechas de color, botox y alisado, entre otros.
+Algunos de los servicios son manicure, manicure francesa, masajes de relajación, cambio de look para esperar el 2021, corte de pelo, balayage, mechas de color, botox y alisado, entre otros.
 
 Disponible en Ameiz app.
 
@@ -73,7 +74,7 @@ Disponibles en www.natura.cl.
 
 No sabes cómo maquillarte, que cremas aplicarte sobre el rostro, cómo eliminar manchas y granos. Todas esas respuestas las ofrece Emma, asesoría de belleza por whatsapp. Es un servicio totalmente personalizado, anónimo y de confianza.
 
-Son 30 expertas que están disponibles de lunes a domingo, entre las 9 y 22 horas, y para acceder a sus servicios, tienes que entrar al INSTAGRAM @emma_cares_cl, www.emma-cares.cl o al +569 3053 0001.
+Son 20 expertas que están disponibles de lunes a domingo, entre las 9 y 22 horas, y para acceder a sus servicios, tienes que entrar al INSTAGRAM @emma_cares_cl, www.emma-cares.cl o al +569 3053 0001.
 
 ![Box Emma.](/images/uploads/dato-gn-emma2.jpg)
 
@@ -165,7 +166,7 @@ Disponibles en http://consumer.huawei.com/cl/.
 
 ![null](/images/uploads/dato-gn-targus.jpg)
 
-**Targus **
+**Targus**
 
 **Mochila 15,6 Strata Aqua & bluedots** tiene un compartimento acolchado que se adapta a computadoras portátiles de hasta 15.6“, gran bolsillo frontal para accesorios, 2 bolsillos laterales con cierre, correas de hombro contorneadas y ajustables, base de cuero sintético y más. $14.990.
 
