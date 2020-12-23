@@ -23,7 +23,7 @@ Se llama **Topo Chico Hard Seltzer** y es la primera bebida frutal con grados de
 
 <!--more-->
 
-¿Han probado alguna vez agua mineral con alcohol? Mi sensación más cercana y que me gusta harto es cuando el hielo se diluye en el aperol spritz. Un poquito de gas, otro de dulzor y un suave dejo de espumante.Pongo ese ejemplo porque Topo Chico también es un poco dulce.
+¿Han probado alguna vez agua mineral con alcohol? Mi sensación más cercana y que me gusta harto es cuando el hielo se diluye en el aperol spritz. Un poquito de gas, otro de dulzor y un suave dejo de espumante.
 
 Viene en 3 versiones, Piña, Lima Limón y Frambuesa Guayaba. Las probé todas y puedo decir que es una mezcla en donde predomina el aroma a frutas. De esos aromas que provocan tener la fruta a mano y darle una buena mordida.
 
@@ -35,6 +35,6 @@ Sobre el agua mineral, debo reconocer que no la conocía. **Topo Chico** es de o
 
 Sobre su aspecto, hablamos de un bebestible transparente y cristalinos. Nada de colorantes y eso me encanta.
 
-Vuelvo a lo del primer párrafo, es una bebestible diferente que no se asemeja a una bebida o jugo preparado con un destilado. Sólo probándolo van a entender de lo que les hablo.
+Vuelvo a lo del primer párrafo, es un coctel diferente que no se asemeja a una bebida o jugo preparado con un destilado. Sólo probándolo van a entender de lo que les hablo.
 
 Está a la venta en www.micoca-cola.cl y cada lata de 355ml. vale $1.000. El pack de 6 con los 3 sabores cuesta $5.490. **\#SOYprueboytecuento**
