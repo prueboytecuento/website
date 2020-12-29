@@ -27,7 +27,7 @@ Su sabor es parecido al de la leche batida con frutillas naturales y hielo. Ese 
 
 Si de textura se trata, este **Baileys** es consistente y mucho más cremoso que su versión tradicional. Muy agradable en boca, sedoso.
 
-![](/images/uploads/review-baileys-yo2.jpg)
+![null](/images/uploads/review-baileys-yo-ok.jpg)
 
 Me parece que las cabezas pensantes tras esta variedad de Baileys no descansaron en entregar un producto de dulzor fácil de reconocer y aceptar, sino además que ese dulzor hiciera buen match con los 17º alcohólicos del whisky irlandés con el que fabrica este manjar.
 
