@@ -39,5 +39,4 @@ Mi favorita es la de tomillo con aceite de salvia. La Herbal Gum Care. Amé su a
 
 Lo anterior es en base a mi experiencia, pero además Pepsodent asegura en la etiqueta de toda la línea Integral 18 acción anticaries, protección anti-placa, remineralización del esmalte, anti-sarro, acción antibacterial y más.
 
-Mi sugerencia siempre es la misma: prueben y, en base a su experiencia, decidan si siguen consumiendo un producto o no. **\#SOYprueboytecuento
-**
+Mi sugerencia siempre es la misma: prueben y, en base a su experiencia, decidan si siguen consumiendo un producto o no. **\#SOYprueboytecuento**
