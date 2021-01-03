@@ -43,7 +43,7 @@ Se llama Charcol, White & Detox, tiene polvo de carbón natural y cuando termina
 
 
 
-Por ahí el color gris oscuro de la pasta no te va a gustar mucho, pero es sólo un color
+Por ahí el color gris oscuro de la pasta no te va a gustar mucho, pero es sólo un color.
 
 
 
