@@ -2,7 +2,7 @@
 title: 'Conoce Fit, el reloj inteligente de Huawei'
 showonlyimage: true
 date: '2021-01-14T11:13:04-03:00'
-image: /images/uploads/review-fit-watch-colores.jpg
+image: /images/uploads/review-fit-reloj2.jpg
 rating: '1'
 tags:
   - Reloj
@@ -26,15 +26,13 @@ Si me preguntan qué es lo que más me gustó de este smartwatch, mi respuesta e
 
 <!--more-->
 
-
-
-**TELÉFONO RELOJ**
+![](/images/uploads/review-fit-reloj2.jpg)
 
 Es súper simple, tomas el reloj, te vas a la función Entrenamiento y, luego, a Cursos de Entrenamiento. Ahí encuentras rutinas como, por ejemplo, Tonificación Piernas y Glúteos, Intensivo de Abdominales, Ejercicios de Musculatura Central y otros: primero el reloj te muestra cómo se hace ese ejercicio, te da 3 segundo de preparación y comienzas. Son 12 ejercicios animados. **(Foto de abajo)**
 
 Ojo que a este reloj se le incorporó Inteligencia Artificial en las rutinas, así es que te ayuda a mejorar tu rendimiento.
 
-**FOTO CON EJERCICIOS EN ETAPAS**
+![](/images/uploads/review-fit-rutina.jpg)
 
 Pero esa es sólo una parte del Smartwatch Fit de Huawei. Quise destacarla de entrada porque la amé. Vamos desde el comienzo. Se trata de un reloj rectangular (AMOLED de 1.64 pulgadas), compacto y liviano (21 gramos) que es algo que se agradece. El cristal es de bordes curvos y tiene un lindo acabado.
 
@@ -51,8 +49,6 @@ El reloj viene con 12 carátulas o fondos de pantalla. Cada carátula te muestra
 Cuando lo usas para ejercitarte tienes varias opciones, como correr en lugar cerrado, abierto, remo, natación o lo que quieras: son 95 disciplinas programables. Si se te olvida hacerlo, el reloj inmediatamente reconoce el tipo de ejercicio que estás haciendo, se ajusta y recopila los datos en el reloj y celular, a través de la app Salud. 
 
 Si lo quieres usar bajo el agua, la resistencia del Fit es de 5 atmosferas, o sea, 50 metros de profundidad. Es perfecto para mis que soy buzo.
-
-**FOTO MONITOREO**
 
 ![null](/images/uploads/review-fit-watch.jpg)
 
