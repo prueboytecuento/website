@@ -42,7 +42,7 @@ La batería dura 10 días, pero a mí me duró 8 porque lo usé harto y le saqu�
 
 **FOTO CAMBIO CARÁTULAS**
 
-El reloj viene con 12 carátulas o fondos de pantalla. Cada carátula te muestra los pasos que das, ritmo cardiaco, calorías quemadas, etc. En algunas caratulas tienes la opción de la tuerca para ordenar lo que quieres ver en tu pantalla. Ejemplo, en vez de ver pasos caminados, calorías y tiempo de sueño, puedes programar la carátula para ver pasos, clima y fecuencia cardiaca. Lo acomodas a tu pinta. **(Foto de arriba)**
+El reloj viene con 12 carátulas o fondos de pantalla. Cada carátula te muestra los pasos que das, ritmo cardiaco, calorías quemadas, etc. En algunas carátulas tienes la opción de la tuerca para ordenar lo que quieres ver en tu pantalla. Ejemplo, en vez de ver pasos caminados, calorías y tiempo de sueño, puedes programar la carátula para ver pasos, clima y frecuencia cardíaca. Lo acomodas a tu pinta. **(Foto de arriba)**
 
 Cuando lo usas para ejercitarte tienes varias opciones, como correr en lugar cerrado, abierto, remo, natación o lo que quieras: son 95 disciplinas programables. Si se te olvida hacerlo, el reloj inmediatamente reconoce el tipo de ejercicio que estás haciendo, se ajusta y recopila los datos en el reloj y celular, a través de la app Salud. 
 
@@ -52,11 +52,11 @@ Si lo quieres usar bajo el agua, la resistencia del Fit es de 5 atmosferas, o se
 
 ![null](/images/uploads/review-fit-watch.jpg)
 
-Sobre salud, el teléfono monitorea todo el día frecuencia cardiaca, saturación de oxígeno en la sangre (SpO2), hace seguimiento de los hábitos del sueño, estimación de estrés y otros. **(Foto de arriba)**
+Sobre salud, el teléfono monitorea todo el día frecuencia cardíaca, saturación de oxígeno en la sangre (SpO2), hace seguimiento de los hábitos del sueño, estimación de estrés y otros. **(Foto de arriba)**
 
 Sobre las funciones inteligentes tiene clima, control de llamadas, notificaciones, disparador remoto para la cámara del celular, control de música y más.
 
-DESVENTAJAS
+> **DESVENTAJAS**
 
 Las desventajas tienen directa relación con usar el Fit con el sistema operativo IOS. Probé el reloj en mi iPhone y, como sabemos, el Huawei es Android. Lo anterior no me permitió tener algunas funciones.
 
