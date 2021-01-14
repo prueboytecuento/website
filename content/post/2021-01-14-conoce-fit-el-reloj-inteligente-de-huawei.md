@@ -66,4 +66,4 @@ La música la controlo desde mis audífonos y para las fotos sí o sí tengo que
 
 ![null](/images/uploads/review-fit-watch-colores.jpg)
 
-Sobre colores, lo encuentran en naranja, verde, rosa y negro **(Foto de arriba)**. ¿Dónde comprarlo y cuánto vale? Lo encuentran en tiendas Falabella, Paris, Ripley, ABCDin, Hites, Walmart, PC Factory, Linio y Mercado Libre. Su valor referencial es de $99.990. **\#SOYprueboytecuento**
+Sobre colores, lo encuentran en naranja, verde, rosa y negro **(Foto de arriba)**. ¿Dónde comprarlo y cuánto vale? Lo encuentran en tiendas Huawei, Falabella, Paris, Ripley, ABCDin, Hites, Walmart, PC Factory, Linio y Mercado Libre. Su valor referencial es de $99.990. **\#SOYprueboytecuento**
