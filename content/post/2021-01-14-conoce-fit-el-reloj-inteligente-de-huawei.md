@@ -24,6 +24,10 @@ weight: '1'
 ---
 Si me preguntan qué es lo que más me gustó de este smartwatch, mi respuesta es clara: tener en mi muñeca un profesor virtual que me ofrece ejercicios y los hace conmigo.
 
+<!--more-->
+
+
+
 **TELÉFONO RELOJ**
 
 Es súper simple, tomas el reloj, te vas a la función Entrenamiento y, luego, a Cursos de Entrenamiento. Ahí encuentras rutinas como, por ejemplo, Tonificación Piernas y Glúteos, Intensivo de Abdominales, Ejercicios de Musculatura Central y otros: primero el reloj te muestra cómo se hace ese ejercicio, te da 3 segundo de preparación y comienzas. Son 12 ejercicios animados. **(Foto de abajo)**
@@ -40,7 +44,7 @@ A diferencia de otros smartwatches, este tiene una pantalla que se puede ver sin
 
 La batería dura 10 días, pero a mí me duró 8 porque lo usé harto y le saqué el jugo a las funciones. Ojo que si te quedas sin batería con 5 minutos enchufado se carga el equivalente a 1 día de carga.
 
-![](/images/uploads/review-fit-collage2.jpg)
+![null](/images/uploads/review-fit-collage2.jpg)
 
 El reloj viene con 12 carátulas o fondos de pantalla. Cada carátula te muestra los pasos que das, ritmo cardiaco, calorías quemadas, etc. En algunas caratulas tienen la opción de la tuerca para ordenar lo que quieres ver en tu pantalla. Ejemplo, en vez de ver pasos caminados, calorías y tiempo de sueño, puedes programar la carátula para ver pasos, clima y fecuencia cardiaca. Lo acomodas a tu pinta. **(Foto de arriba)**
 
@@ -64,6 +68,6 @@ Ni en el reloj ni en el celular tuve acceso al control del ciclo menstrual, cont
 
 La música la controlo desde mis audífonos y para las fotos sí o sí tengo que sacar el teléfono así es que no necesito el reloj. No me incomoda no tener estas funciones.
 
-![](/images/uploads/review-fit-watch-colores.jpg)
+![null](/images/uploads/review-fit-watch-colores.jpg)
 
 Sobre colores, lo encuentran en naranja, verde, rosa y negro **(Foto de arriba)**. ¿Dónde comprarlo y cuánto vale? Lo encuentran en tiendas Falabella, Paris, Ripley, ABCDin, Hites, Walmart, PC Factory, Linio y Mercado Libre. Su valor referencial es de $99.990. **\#SOYprueboytecuento**
