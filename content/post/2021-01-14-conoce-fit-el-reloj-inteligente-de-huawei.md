@@ -13,7 +13,7 @@ tags:
   - Rutinas
   - Entrenar
   - Salud
-  - Frecuencia Cardiaca
+  - Frecuencia Cardíaca
   - Sueño
   - Monitoreo
   - Huawei
@@ -26,15 +26,15 @@ Si me preguntan qué es lo que más me gustó de este smartwatch, mi respuesta e
 
 <!--more-->
 
-![](/images/uploads/review-fit-reloj2.jpg)
+![null](/images/uploads/review-fit-reloj2.jpg)
 
-Es súper simple, tomas el reloj, te vas a la función Entrenamiento y, luego, a Cursos de Entrenamiento. Ahí encuentras rutinas como, por ejemplo, Tonificación Piernas y Glúteos, Intensivo de Abdominales, Ejercicios de Musculatura Central y otros: primero el reloj te muestra cómo se hace ese ejercicio, te da 3 segundo de preparación y comienzas. Son 12 ejercicios animados. **(Foto de abajo)**
+Es súper simple, tomas el reloj, te vas a la función Entrenamiento y, luego, a Cursos de Entrenamiento. Ahí encuentras rutinas como Tonificación Piernas y Glúteos, Intensivo de Abdominales, Ejercicios de Musculatura Central y otros: primero el reloj te muestra cómo se hace ese ejercicio, te da 3 segundos de preparación y comienzas. Son 12 ejercicios animados. **(Foto de abajo)**
 
 Ojo que a este reloj se le incorporó Inteligencia Artificial en las rutinas, así es que te ayuda a mejorar tu rendimiento.
 
-![](/images/uploads/review-fit-rutina.jpg)
+![null](/images/uploads/review-fit-rutina.jpg)
 
-Pero esa es sólo una parte del Smartwatch Fit de Huawei. Quise destacarla de entrada porque la amé. Vamos desde el comienzo. Se trata de un reloj rectangular (AMOLED de 1.64 pulgadas), compacto y liviano (21 gramos) que es algo que se agradece. El cristal es de bordes curvos y tiene un lindo acabado.
+Pero esa es sólo una parte del **Smartwatch Fit de Huawei**. Quise destacarla de entrada porque la amé. Vamos desde el comienzo. Se trata de un reloj rectangular (AMOLED de 1.64 pulgadas), compacto y liviano (21 gramos) que es algo que se agradece. El cristal es de bordes curvos y tiene un lindo acabado.
 
 La pantalla es táctil como la mayoría de los relojes que hay en el mercado y tiene sólo un botón-comando de inicio de funciones (a la derecha). El resto se hace tocando la pantalla. Su memoria es de 4 GB.
 
@@ -48,9 +48,7 @@ El reloj viene con 12 carátulas o fondos de pantalla. Cada carátula te muestra
 
 Cuando lo usas para ejercitarte tienes varias opciones, como correr en lugar cerrado, abierto, remo, natación o lo que quieras: son 95 disciplinas programables. Si se te olvida hacerlo, el reloj inmediatamente reconoce el tipo de ejercicio que estás haciendo, se ajusta y recopila los datos en el reloj y celular, a través de la app Salud. 
 
-Si lo quieres usar bajo el agua, la resistencia del Fit es de 5 atmosferas, o sea, 50 metros de profundidad. Es perfecto para mis buzos.
-
-
+Si lo quieres usarlo bajo el agua, la resistencia del Fit es de 5 atmosferas, o sea, 50 metros de profundidad. Es perfecto para mis buceos.
 
 ![null](/images/uploads/review-fit-watch.jpg)
 
