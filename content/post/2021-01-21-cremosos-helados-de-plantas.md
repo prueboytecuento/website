@@ -17,6 +17,7 @@ tags:
   - Vainilla
   - Frambuesa
   - Mantequilla de Maní
+  - Caramelo
 categories:
   - COMER Y BEBER
 weight: '1'
@@ -31,13 +32,11 @@ Se llaman **Not IceCream** y están bien buenos. Probé los de paleta y los de p
 
 Es un helado muy cremoso, consistente y, sin exagerar, es como darle una cucharada a un frasco de mantequilla de maní. 
 
-Es generoso en la cantidad de maní, pero aún más generoso en chocolate. Un helado que les va a volar la cabeza.
- **(Foto de abajo)**
+Es generoso en la cantidad de maní, pero aún más generoso en chocolate. Un helado que les va a volar la cabeza. **(Foto de abajo)**
 
 ![null](/images/uploads/review-notco-helados-3.jpg)
 
-Menos interesante, pero no por ello menos rico, es el pote Vainilla Coqueta. Es más ligero, el sabor a vainilla es suave (me hubiese gustado más marcado) y tiene un caramelo que sabe a manjar… Tal cual. Un caramelo denso y sabroso más trozos de almendras.
- **(Foto de abajo)**
+Menos interesante, pero no por ello menos rico, es el pote Vainilla Coqueta. Es más ligero, el sabor a vainilla es suave (me hubiese gustado más marcado) y tiene un caramelo que sabe a manjar… Tal cual. Un caramelo denso y sabroso más trozos de almendras. **(Foto de abajo)**
 
 ![null](/images/uploads/review-notco-helados-4.jpg)
 
