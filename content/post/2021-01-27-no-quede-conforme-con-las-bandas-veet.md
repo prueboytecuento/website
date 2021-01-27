@@ -24,7 +24,7 @@ No me importa gastar un poco más de plata con tal de comprar una buena cera dep
 
 Son bandas faciales y entre las 2 caras tienen la cera. Para usarlas tienes que separar ambas caras y listo. 
 
-![null](/images/uploads/review-veet.jpg)
+![null](/images/uploads/review-veet-2.jpg)
 
 El problema viene cuando estiras la piel (como dice en las instrucciones), pegas la banda en la zona a depilar limpia y seca, y al tirarla la cera no sale con los pelos, sino que se estira como chicle sobre tu piel: doloroso.
 
