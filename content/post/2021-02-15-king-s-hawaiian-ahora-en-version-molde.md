@@ -30,6 +30,8 @@ Otra diferencia es que las rebanadas son más gruesas. Más contundentes, así e
 
 ¿Qué si es un pan para comérselo con agregados dulces? Mmm, es una opción, pero el King’s Hawaiian está pensado y muy bien pensado para llevárselo a la boca, por ejemplo, con tocino. 
 
+![](/images/uploads/review-hawaiian-pan2.jpg)
+
 Tocino y huevo, palta con tomate y pimienta, para armar una hamburguesa con harta mostaza y pepinillos. O como el que me comí yo con jamón asado en la sartén, pepino, tomate, ciboulette deshidratada y sal de tomate-albahaca. Muy buen match.
 
 Me gustó la versión molde, me gustó que se conserve su textura, y que, al ser trozos más grandes, pueda ponerle una hojas de lechuga sin tener que picarla, el aro de cebolla completo, hartos pedazos de pepino, etc.
