@@ -18,11 +18,11 @@ categories:
   - COMER Y BEBER
 weight: '1'
 ---
-Debe ser de los panes envasados más ricos del mundo mundial. Los conocí en el formato de pequeños rolls hace un par de años y desde entonces lo compro cuando queremos darnos un gustito en familia. 
+Debe ser de los panes envasados más ricos del mundo mundial. Los conocí en el formato de pequeños rolls hace un par de años y desde entonces lo compro cuando quiero darme un gustito con mi familia. 
 
 <!--more-->
 
-Es un pan suave, esponjoso y con un dulzor moderado. Sí, dulce. Algunos dicen que se asemeja en sabor al pan de huevo. Probablemente porque el **King’s Hawaiian** también está hecho con huevo, pero en el paladar lo que predomina es un gustito a leche. Una delicia.
+Es un pan suave, esponjoso y con un dulzor moderado. Sí, dulce. Algunos dicen que se asemeja en sabor al pan de huevo. Probablemente porque el **King’s Hawaiian** también está hecho con huevo, pero en el paladar lo que predomina es una sabor más lechoso. Una delicia.
 
 La novedad de esta creación hawaiana de los años 50 es que ahora viene en versión molde (en Chile ya está el de completo, rolls y hamburguesa) y de inmediato pensé en su textura. El pan de molde es de aireado fino y este no… Es más bien apretado por decirlo de alguna manera y sigue conservando esa característica. Punto para Hawaiian. 
 
