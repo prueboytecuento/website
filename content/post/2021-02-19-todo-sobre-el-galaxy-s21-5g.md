@@ -40,7 +40,7 @@ El Glasstic es un buen partner para los que pasamos con el teléfono en el suelo
 
 La cámara trasera viene en formato semáforo en la esquina superior izquierda del teléfono, lo que ayuda a pasarle menos los dedos por encima. Tengo el iPhone 11 Pro y como la isla de lentes es cuadrada, la ensucio con facilidad.
 
-Como los últimos celulares **Samsung**, este también cuenta con Inteligencia Artificial (IA), siendo capaz de mejorar una toma e identificar el objeto a fotografiar.
+Como los últimos celulares **Samsung**, este también cuenta con Inteligencia Artificial (IA), siendo capaz de mejorar una toma e identificando el objeto a fotografiar.
 
 ![null](/images/uploads/review-s21-bixby-collage.jpg)
 
@@ -49,7 +49,7 @@ Sobre la Bixby Vision (escaneo sobre una foto que te redirecciona a contenidos s
 
 El cuanto a las fotos con un objeto en movimiento, este equipo sigue teniendo la misma calidad. Me encantó cómo quedó la imagen que capturé de mi hija Rafaela con un cojín girando. (Foto de abajo)
 
-Ideal para cuando quieres hacer una toma de alguien corriendo y capturar el momento al más puro estilo de Flash.
+Ideal para cuando quieres hacer una toma de alguien corriendo y capturar un momento al más puro estilo de Flash.
 
 ![null](/images/uploads/review-s21-movimiento.jpg)
 
@@ -59,11 +59,15 @@ Sobre datos duros, la cámara trasera del Galaxy S21 5G cuenta con un Lente Ultr
 
 En el caso de la cámara frontal nos encontramos con 10MP.
 
-Si de videos se trata, seguimos hablando de gran resolución, de imágenes limpias y colores potente. Muy reales. Ello no es una gran novedad, porque Samsung siempre ha entregado calidad en este sentido.
+Si de videos se trata, seguimos hablando de gran resolución, de imágenes limpias y colores potente. Muy reales. Puedes hacer videos en 8K... Una experiencia cinematográfica. 
 
-Lo que sí es novedad es la posibilidad de capturar distintos ángulos de una misma toma. Tal cual. 
+
 
 ![null](/images/uploads/review-s21-director-2.jpg)
+
+
+
+Lo que más me gustó, en esta oportunidad, fue la posibilidad de capturar en una toma distintos ángulos. Tal cual. 
 
 Se llama Perspectiva de Directo y funciona usando cada lente por separado. O sea, 3 ángulos de lo que estás grabando. Yo me veo borrosa porque el objetivo es la imagen del mueble.
 
