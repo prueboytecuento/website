@@ -46,8 +46,8 @@ Antes: $10.490.
 
 Ahora: $8.390.
 
-**Jabón Líquido corporal
-**
+**Jabón Líquido corporal**
+
 Fórmula gel. 
 
 Limpieza suave: No agrede ni reseca la piel. Mantiene su hidratación natural.
@@ -58,8 +58,8 @@ Antes: $5.490.
 
 Ahora: $4.390.
 
-**Jabones en barra puro vegetal
-**
+**Jabones en barra puro vegetal**
+
 Caja de 5 unidades de 90g c/u.
 
 Explosión de espuma y fragancia.
@@ -72,8 +72,8 @@ Antes: $7.290.
 
 Ahora: $5.790.
 
-**Crema nutritiva para el cuerpo
-**
+**Crema nutritiva para el cuerpo**
+
 Tecnología prebiótica para todos los tipos de piel.
 
 Nutrición inteligente. Rápida absorción.
@@ -84,8 +84,8 @@ Antes: $6.490.
 
 Ahora: $5.190.
 
-**Body Splash
-**
+**Body Splash**
+
 Tratamiento post baño.
 
 Más frescura y fragancia para el cuerpo.
