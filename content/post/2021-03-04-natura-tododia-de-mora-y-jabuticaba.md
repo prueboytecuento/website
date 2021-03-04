@@ -18,7 +18,7 @@ categories:
   - DATO
 weight: '1'
 ---
-¿Rutinas de belleza corporal? Esta colección promete una piel 4 veces más hidratada y 2 veces más firme.
+¿Rutinas de belleza corporal? Esta colección promete una piel 4 veces más hidratada y 2 veces más firme. Les dejo el dato.
 
 <!--more-->
 
@@ -33,8 +33,6 @@ Para complementar la rutina está el nuevo mousse de baño Tododia Mora Roja y J
 Y para refrescar nuestra piel está el body splash que les dejará una fragancia única en todo el cuerpo. 
 
 > **UNO A UNO**
-
-
 
 **Crema nutritiva para cuerpo**
 
