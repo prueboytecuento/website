@@ -46,6 +46,7 @@ Antes: $10.490.
 
 Ahora: $8.390.
 
+
 **Jabón Líquido corporal**
 
 Fórmula gel. 
@@ -57,6 +58,7 @@ Espuma cremosa y envolvente.
 Antes: $5.490.
 
 Ahora: $4.390.
+
 
 **Jabones en barra puro vegetal**
 
@@ -72,6 +74,7 @@ Antes: $7.290.
 
 Ahora: $5.790.
 
+
 **Crema nutritiva para el cuerpo**
 
 Tecnología prebiótica para todos los tipos de piel.
@@ -83,6 +86,7 @@ Nutrición inteligente. Rápida absorción.
 Antes: $6.490.
 
 Ahora: $5.190.
+
 
 **Body Splash**
 
