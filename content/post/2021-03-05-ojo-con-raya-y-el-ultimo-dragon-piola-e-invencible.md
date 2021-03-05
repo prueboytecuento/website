@@ -38,7 +38,7 @@ Habla de los compañeros de colegio Martín (Max Salgado) y Charly (René Mirand
 
 “Piola”, dirigida por Luis Alejandro Pérez, ya abulta importantes reconocimientos. En 2019 obtuvo 6 de 13 premios en la sección Guadalajara Construye del Festival Internacional de Cine de Guadalajara (FICG). 
 
-El año pasado se sumaron los premios a Mejor Guión en el 35° Festival Latinoamericano de Trieste (Italia) y Mejor Actuación para Max Salgado en el Santiago Festival Internacional de Cine SANFIC. **(Trailer https://youtu.be/dPuYWmXcKlk)** 
+El año pasado se sumaron los premios a Mejor Guión en el 35° Festival Latinoamericano de Trieste (Italia) y Mejor Actuación para Max Salgado en el Santiago Festival Internacional de Cine (SANFIC). **(Trailer https://youtu.be/dPuYWmXcKlk)** 
 
 ![null](/images/uploads/panoramas-estrenos-invincible.jpg)
 
