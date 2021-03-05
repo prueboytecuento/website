@@ -48,4 +48,4 @@ Esta apuesta animada es la adaptación de la historieta homónima de Robert Kirk
 
 El viernes 26 de marzo se estrenarán en esta plataforma 3 capítulos y los siguientes llegarán de uno en uno cada viernes hasta el 30 de abril. **(Trailer https://youtu.be/-bfAVpuko5o)**
 
-Me cuentan qué les parecieron estos estrenos si las ven, ¿bueno? **\#SOYprueboytecuento**
+Me cuentan qué les parecieron estos estrenos si los ven, ¿bueno? **\#SOYprueboytecuento**
