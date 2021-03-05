@@ -46,6 +46,6 @@ De Disney+ y Netflix me paso a **Amazon Prime** para contarles de **“Invencibl
 
 Esta apuesta animada es la adaptación de la historieta homónima de Robert Kirkman (co-creador de “The walking dead”). Su protagonista es Mark Grayson, un adolescente normal y corriente excepto por el hecho de ser hijo de Omni-Man, el superhéroe más bacán de la Tierra.
 
-El viernes 26 de marzo se estrenarán en esta plataforma 3 capítulos y los siguientes llegarán de uno en uno cada viernes hasta el 30 de abril. **(Trailer https://youtu.be/-bfAVpuko5o) **
+El viernes 26 de marzo se estrenarán en esta plataforma 3 capítulos y los siguientes llegarán de uno en uno cada viernes hasta el 30 de abril. **(Trailer https://youtu.be/-bfAVpuko5o)**
 
 Me cuentan qué les parecieron estos estrenos si las ven, ¿bueno? **\#SOYprueboytecuento**
