@@ -22,9 +22,9 @@ Natura acaba de lanzar dos productos de la línea Lumina para cuidar nuestro pel
 
 <!--more-->
 
-Parto por el Protector Térmico que es el que más me gustó y encontré muy eficiente. Me lo apliqué con el pelo húmedo justo después del lavado. Es con rociador así es fue muy sencillo usarlo.
+Parto por el Protector Térmico que es el que más me gustó y encontré muy eficiente. Me lo apliqué con el pelo húmedo justo después del lavado. Es con rociador así es que fue muy sencillo usarlo.
 
-![](/images/uploads/review-lumina-yo.jpg)
+![null](/images/uploads/review-lumina-yo.jpg)
 
 Les cuento que su textura es similar a la del acondicionador, pero un poco más líquida, por lo tanto, se adhiere muy bien al pelo y se hace más fácil el secado con secador. El pelo queda suave, sin frizz y con brillo.
 
@@ -32,7 +32,7 @@ El segundo producto es el Esencia que sirve para neutralizar los malos olores, e
 
 A veces mi pelo queda con un poco de aroma a humedad porque tengo la mala costumbre de entrar a la piscina sin soltármelo… O sea, no le doy la chance para que se seque. Me carga el pelo en la cara.
 
-![](/images/uploads/review-lumina-3.jpg)
+![null](/images/uploads/review-lumina-3.jpg)
 
 Justo antes de usar el Esencia había entrado a la piscina con las consecuencias que les conté y el producto dejó sin una gota de olor a humedad mi cabello. En ese aspecto funcionó bien.
 
