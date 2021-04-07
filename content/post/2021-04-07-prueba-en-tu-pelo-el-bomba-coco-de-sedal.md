@@ -31,6 +31,8 @@ Después de aplicarme el **Bomba Coco de Sedal**, mi cabello quedó inmediatamen
 
 Este producto contiene óleo de coco que cumple una función reparadora cuando el pelo se torna graso, opaco y con puntas rebeldes. Es de acción progresiva. No esperen, por ejemplo, que sus cabellos dejen de ser grasosos en las 2 primeras aplicaciones.
 
+![](/images/uploads/review-sedal-coco-ppal.jpg)
+
 Este Sedal es con ingredientes orgánicos, no contiene parabenos y, muy importante para mí, es cruelty free. En ninguna parte del mundo la marca testea en animales.
 
 Creo que estamos frente a un producto de bajo costo que anda bien y sirve para todo tipo de pelos, así es que se convierte en una buena opción de compra.
