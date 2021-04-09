@@ -12,7 +12,7 @@ Revista Vogue (edición Cono Sur), diario Publimetro, el portal Terra, Nueva Pop
 
 Y aquí estoy hoy, explorando el submundo de las redes sociales con el Pruebo y te cuento, una pega completamente distinta a lo que estaba acostumbrada a hacer y que nació por mi incontinencia profesional y espontánea de opinar sobre todo.
 
-<center><img src="/images/uploads/paula-alejandra-hernandez-maturana.jpg" alt="Paula Alejandra Hernández Maturana" /></center>
+![PYTC foto ppal](https://user-images.githubusercontent.com/40507193/114233122-e0053780-994a-11eb-83bd-2c4084129e9d.JPG)
 
 #### Pruebo y te cuento
 
@@ -26,4 +26,3 @@ Algunos creen que soy bloggera, pero no tengo tanta perso en cámara (toda mi vi
 
 Acompañame en esta ruta, prueba conmigo, cuéntame tu experiencia con los productos y servicios que yo ya probé, recomiéndame. Pruebo y te cuento contigo.
 
-[1]: /images/uploads/paula-alejandra-hernandez-maturana.jpg
