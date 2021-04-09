@@ -4,7 +4,7 @@ title = "About me"
 type = "page"
 +++
 
-Me bautizaron como Paula Alejandra Hernández Maturana, aunque algunos me conocen como #SOYprueboytecuento. Algo así como mi hashtag-name desde 2016, año en que comencé una interesante aventura en el mundo de las redes sociales.
+Me bautizaron como Paula Alejandra Hernández Maturana, aunque algunos me conocen como #SOYprueboytecuento. Algo así como mi hashtag-name desde 2016, año en que comencé una interesante aventura en el mundo de las RRSS.
 
 Soy periodista y por más de 20 años trabajé en medios de comunicación tradicionales. Prensa escrita para ser exacta. De esos 20 años, estuve 12 en Las Últimas Noticias y fui responsable de varias portadas del diario. Espectáculos era lo mío, aunque escribí otros 2 años temas femeninos en la extinta Revista M, también de LUN.
 
