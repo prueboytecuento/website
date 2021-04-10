@@ -21,7 +21,7 @@ Pruebo y te cuento es mi presente y un trabajo a pulso que me hace tremendamente
 
 ![PYTC foto ppal](https://user-images.githubusercontent.com/40507193/114233122-e0053780-994a-11eb-83bd-2c4084129e9d.JPG)
 
-**#### Pruebo y te cuento**
+**Pruebo y te cuento**
 
 ¿Qué es Pruebo y te cuento? Pruebo y te cuento son experiencias reales, mi punto de vista sobre los distintos productos que salen al mercado y que voy probando. Aquí vas a leer reviews reales y no lo que versan las etiquetas.
 
