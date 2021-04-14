@@ -43,4 +43,4 @@ Ojo que hace unas semanas Natura relanzó la línea Ekos, porque mejoró sus fó
 
 ¿Qué significa? Se traduce en una mayor concentración de bioactivos y óleos, y fórmulas biocompatibles y biodegradables a base de vegetales, sin parabenos, siliconas, ni oleos minerales.
 
-Esta máscara está a la venta en www.natura.cl y su valor es de $6.850. Esta colección tiene además shampoo a $4.790, acondicionador por $4.790 y un tónico capilar a $6.050. Todos los precios ya están con un 20% de descuento. Prueban y me cuentan. #SOYprueboytecuento
+Esta máscara está a la venta en www.natura.cl y su valor es de $6.850. Esta colección tiene además shampoo a $4.790, acondicionador por $4.790 y un tónico capilar a $6.050. Todos los precios ya están con un 20% de descuento. Prueban y me cuentan. **\#SOYprueboytecuento**
