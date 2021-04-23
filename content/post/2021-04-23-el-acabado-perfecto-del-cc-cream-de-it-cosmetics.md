@@ -5,7 +5,7 @@ date: '2021-04-23T16:13:34-04:00'
 image: /images/uploads/review-it-cosmetics-ppal.jpg
 rating: '1'
 tags:
-  - Pie
+  - Piel
   - Belleza
   - Cuidados
   - Manchas
