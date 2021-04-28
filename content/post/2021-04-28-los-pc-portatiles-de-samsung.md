@@ -1,5 +1,5 @@
 ---
-title: Los PC portátiles de Samsung
+title: Los PCs portátiles de Samsung
 showonlyimage: true
 date: '2021-04-28T16:24:43-04:00'
 image: >-
