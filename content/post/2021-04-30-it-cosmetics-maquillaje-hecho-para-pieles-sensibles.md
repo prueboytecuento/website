@@ -38,7 +38,7 @@ La demostración de Shannon -quien reiteró que It Cosmetics “es una marca que
 
 ![null](/images/uploads/dato-it-cosmetics-ppal.jpg)
 
-No necesitó mucho corrector para eliminar el tono amarillento bajo sus ojos ni usó los dedos para distribuirlo. Ella recomendó esparcir con la mini brocha 2. Yo también usé el corrector y me gustó mucho porque no se nota, pasa muy piola. Pero sobre todo porque no se agrieta. (Abajo y como referencia la foto de sin y con CC+ Cream).
+No necesitó mucho corrector para eliminar el tono amarillento bajo sus ojos ni usó los dedos para distribuirlo. Ella recomendó esparcir con la mini brocha 2. Yo también usé el corrector y me gustó mucho porque no se nota, pasa muy piola. Pero sobre todo porque no se agrieta. (Abajo y como referencia la foto que me hice sin y con CC+ Cream).
 
 Hay un blush (colorete), Bye Bye Pores que, para personas como yo que tienen los poros muy abiertos, es ideal ya que los disimula, ilumina el rostro y marca muy bien las facciones. 
 
