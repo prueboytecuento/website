@@ -24,8 +24,7 @@ El Huawei MateBook X cuesta $1.299.990 y también se puede reservar por $100.000
 
 ![null](/images/uploads/dato-huawei-mayo-matebook-x.jpg)
 
-> **LOS EQUIPOS
-> **
+> **LOS EQUIPOS**
 
 **Huawei MateBook X Pro 2021:** Tiene una pantalla touch Ultra FullView de resolución 3K y con todo el poder del procesador Intel Core de 11º generación. Cuenta con tres versiones de almacenamiento y procesador. 
 
