@@ -1,5 +1,5 @@
 ---
-title: 'Otro 4 de mayo, otro Día de Star Wars'
+title: Sobre el Día de Star Wars
 showonlyimage: true
 date: '2021-05-04T11:44:28-04:00'
 image: /images/uploads/star-wars1.jpg
