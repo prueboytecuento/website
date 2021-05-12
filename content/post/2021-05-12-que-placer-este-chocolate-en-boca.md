@@ -50,8 +50,7 @@ Es la primera vez que pruebo la combinación chocolate-sal y se me hizo muy agra
 
 **Piura Quemazón:** Es cacao al 70% y en gustos se encuentran el tabaco y tofy. Es un chocolate muy cremoso y sabroso. **Premio** **World Gold International Chocolate Awards 2013**.
 
-**Hierba Luisa:** Esta variedad de Pacari es la favorita de Oprah Winfrey. Es un chocolate al 60% cacao muy muy fresco. Hay Lemongrass. Exquisito. **Premio World Silver en el International Chocolate Awards 2018**.**
-**
+**Hierba Luisa:** Esta variedad de Pacari es la favorita de Oprah Winfrey. Es un chocolate al 60% cacao muy muy fresco. Hay Lemongrass. Exquisito. **Premio World Silver en el International Chocolate Awards 2018**.
 
 ![null](/images/uploads/review-pacari-hierba-luisa.jpg)
 
