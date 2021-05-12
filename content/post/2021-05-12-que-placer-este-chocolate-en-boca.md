@@ -41,14 +41,13 @@ Es la primera vez que pruebo la combinación chocolate-sal y se me hizo muy agra
 
 ![null](/images/uploads/review-pacari-maracuya-.jpg)
 
-**Maracuyá:** Es con cacao al 60%, es fresco, es amargo, tiene un gusto herbal. Jamás sentí el sabor a maracuyá. Diría que es el único de todas las variedades que probamos (hay muchas más) que no me convenció. **Premio World Silver en el International Chocolate Awards 2017.
-**
+**Maracuyá:** Es con cacao al 60%, es fresco, es amargo, tiene un gusto herbal. Jamás sentí el sabor a maracuyá. Diría que es el único de todas las variedades que probamos (hay muchas más) que no me convenció. **Premio World Silver en el International Chocolate Awards 2017**.
 
 **Guayusa:** Es un chocolate al 60% de cacao y está hecho con una hierba que consumen mucho los indígenas en la amazonía ecuatoriana. La Guayasa que es rica en antioxidantes. Sabe a mate. No me gustó mucho. Ganó el premio **Americas Gold en el International Chocolate Awards 2016**.
 
 ![null](/images/uploads/review-pacari-quemazo-n.jpg)
 
-**Piura Quemazón:** Es cacao al 70% y en gustos se encuentran el tabaco y tofy. Es un chocolate muy cremoso y sabroso. **Premio** **World Gold International Chocolate Awards 2013**.
+**Piura Quemazón:** Es cacao al 70% y en gustos se encuentran el tabaco y tofy. Es un chocolate muy cremoso y sabroso. **Premio World Gold International Chocolate Awards 2013**.
 
 **Hierba Luisa:** Esta variedad de Pacari es la favorita de Oprah Winfrey. Es un chocolate al 60% cacao muy muy fresco. Hay Lemongrass. Exquisito. **Premio World Silver en el International Chocolate Awards 2018**.
 
