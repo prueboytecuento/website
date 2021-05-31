@@ -28,8 +28,7 @@ Entre un 30% y 40% de la población estaría sufriendo algún problema de este t
 
 Arias sugiere realizarse una polisomnografía. “Es un examen para evaluar la calidad del sueño, en donde se registra la actividad cerebral, respiratoria, movimientos oculares, ritmo cardíaco, saturación de oxígeno, movimientos del cuerpo, entre otros”.
 
-**¿Recomendaciones para recuperar el sueño regular?
-**
+**¿Recomendaciones para recuperar el sueño regular?**
 
 * Mantener horarios regulares de sueño y evitar siestas.
 * Si es posible, usar un smartwatch o bandas para un monitoreo 24/7.
@@ -43,5 +42,4 @@ Sobre el monitoreo, Huawei sugiere sus Watch GT 2 Pro, la Huawei Band 6 y el Hua
 
 Lo anterior, gracias a la tecnología Huawei TruSleep 2.0 que es capaz de identificar cuándo el usuario se queda dormido, cuándo se despierta y en qué fase del sueño (Fase REM, Sueño Liviano y Sueño Profundo) se encontraba durante el tiempo en que el dispositivo hizo la medición.
 
-Estos equipos incluso entregan hasta 200 sugerencias para ayudar a los usuarios a dormir mejor. Los dispositivos son enlazados además con la aplicación Salud de Huawei para llevar un completo registro en tu smartphone. Dato del día. **\#SOYprueboytecuento
-**
+Estos equipos incluso entregan hasta 200 sugerencias para ayudar a los usuarios a dormir mejor. Los dispositivos son enlazados además con la aplicación Salud de Huawei para llevar un completo registro en tu smartphone. Dato del día. **\#SOYprueboytecuento**
