@@ -28,8 +28,7 @@ Entre un 30% y 40% de la población estaría sufriendo algún problema de este t
 
 Arias sugiere realizarse una polisomnografía. “Es un examen para evaluar la calidad del sueño, en donde se registra la actividad cerebral, respiratoria, movimientos oculares, ritmo cardíaco, saturación de oxígeno, movimientos del cuerpo, entre otros”.
 
-**¿Recomendaciones para recuperar el sueño regular?
-**
+**¿Recomendaciones para recuperar el sueño regular?**
 
 * Mantener horarios regulares de sueño y evitar siestas.
 * Si es posible, usar un smartwatch o bandas para un monitoreo 24/7.
