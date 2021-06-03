@@ -45,5 +45,4 @@ También se presentó la segunda generación del Huawei M-Pencil. El nuevo lápi
 
 Es compatible con FreeScript, que convierte en texto digital la escritura a mano introducida en cualquier cuadro de entrada en tiempo real. 
 
-Son muchas las características de estos equipos. Yo les di algunas para que se hagan una idea. Las descripciones completas las encuentran en http://consumer.huawei.com/cl/. **\#SOYprueboytecuento
-**
+Son muchas las características de estos equipos. Yo les di algunas para que se hagan una idea. Las descripciones completas las encuentran en http://consumer.huawei.com/cl/. **\#SOYprueboytecuento**
