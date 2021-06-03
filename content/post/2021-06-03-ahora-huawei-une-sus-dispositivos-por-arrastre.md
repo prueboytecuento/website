@@ -33,9 +33,7 @@ Ejemplo, pasaste lo que estás viendo en tu celular a la TV, pero además quiere
 
 
 
-> **NUEVOS EQUIPOS**
->
-> 
+**NUEVOS EQUIPOS**
 
 
 
