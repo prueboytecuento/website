@@ -15,17 +15,17 @@ categories:
   - DATO
 weight: '1'
 ---
-La gigante China acaba de lanzar sus nuevos equipos. Todos muy interesantes aunque lo que más me gustó fue su sistema operativo ultra bacán: Harmony OS 2.
+La gigante China acaba de lanzar sus nuevos equipos. Todos muy interesantes aunque lo que más me gustó fue su sistema operativo ultra bacán: HarmonyOS 2.
 
 <!--more-->
 
 Me refiero a un sistema que permite conectar todos los dispositivos por arrastre. Cuando abres tu smartphone te encuentras con un ícono del celular al centro de la pantalla y los íconos del PC, smartwatch, tablet, TV y FreeBuds alrededor. Si quieres conectarte a alguno de ellos simplemente lo arrastras y empieza a ejecutarse.
 
-Ejemplo, pasaste lo que estás viendo en tu celular a la TV, pero además quieres que el audio se escuche sólo en los Freebuds, puedes hacerlo. Mucho más simple y rápido que empezar a abrir las aplicaciones para conectarlas entre sí.
+Ejemplo, pasaste lo que estás viendo en tu celular a la TV, pero además quieres que el audio se escuche sólo en los FreeBuds, puedes hacerlo. Mucho más simple y rápido que empezar a abrir las aplicaciones para conectarlas entre sí.
 
 ¿Qué pasa con los que tienen equipos más antiguos? #Huawei especificó que 100 dispositivos antiguos se actualizarán para funcionar con HarmonyOS 2.
 
-![](/images/uploads/dato-harmony-tablet.jpg)
+![null](/images/uploads/dato-harmony-tablet.jpg)
 
 > **NUEVOS EQUIPOS**
 
@@ -37,7 +37,7 @@ Sobre la duración de la batería, estamos hablando de 21 días y de 5 días en 
 
 La nueva tablet Huawei MatePad Pro está equipada con una pantalla OLED FullView de 12,6 pulgadas con una relación pantalla-cuerpo del 90%. Viene con conjuntos de chips de la serie Kirin 9000.
 
-![](/images/uploads/dato-harmony-3.jpg)
+![null](/images/uploads/dato-harmony-3.jpg)
 
 La tablet también permite la colaboración multipantalla con ordenadores. Puede convertirse en una tabla de dibujo en modo Reflejar y en un monitor en modo Ampliar. Se pueden arrastrar y soltar archivos entre distintos dispositivos.
 
