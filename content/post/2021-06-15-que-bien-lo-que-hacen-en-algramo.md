@@ -15,17 +15,17 @@ categories:
   - ECO
 weight: '1'
 ---
-Me gusta que las empresas no se hagan las locas con el ítem medioambiente. Este fin de semana llegó a mi puerta un carrito repartidor de detergente y lavaloza que reutilizar sus envases y estos, a su vez, son biodegradables.
+Me gusta que las empresas no se hagan las locas con el ítem medioambiente. Este fin de semana llegó a mi puerta un carrito repartidor de detergente y lavaloza que reutiliza sus envases y estos, a su vez, son biodegradables.
 
 <!--more-->
 
-Por supuesto que interrogué al vendedor de **Algramo**, empresa que opera hace un buen tiempo en Chile, pero cuyos servicios nunca había solicitado. Es una empresa B o como ellos describen en la web Algramo.com:
+Por supuesto que interrogué al vendedor de Algramo, empresa que opera hace un buen tiempo en Chile, pero cuyos servicios nunca había solicitado. Es una empresa B o como ellos describen en la web Algramo.com:
 
-**Económico:** “Empresa privada que busca rentabilidad como consecuencia de su impacto social y ambiental”.
+Económico: “Empresa privada que busca rentabilidad como consecuencia de su impacto social y ambiental”.
 
-**Social:** “No importa cuánto compres, siempre pagarás el mismo precio”.
+Social: “No importa cuánto compres, siempre pagarás el mismo precio”.
 
-**Sustentable:** “Nuestros envases (biodegradables) van a vivir más en este planeta que tu generación y trabajamos para que sean reutilizados por muchos años, evitando producir más desechos”.
+Sustentable: “Nuestros envases (biodegradables) van a vivir más en este planeta que tu generación y trabajamos para que sean reutilizados por muchos años, evitando producir más desechos”.
 
 ![null](/images/uploads/eco-algramo-1.jpg)
 
@@ -39,4 +39,4 @@ Me gustó mucho el servicio, el repartidor fue amable y explicó el paso a paso 
 
 Lo que me gustó todavía más fue el precio. Entré a Jumbo.cl y el Pureza Esencial cuesta $2.990, o sea más caro, y trae 1,2 litros, no uno y medio.
 
-Reconozco que nunca le tuve mucha fe al servicio, pero es bueno y ahora lo recomiendo 100%. ¿Han usado Algramo? Cuéntenme su experiencia o pruébenlo y me cuenta, ¿bueno? **\#SOYprueboytecuento**
+Reconozco que nunca le tuve mucha fe al servicio, pero es bueno y ahora lo recomiendo 100%. ¿Han usado Algramo? Cuéntenme su experiencia o pruébenlo y me cuenta, ¿bueno? #SOYprueboytecuento
