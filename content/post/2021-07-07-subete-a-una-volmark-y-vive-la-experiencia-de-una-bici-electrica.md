@@ -110,7 +110,7 @@ Sobre precios, este modelo tiene un valor referencial de $700.000. Más abajo el
 
 **\-Horquilla**, aleación.
 
-**\-Talla **: 26''.
+**\-Talla**: 26''.
 
 **\-Peso**, 22kg.
 
