@@ -28,7 +28,7 @@ weight: '1'
 
 Estuve probando cerca de 1 mes las **Völmark** y así vivir la experiencia de la electromovilidad. Específicamente el modelo **Viktoria**.
 
-Es una bicicleta bastante amigable en términos de uso. Fácil de aprender a manejar. Luego de cargar la batería (siempre enchufa primero el cargador a la betería y después al enchufe de corriente), repasen cada una de las funciones que tiene la bicicleta en el lado izquierdo del manubrio. 
+Es una bicicleta bastante amigable en términos de uso. Fácil de aprender a manejar. Luego de cargar la batería (siempre enchufa primero el cargador a la batería y después al enchufe de corriente), repasen cada una de las funciones que tiene la bicicleta en el lado izquierdo del manubrio. 
 
 Listo eso dense un par de vueltas por una zona sin autos ni gente caminando para que la dominen muy bien y no tengan un accidente. Después de eso a la ciclovía chiquillas y chiquillos.
 
@@ -36,7 +36,7 @@ Listo eso dense un par de vueltas por una zona sin autos ni gente caminando para
 
 Esta, al igual que la mayoría de las bicicletas eléctricas, pueden pedalearla o usarla en modo eléctrico. Yo partí pedaleando y suavemente comencé a acelerar hasta dejar de darle a los pedales. No hay pérdida de equilibrio al pasar de un modo a otro. La bici no tambalea.
 
-Ahí se van a dar cuenta que esta Völmark es fácil de dominar en uso y movimientos que hagas en el panel de funciones. El panel tiene: botón de encendido y apagado, obvio. Tiene otro botón para elegir el nivel de asistencia que quieren, LOW, MED y HIGH. Ahí van controlando las velocidades máximas que quieren durante el recorrido. La asistencia es de hasta 30km/hr.
+Ahí se van a dar cuenta que esta Völmark es fácil de dominar en uso y movimientos que hagas en el panel de funciones. El panel tiene: botón de encendido y apagado, obvio. Tiene otro botón para elegir el nivel de asistencia que quieren, LOW, MED y HIGH. Ahí van controlando las velocidades máximas que quieren durante el recorrido. La asistencia es de hasta 30km/h: autonomía de su motor.
 
 Está el indicador de batería y el botón de encendido del foco delantero que es bien potente.
 
