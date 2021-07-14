@@ -17,7 +17,7 @@ categories:
   - ON TOUR
 weight: '1'
 ---
-\#prueboytecuentoONTOUR Se llama **Wynwood Walls** y es la galería de arte urbano más importante de la cuidad. 
+**\#prueboytecuentoONTOUR** Se llama **Wynwood Walls** y es la galería de arte urbano más importante de la cuidad. 
 
 <!--more-->
 
