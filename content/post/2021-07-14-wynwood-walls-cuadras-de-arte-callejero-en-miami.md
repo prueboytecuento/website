@@ -21,7 +21,7 @@ weight: '1'
 
 <!--more-->
 
-Pero no se trata de cualquier galería, sino de una que es al aire libre y en la que las telas son las paredes de un barrio completo. Lo llaman el Design District.
+Pero no se trata de cualquier galería, sino de una que es al aire libre y en la que las telas son las paredes de un barrio completo. La llaman el Design District.
 
 Sólo para que se hagan una idea, en #Wynwood hay algo más de 200 murales y grafitis. Murales de varios metros de altura que han sido rigurosamente diseñados y pintados por artistas de todo el mundo.
 
