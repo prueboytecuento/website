@@ -14,7 +14,7 @@ tags:
   - Arte Callejero
   - Design District
 categories:
-  - ON TOUR
+  - PANORAMAS
 weight: '1'
 ---
 **\#prueboytecuentoONTOUR** Se llama **Wynwood Walls** y es la galería de arte urbano más importante de la cuidad. 
