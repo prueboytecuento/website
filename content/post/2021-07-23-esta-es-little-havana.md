@@ -23,11 +23,15 @@ weight: '1'
 
 <!--more-->
 
+![](/images/uploads/review-celia-cruz-ppal.jpg)
+
 Todo gira en torno a la **Calle 8** que es en donde van a encontrar fruterías, restaurantes con platos típicos como el Ropa Vieja, Vaca Frita y otros. Comercio, una versión a menor escala del Paseo de la Fama gringo y, lo que más me gustó de este lugar, tiendas en donde fabrican puros en el mismo momento que van a comprarlos. Es choro el proceso.
 
 Estuve conversando con William, quien lleva años dedicado al oficio de torcedor o quien agarra las hojas de tabaco para darle forma al puro o habano. Trabaja en la tienda Cuban Style Cigars. 
 
 “Yo me demoro unos 5 minutos en hacer un puro. Sólo tomo las hojas y las enrosco. El resto del trabajo lo hace una prensa”, me cuenta.
+
+![](/images/uploads/review-puros.jpg)
 
 Suena fácil pero el enroscado es un verdadero arte para que las hojas no queden sueltas o se te arranquen mientras les vas dando forma tubular. Es muy bonito y se nota que este isleño con más de 15 años en Estados Unidos lo hace con cariño.
 
@@ -39,9 +43,13 @@ Además de los restaurantes, hay minimercados con víveres típicos de la isla. 
 
 También está el Tower Teather Miami, en donde hay proyecciones de todo tipo de cine y documentales, además de espectáculos en vivo.
 
+![](/images/uploads/review-domino.jpg)
+
 Si tuviera que elegir un segundo lugar favorito, este sería el Domino Park. El dominó es el juego de mesa oficial de Cuba y da gusto ver cómo lugareños pasan el tiempo desarrollando estrategias para vencer a sus contrincantes. Me recordó a los ajedrecistas de la Plaza de Armas de Santiago. 
 
 Caminando por Calle 8 se van a encontrar con la estrella de la fama de **Celia Cruz** y los turistas se turnan para tomarse fotos a su lado. Artistas como María Conchita Alonso, Thalia, Ednita Nazario, Olga Guillot y otras figuras también tienen la suya.
+
+![](/images/uploads/review-celia-estrella.jpg)
 
 Para Celia no sólo hay una estrella, sino también un colorido mural con ella en la imagen y su clásico “Azúcar”. Un merecido reconocimiento a la cantante.
 
