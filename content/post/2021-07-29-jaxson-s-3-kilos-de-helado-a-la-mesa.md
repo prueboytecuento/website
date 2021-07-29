@@ -1,5 +1,5 @@
 ---
-title: 'Jaxson’s, 3 kilos de helado a la mesa'
+title: 'Jaxson’s, 2 kilos de helado a la mesa'
 showonlyimage: true
 date: '2021-07-29T12:32:57-04:00'
 image: /images/uploads/review-jaxsons-ppal3.jpg
@@ -49,7 +49,6 @@ Las paredes están plagadas de patentes de autos antiguos y señaléticas; hay v
 
 ![](/images/uploads/review-jaxsons-decoracio-n.jpg)
 
-La historia de esta empresa familiar, que partió en 1956, es súper bonita porque su fundador, Monroe Udell fue de los primeros empresarios en contratar negros cuando la segregación racial marcaba los días en Estados Unidos. De los pocos que peleó contra la discriminación.
+La historia de esta empresa familiar, que partió en 1956, es súper bonita porque su fundador Monroe Udell fue de los primeros empresarios en contratar negros cuando la segregación racial marcaba los días en Estados Unidos. De los pocos que peleó contra la discriminación.
 
-Udell partió lavando platos y sirviendo mesas antes de tener su propio negocio. La verdad es que Jaxson’s es un lugar que hay que visitar si quieren conocer lugares diferentes en Miami. No se van a arrepentir. **\#SOYprueboytecuento
-**
+Udell partió lavando platos y sirviendo mesas antes de tener su propio negocio. La verdad es que Jaxson’s es un lugar que hay que visitar si quieren conocer lugares diferentes en Miami. No se van a arrepentir. **\#SOYprueboytecuento**
