@@ -24,20 +24,20 @@ weight: '1'
 
 Se llaman Krispy Kreme y existen desde 1937.  Son donuts de masa suave, blanditas y esponjosas. Donuts que se pueden comer inmediatamente después de que son horneada. Calientitas.
 
-![](/images/uploads/review-krispy-k-ppal.jpg)
+![null](/images/uploads/review-krispy-k-ppal.jpg)
 
-Es raro comérselas así por un tema de costumbre, pero se sientes bien en el paladar. Eso sí, son súper dulces. Más, por ejemplo, que una donut del Dunkin, que en Chile sería un punto de referencia. 
+Es raro comérselas así por un tema de costumbre, pero se sienten bien en el paladar. Eso sí, son súper dulces. Más, por ejemplo, que una donut del Dunkin, que en Chile sería un punto de referencia. 
 
 Los fanáticos del azúcar que viajen a Estados Unidos y se animen a probarlas se las van a hacer chupete, jajajá.
 
-![](/images/uploads/review-krispy-k-logo.jpg)
+![null](/images/uploads/review-krispy-k-logo.jpg)
 
 En lo personal las encontré súper ricas, pero como no tengo mucha onda con las preparaciones muy dulces, para mí son perfectas sin glaseado. 
 
 Me encantó que en #KrispyKreme se puede ver el proceso de producción de las donuts a través de un vidrio. Te hacen parte de sus creaciones.
 
-![](/images/uploads/review-krispy-k-proceso.jpg)
+![null](/images/uploads/review-krispy-k-proceso.jpg)
 
 Es tan conocida esta cadena de rosquillas que incluso en las tiendas van a encontrar  merchandising para llevarse de recuerdo. Una rareza.
 
-Es una sabrosa experiencia. Si vienen a Estados Unidos y se les antoja comer donuts, prueben con esta opción y me cuentan qué les parecen, ¿bueno? #SOYprueboytecuento
+Es una sabrosa experiencia. Si vienen a Estados Unidos y se les antoja comer donuts, prueben con esta opción y me cuentan qué les parecieron, ¿bueno? #SOYprueboytecuento
