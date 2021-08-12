@@ -39,9 +39,9 @@ Es impresionante cómo en minutos el pelo recupera su hidratación, brillo y se 
 
 La rutina que pudimos ver todos los que participamos en el lanzamiento de esta colección, por supuesto, partió con el lavado y uso de acondicionador.
 
-En la limpieza el protagonista es el **Bain Hydratation Douceur** ($23.490), que es un shampoo cremoso que define los rizos y les da volumen. Se acondiciona usando el **Fondant Hydratation Essentielle** ($26.490): acondicionador más ligero que debe aplicarse desde la mitad del largo a las puntas. Hay que dejarlo actuar unos minutos.
+En la limpieza el protagonista fue el **Bain Hydratation Douceur** ($23.490), que es un shampoo cremoso que define los rizos y les da volumen. Lo acondicionaron usando el **Fondant Hydratation Essentielle** ($26.490): es un acondicionador más ligero que debe aplicarse desde la mitad del largo a las puntas. Lo dejaron actuar unos minutos.
 
-Pueden continuar la rutina de belleza hidratando con la **Masque Beurre Haute Nutrition** ($36.990). Está formulada para pelos de medios a gruesos. Da suavidad, brillo y ayuda a reconstruir o prevenir pelos quebradizos. Depende de la etapa en que esté tu cabello.
+Esa rutina se pueden continuar hidratando con la **Masque Beurre Haute Nutrition** ($36.990). Está formulada para pelos de medios a gruesos. Da suavidad, brillo y ayuda a reconstruir o prevenir pelos quebradizos. Depende de la etapa en que esté tu cabello.
 
 ![null](/images/uploads/review-ke-rastase-curl-2.jpg)
 
