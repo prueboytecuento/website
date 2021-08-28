@@ -5,7 +5,7 @@ date: '2021-08-28T18:48:07-04:00'
 image: /images/uploads/dato-kinto-ppal.jpg
 rating: '1'
 tags:
-  - '#SOYprueboytecuento'
+  - SOYprueboytecuento
   - KENTO
   - Toyota
   - Arriendo
