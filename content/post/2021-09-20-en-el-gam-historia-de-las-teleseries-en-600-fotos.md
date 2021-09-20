@@ -37,7 +37,7 @@ Junto a la exposición, se presentará el libro “Pantalla Viva”, en el que l
 
 ![null](/images/uploads/teleserie4.jpg)
 
-La muestra estará disponible hasta el 10 de octubre y es gratuita. Más info en la web del centro cultural, GAM.cl. #SOYprueboytecuento
+La muestra estará disponible hasta el 10 de octubre y es gratuita. Más info en la web del centro cultural, GAM.cl. **\#SOYprueboytecuento**
 
 > **QUÉ VEREMOS**
 
@@ -125,4 +125,4 @@ La muestra estará disponible hasta el 10 de octubre y es gratuita. Más info en
 
 40-Juegos de poder (Mega)
 
-Fuente: GAM
+**Fuente: GAM**
