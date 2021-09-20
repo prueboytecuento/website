@@ -17,33 +17,31 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-Se llama “Pantalla viva” y es una muestra que recopila imágenes desde “La madrastra” hasta “Juegos de poder”. Son 40 años de producciones nacionales.
+Se llama “Pantalla viva” y es una muestra que recopila imágenes desde “La madrastra” hasta "Juegos de poder”. Son 40 años de producciones nacionales.
 
-<!--more-->
+<!--more-->
 
-La selección de imágenes que conforman la muestra, estuvo a cargo de la directora de cine y fotógrafa Claudia Gacitúa. “Uno de los motores de la exposición es generar memoria colectiva desde las teleseries, que representan un trozo de cada época, el entorno social y ético del momento además de los cambios en las temática, la producción y el lenguaje audiovisual, explica.
+La selección de imágenes que conforman la muestra, estuvo a cargo de la directora de cine y fotógrafa Claudia Gacitúa. 
 
-![](/images/uploads/teleserie7.jpg)
+“Uno de los motores de la exposición es generar memoria colectiva desde las teleseries, que representan un trozo de cada época, el entorno social y ético del momento además de los cambios en la temática, la producción y el lenguaje audiovisual, explica.
+
+![null](/images/uploads/teleserie7.jpg)
 
 Y sigue: “El proyecto destaca el aporte de los actores y actrices de la escena nacional en la construcción de sus personajes y cómo estos han aportado a este imaginario popular”.
 
 La selección comienza con “La madrastra” (1981), producción emblemática debido a su gran conexión con el público y a su carácter fundacional en la industria de las telenovelas en Chile, que en 2021 cumple cuatro décadas de desarrollo, lo que entrega un valor agregado a esta revisión.
 
-![](/images/uploads/teleserie5.jpg)
+![null](/images/uploads/teleserie5.jpg)
 
 Junto a la exposición, se presentará el libro “Pantalla Viva”, en el que las periodistas Soledad Gutiérrez y Carmen Rodríguez, dan cuenta de la historia de la teleseries de las últimas cuatro décadas, a través de entrevistas a 16 actores y actrices que fueron protagonistas de estas producciones.
 
-![](/images/uploads/teleserie4.jpg)
+![null](/images/uploads/teleserie4.jpg)
 
-La muestra estará disponible hasta el 10 de octubre y es gratuita. Más info en la web del centro cultural, GAM.cl. #SOYprueboytecuento
+La muestra estará disponible hasta el 10 de octubre y es gratuita. Más info en la web del centro cultural, GAM.cl. #SOYprueboytecuento
 
-> 
->
 > **QUÉ VEREMOS**
->
-> 
 
-1.- Madrastra (Canal 13)
+1.- Madrastra (Canal 13)
 
 2.-La Torre 10 (TVN)
 
@@ -71,7 +69,7 @@ Junto a la exposición, se presentará el libro “Pantalla Viva”, en el que l
 
 14-Adrenalina (Canal 13)
 
-![](/images/uploads/teleserie6.jpg)
+![null](/images/uploads/teleserie6.jpg)
 
 15-Sucupira (TVN)
 
@@ -119,7 +117,7 @@ Junto a la exposición, se presentará el libro “Pantalla Viva”, en el que l
 
 37-Verdades ocultas (Mega)
 
-![](/images/uploads/teleserie2.jpg)
+![null](/images/uploads/teleserie2.jpg)
 
 38-Perdona nuestros pecados (Mega)
 
