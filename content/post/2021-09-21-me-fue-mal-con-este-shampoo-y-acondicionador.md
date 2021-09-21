@@ -31,8 +31,7 @@ No soy de matar marcas o sus productos, porque aquí hablo de mí experiencia co
 
 Sin embargo, creo que es un punto que esta compañía **Green Beauty**, debería considerar para mejorar el producto que entrega a sus consumidores. 
 
-> **Garnier, compañía Green Beauty
-> **
+> **Garnier, compañía Green Beauty**
 
 Punto aparte y en buenas noticias para esta compañía, Garnier recibió el Sello de Certificación por el Programa Cruelty Free International Leaping Bunny, organización líder que trabaja para poner fin al testeo en animales con estándares de Oro a nivel mundial.
 
@@ -42,5 +41,4 @@ La certificación se otorga a todos los productos terminados de una marca. No pu
 
 En resumen, Garnier es una marca Green Beauty por no testear en animales, por trabajar con comunidades (670) para abastecerse de sus ingredientes, biodegradabilidad en los productos, más energías renovadas, más empaques reciclados y reciclables, etc.
 
-Si se animan a probar esta colección #Fructis, más allá de mi experiencia, y quieren vivir la suya, les cuento que el valor referencial de cada uno es de $3.890 y viene en formato de 300ml. **\#SOYprueboytecuento
-**
+Si se animan a probar esta colección #Fructis, más allá de mi experiencia, y quieren vivir la suya, les cuento que el valor referencial de cada uno es de $3.890 y viene en formato de 300ml. **\#SOYprueboytecuento**
