@@ -22,20 +22,14 @@ Este domingo 26 de septiembre las chicas nos tomamos las calles y salimos en pat
 
 <!--more-->
 
-Esta es la cuarta versión de “La cicletada de las niñas” que, a diferencia de las anteriores, tendrá música en vivo, picnic y talleres.
+Esta es la cuarta versión de **“La cicletada de las niñas”** que, a diferencia de las anteriores, tendrá música en vivo, picnic y talleres.
 
-
-
-![](/images/uploads/panorama-cicleta-apaisada.jpg)
+![null](/images/uploads/panorama-cicleta-apaisada.jpg)
 
 ¿Alguna novedad? Se unirán al megaevento ciudades, como Viña del Mar, Rancagua, Concepción, Valdivia, Osorno, Puerto Montt, Coñaripe, Lican Ray y Quellón.
 
-
-
 Y, en paralelo, ciclistas de Brasil, Perú, Colombia, Argentina y República Dominicana también harán lo suyo.
 
-![](/images/uploads/panorama-cicletada-nin-as.jpg)
+![null](/images/uploads/panorama-cicletada-nin-as.jpg)
 
-
-
-La actividad tiene como fin el uso de la bicicleta como medio de transporte y un derecho. Así es que a tomarse las calles chiquillas. El punto de partida será Plaza la Paz, en Independencia a las 10am. #SOYprueboytecuento
+La actividad tiene como fin el uso de la bicicleta como medio de transporte y un derecho. Así es que a tomarse las calles chiquillas. El punto de partida será Plaza la Paz, en Independencia a las 10am. **\#SOYprueboytecuento**
