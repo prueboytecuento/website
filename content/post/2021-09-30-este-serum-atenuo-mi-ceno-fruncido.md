@@ -52,5 +52,4 @@ La idea es que se lo apliquen después de lavar su carita y usar el tónico. Aho
 
 \-Menos líneas de expresión.
 
-El Retinol Skin-Renewing Daily Micro-Dose Serum de Kiehl`s tiene un valor referencial de $60.000 y está a la venta en el retail y kiehls.cl **\#SOYprueboytecuento
-**
+El Retinol Skin-Renewing Daily Micro-Dose Serum de Kiehl`s tiene un valor referencial de $60.000 y está a la venta en el retail y kiehls.cl **\#SOYprueboytecuento**
