@@ -19,7 +19,7 @@ tags:
   - serum
 categories:
   - BELLEZA
-weight: 0
+weight: '1'
 ---
 Hace unas semanas les conté sobre el arribo de esta nueva colección en las RRSS de Pruebo y te cuento y me comprometí a usarla para mostrales resultados.
 
