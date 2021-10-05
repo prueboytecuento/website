@@ -2,7 +2,7 @@
 title: 'Hello, Good Stuff! lo nuevo de essence'
 showonlyimage: true
 date: '2021-10-05T15:30:18-03:00'
-image: /images/uploads/review-essence-collage-ok.jpg
+image: /images/uploads/review-essence-collage-listo.jpg
 rating: '1'
 tags:
   - essence
@@ -29,7 +29,7 @@ La **Hello, Good Stuff!** está compuesta de varios productos, pero yo me concen
 
 Si son de las mías, con piel de mixta a grasa, lo más probable es que van a descartar esta opción, pero mi experiencia fue buena porque dio luminosidad a la piel, no oleosidad. Huele y contiene extractos de piña. Ojo que no tiene siliconas. Bien ahí **\#essence**.
 
-![null](/images/uploads/review-essence-collage-ok.jpg)
+![null](/images/uploads/review-essence-collage-listo.jpg)
 
 Van a encontrar este producto bajo el nombre de **Face Serum, Hydrate & Glow** ($3.894 referencial).
 
@@ -43,7 +43,7 @@ En cambio, me apliqué la base **Pretty Natural** ($2.990 referencial) que tiene
 
 Es aterciopelada y liviana. La colección Hello, Good Stuff! tiene además polvos dúo: para resaltar pómulos y otro que hace las veces de iluminador. Ese anda súper bien, pero el más oscuro no destaca mucho los pómulos. Hay que usar bastante para obtener un buen resultado.
 
-![null](/images/uploads/review-essence-productos.jpg)
+![null](/images/uploads/review-essence-productos-listo.jpg)
 
 Me gustó la paleta de tonos café para los ojos: **the BROWN Edition** ($4.990 referencial) tiene una gama de 9 colores y entre esos había uno algo burdeo que usé por lo diferente y potente de esta paleta. Lo amé. Jugué con tonos más claro también.
 
