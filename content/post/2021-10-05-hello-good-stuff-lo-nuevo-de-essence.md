@@ -2,7 +2,7 @@
 title: 'Hello, Good Stuff! lo nuevo de essence'
 showonlyimage: true
 date: '2021-10-05T18:25:53-03:00'
-image: /images/uploads/review-essence-collage-listo.jpg
+image: /images/uploads/essence-ppal.jpg
 rating: '1'
 tags:
   - essence
