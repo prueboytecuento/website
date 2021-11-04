@@ -17,7 +17,7 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-@prueboytecuentoPANORAMAS Rechazan el uso del Parque O'Higgins para hacer **Lollapalooza 2022**: la medida viene desde la Comisión de Municipalidad de Santiago.
+**@prueboytecuentoPANORAMAS** Rechazan el uso del Parque O'Higgins para hacer **Lollapalooza 2022**: la medida viene desde la Comisión de Municipalidad de Santiago.
 
 <!--more-->
 
