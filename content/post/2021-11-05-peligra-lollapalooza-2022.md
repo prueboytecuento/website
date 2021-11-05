@@ -1,8 +1,8 @@
 ---
-title: Peligra Lollapalooza 2022
+title: 'Lamentable: peligra Lollapalooza 2022'
 showonlyimage: true
-date: '2021-11-05T09:16:10-03:00'
-image: /images/uploads/rrss-lollapalooza-2022.jpeg
+date: '2021-11-04T09:16:10-03:00'
+image: /images/uploads/rrss-lollapalooza-2.jpeg
 rating: '1'
 tags:
   - Concierto
@@ -23,7 +23,7 @@ weight: '1'
 
 La medida la comunicó la concejala **Rosario Carvajal, Presidenta de comisiones de Barrios, Patrimonio y Desarrollo Urbano y Cultura y de las Artes**.
 
-![](/images/uploads/rrss-lollapalooza-2022.jpeg)
+![](/images/uploads/rrss-lollapalooza-2.jpeg)
 
 "Se verificó que la Municipalidad de Santiago (bajo el mando del ex alcalde Felipe Alessandri) otorgó el permiso del uso del Parque O'Higgins para la realización del Festival Lollapalooza 2019, sin que la empresa organizadora del evento contara con la autorización del Consejo de Monumentos Nacionales, requerida en virtud de la intervención que se efectuó en dicho recinto", se destaca en el comunicado.
 
@@ -31,7 +31,7 @@ Lo anterior tomando en cuenta un pronunciamiento de la Contraloría General de l
 
 Se quejan además que el municipio no desarrolló el Plan de Manejo Integral de la Zona Típica, con la participación de la comunidad relacionada con el Parque O'Higgins y con el apoyo del Consejo de Monumentos Nacionales.
 
-![](/images/uploads/rrss-lollapalooza-2.jpeg)
+![](/images/uploads/rrss-lollapalooza-2022.jpeg)
 
 Carvajal concluye además que el total de los deterioros del parque tras la última edición no han sido compensados por la productora, en una suma que supera los **90 millones de pesos**. Mientras que la empresa Formula E Chile Operations SpA. mantiene una deuda de **47 millones de pesos**.
 
