@@ -1,7 +1,7 @@
 ---
 title: Lotus aclaran "faltas" para realizar Lollapalooza en Parque O'Higgins
 showonlyimage: true
-date: '2021-11-05T10:36:36-03:00'
+date: '2021-11-05T08:00:36-03:00'
 image: /images/uploads/mu-sica-lollapalooza-metallica.jpg
 rating: '1'
 tags:
