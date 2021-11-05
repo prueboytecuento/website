@@ -1,7 +1,7 @@
 ---
 title: 'Lamentable: peligra Lollapalooza 2022'
 showonlyimage: true
-date: '2021-11-04T09:16:10-03:00'
+date: '2021-11-04T10:00:00-03:00'
 image: /images/uploads/rrss-lollapalooza-2.jpeg
 rating: '1'
 tags:
