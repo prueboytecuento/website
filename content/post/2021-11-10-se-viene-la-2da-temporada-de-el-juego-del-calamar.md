@@ -10,7 +10,7 @@ tags:
   - Serie
   - TV
   - Streaming
-  - JuegosInfantiles
+  - Juegos Infantiles
   - Muertes
   - Asesinatos
   - Drama
