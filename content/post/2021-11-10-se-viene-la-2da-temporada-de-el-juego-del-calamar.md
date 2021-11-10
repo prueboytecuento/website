@@ -20,11 +20,11 @@ categories:
   - PELÍCULAS Y SERIES
 weight: '1'
 ---
-\#prueboytecuentoPELISYSERIES Esta noticia la estaba esperando desde hace semanas, porque sí, soy de las que vio la serie más exitosa de **Netflix** y se agarró la cabeza a dos manos al escuchar las últimas palabras del **Jugador 456**.
+**\#prueboytecuentoPELISYSERIES** Esta noticia la estaba esperando desde hace semanas, porque sí, soy de las que vio la serie más exitosa de **Netflix** y se agarró la cabeza a dos manos al escuchar las últimas palabras del **Jugador 456**.
 
 <!--more-->
 
-Con quién hablaba, qué dijo, en qué momento lo dijo y qué pasó con **Seong Gi-hun** (Lee Jung-jae) después, no lo voy a escribir porque más de alguna o alguno no ha visto la serie coreana y no soy de hacer spoiler.
+Con quién hablaba, qué dijo, en qué momento lo dijo y qué pasó con **Seong Gi-hun** (Lee Jung-jae) después, no lo voy a escribir porque más de alguna o alguno no ha visto la serie coreana y no soy de spoiler.
 
 ![null](/images/uploads/peli-culasyseries-jdc-rojos-ok.jpg)
 
