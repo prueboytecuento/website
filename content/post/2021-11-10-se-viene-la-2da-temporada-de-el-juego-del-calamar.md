@@ -24,7 +24,7 @@ weight: '1'
 
 <!--more-->
 
-Con quién hablaba, qué dijo, en qué momento lo dijo y qué pasó con **Seong Gi-hun** (Lee Jung-jae) después, no lo voy a escribir porque más de alguna o alguno no ha visto la serie coreana y no soy de spoiler.
+Con quién hablaba, qué dijo, en qué momento lo dijo y qué pasó con **Seong Gi-hun** (Lee Jung-jae) después, no lo voy a escribir porque más de alguna o alguno no ha visto la serie coreana y no soy de hacer spoiler.
 
 ![null](/images/uploads/peli-culasyseries-jdc-rojos-ok.jpg)
 
