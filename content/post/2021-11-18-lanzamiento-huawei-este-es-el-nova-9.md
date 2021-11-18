@@ -69,5 +69,4 @@ Lo más curioso aún fue que el parlante tuvo el mismo problema al emparejarlo c
 
 Los expertos de la exhibición asociaron la falla a una actualización del parlante. Sea cual sea el motivo, no creo que sea un equipo que me compraría.
 
-Más información sobre estos y otros equipos Huawei, pueden encontrar en **https://consumer.huawei.com/cl/**. **\#SOYprueboytecuento
-**
+Más información sobre estos y otros equipos Huawei, pueden encontrar en **https://consumer.huawei.com/cl/**. **\#SOYprueboytecuento**
