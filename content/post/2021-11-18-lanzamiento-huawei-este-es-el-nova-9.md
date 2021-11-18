@@ -55,8 +55,6 @@ Viene con un cargador rápido (el Huawei SuperCharge de 66W), lo que significa q
 
 > **OTROS JUGUETES HUAWEI**
 
-
-
 El nuevo smartphone de la compañía china no fue el único juguetito que estaba en exhibición en el evento. Probé los nuevos **FreeBuds 4**. Estos audífonos inalámbricos hacen que tu experiencia de audio sea óptima. 
 
 
