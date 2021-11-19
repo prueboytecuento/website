@@ -23,23 +23,17 @@ weight: '1'
 ---
 **\#prueboytecuentoMÚSICA** El 7 de septiembre de 2022 el cantante se subirá al escenario del Estadio Nacional en el marco del **\#JusticeWorldTour**. No es el único. La lista de shows en vivo sigue abultándose.
 
-
-
 <!--more-->
 
-
-
-![](/images/uploads/mu-sica-justin-bieber-ppal.jpg)
+![null](/images/uploads/mu-sica-justin-bieber-ppal.jpg)
 
 Y es que la cartelera de conciertos volvió a cobrar vida después de casi 2 años congelada y las productoras de eventos están anunciando shows de artistas para distintos tipos de público.
-
-
 
 > **YA SE CONFIRMARON**
 
 \-Metallica (27 de abril 2022).
 
-\-Luis Fonsi por estos lados actualmente.
+\-Luis Fonsi por estos lados actualmente.
 
 \-Ricardo Arjona (23, 24 y 25 de agosto de 2022).
 
@@ -47,7 +41,7 @@ Y es que la cartelera de conciertos volvió a cobrar vida después de casi 2 añ
 
 \-Gorillaz (3 de mayo de 2022).
 
-![](/images/uploads/mu-sica-metallica.jpg)
+![null](/images/uploads/mu-sica-metallica.jpg)
 
 \-Myriam Hernández (4 de diciembre de 2021).
 
@@ -59,15 +53,11 @@ Y es que la cartelera de conciertos volvió a cobrar vida después de casi 2 añ
 
 Y así la lista sigue y sigue…
 
-
-
-![](/images/uploads/mu-sica-ricardo-arjona.jpg)
+![null](/images/uploads/mu-sica-ricardo-arjona.jpg)
 
 > **COORDENADAS SHOW BIEBER**
 
-
-
-\-Preventa exclusiva para clientes Banco de Chile a partir del 16 de noviembre a las 12:00pm. con un stock de 30 mil tickets. 
+\-Preventa exclusiva para clientes Banco de Chile a partir del 16 de noviembre a las 12:00pm. con un stock de 30 mil tickets. 
 
 \-20% descuento para clientes Banco de Chile: stock 20.000 tickets.
 
@@ -75,4 +65,5 @@ Y así la lista sigue y sigue…
 
 \-Tickets e info en **puntoticket.com/justin-bieber**. 
 
-Pandemia mediante lo permita, volveremos a pisar la cancha del Nacional y cuanto recinto para eventos en vivo existen. **\#SOYprueboytecuento**
+Pandemia mediante lo permita, volveremos a pisar la cancha del Nacional y cuanto recinto para eventos en vivo existen. **\#SOYprueboytecuento
+**
