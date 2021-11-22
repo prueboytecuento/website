@@ -16,7 +16,7 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-Con frecuencia aparecen las imágenes de la exhibición **Beyond Van Gogh: The Immersive Experience** en RRSS. Esas en donde el público entra a salas y puede ver el arte del holandés proyectado sobre paredes, techo y suelo.
+**\#prueboytecuentoPANORAMAS** Con frecuencia aparecen las imágenes de la exhibición Beyond Van Gogh: The Immersive Experience en RRSS. Esas en donde el público entra a salas y puede ver el arte del holandés proyectado sobre paredes, techo y suelo.
 
 <!--more-->
 
