@@ -16,7 +16,7 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-Con frecuencia aparecen las imágenes de la exhibición **Beyond Van Gogh: The Immersive Experience** en RRSS. Esas en donde el público entra a salas y puede ver el arte del holandés proyectado sobre paredes, techo y suelo.
+**\#prueboytecuentoPANORAMAS** Con frecuencia aparecen las imágenes de la exhibición Beyond Van Gogh: The Immersive Experience en RRSS. Esas en donde el público entra a salas y puede ver el arte del holandés proyectado sobre paredes, techo y suelo.
 
 <!--more-->
 
@@ -36,15 +36,13 @@ Podremos ver más de 300 trabajos del artista.
 
 **¿Dónde?** En el Movistar Arena, Santiago, de lunes a domingo entre las 09:30 y 18:00 horas.
 
-**¿Valor por precio y cargo?
-**
+**¿Valor por precio y cargo?**
 
 \-Vincent (adulto general) / Lunes a Jueves. $15.000 + $2.250.
 
 \-Vincent (adulto general) / Vie - Sab - Dom - Feriados	$20.000	+ $3.000.
 
-\-Vip The Potato Eaters* / $40.000 + $6.000
-.
+\-Vip The Potato Eaters* / $40.000 + $6.000.
 
 \-Poppies (menores de 12 años) / $9.000	+ $1.350.
 
