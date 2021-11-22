@@ -36,15 +36,13 @@ Podremos ver más de 300 trabajos del artista.
 
 **¿Dónde?** En el Movistar Arena, Santiago, de lunes a domingo entre las 09:30 y 18:00 horas.
 
-**¿Valor por precio y cargo?
-**
+**¿Valor por precio y cargo?**
 
 \-Vincent (adulto general) / Lunes a Jueves. $15.000 + $2.250.
 
 \-Vincent (adulto general) / Vie - Sab - Dom - Feriados	$20.000	+ $3.000.
 
-\-Vip The Potato Eaters* / $40.000 + $6.000
-.
+\-Vip The Potato Eaters* / $40.000 + $6.000.
 
 \-Poppies (menores de 12 años) / $9.000	+ $1.350.
 
