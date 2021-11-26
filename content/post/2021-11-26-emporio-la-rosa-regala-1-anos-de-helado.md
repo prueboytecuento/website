@@ -24,7 +24,7 @@ weight: '1'
 
 Tienen hasta el 5 de diciembre para subir un video o reel a sus RRSS (Instagram, Facebook o TikTok) tomando helado y contando su **\#MomentoEmporio**. La idea es que sea lo más lúdico posible disfrutando de una paleta, bombón, cono o vasito.
 
-Ojo que **Emporio LaRosa** no te obliga a ir por uno de sus ice cream a sus tiendas. Puedes efectivamente comprarlo en alguno de sus locales o en el supermercado o de manera online. Todos los formatos de compra son válidos.
+Ojo que **Emporio La Rosa** no te obliga a ir por uno de sus ice cream a sus tiendas. Puedes efectivamente comprarlo en alguno de sus locales o en el supermercado o de manera online. Todos los formatos de compra son válidos.
 
 Además de subir el video, tienes que escanear el códico QR que vas a encontrar en el punto en donde compres el helado y completar tus datos. Más fácil imposible.
 
