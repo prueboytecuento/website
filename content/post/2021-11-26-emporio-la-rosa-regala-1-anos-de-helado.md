@@ -14,7 +14,7 @@ categories:
   - COMER Y BEBER
 weight: '1'
 ---
-**@prueboytecuentoCOMERYBEBER** Acaban de cumplir 20 años y lo están celebrando en grande. Por lo mismo, quieren premiar a sus fieles consumidores con esos exóticos y característicos sabores a rosas, miel de ulmo, limón menta albahaca, chocolate araucano y tantos más.
+**#prueboytecuentoCOMERYBEBER** Acaban de cumplir 20 años y lo están celebrando en grande. Por lo mismo, quieren premiar a sus fieles consumidores con esos exóticos y característicos sabores a rosas, miel de ulmo, limón menta albahaca, chocolate araucano y tantos más.
 
 <!--more-->
 
