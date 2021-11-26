@@ -34,4 +34,6 @@ Además de subir el video, tienes que escanear el códico QR que vas a encontrar
 
 Les cuento además que Emporio La Rosa, una de las mejores 25 heladerías del mundo, según el portal gastronómico “The Daily Meal”, acaba de lanzar su primer helado vegano.
 
-Es de chocolate, fue hecho con leche de arroz y leche de arvejas… Es delicioso. ¿Han probado productos vegano? La mayoría son desabridos, poco apetitosos, pero este helado se pasó para bueno. Una muy buena alternativa para quienes practican el veganismo. En serio, pruébenlo. **\#SOYprueboytecuento**
+Es de chocolate, fue hecho con leche de arroz y leche de arvejas… Es delicioso. Cuando lo tomas se siente una exquisita cremosidad, es denso y pastoso. 
+
+¿Han probado productos vegano? La mayoría son desabridos, poco apetitosos, pero este helado se pasó para bueno. Una muy buena alternativa para quienes practican el veganismo. En serio, pruébenlo. **\#SOYprueboytecuento**
