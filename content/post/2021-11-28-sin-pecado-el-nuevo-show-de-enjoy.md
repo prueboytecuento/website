@@ -1,5 +1,5 @@
 ---
-title: “Sin pecado” el nuevo show de Enjoy
+title: '“Sin pecado”, el nuevo show de Enjoy'
 showonlyimage: true
 date: '2021-11-28T23:47:36-03:00'
 image: /images/uploads/panoramas-sin-pecado-ppal.jpg
