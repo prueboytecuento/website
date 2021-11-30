@@ -36,7 +36,7 @@ Vuelve también una nueva versión del tan esperado café de grano **Christmas B
 
 ![null](/images/uploads/comer-beber-starbucks-2.jpg)
 
-¿Y PARA COMER?
+> **¿Y PARA COMER?**
 
 Regresan las esperadas **Christmas Cookie** o variedad de galletas clásicas con forma de muñecos y árboles de Navidad que tienen notas de jengibre, canela y cardamomo. 
 
