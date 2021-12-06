@@ -27,7 +27,7 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 **OSTIONES A LA PARMESANA**
 
-**Ingredientes:**
+**Ingredientes**
 
 \-1 kilo de ostiones con concha.
 
@@ -41,8 +41,7 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-100 gramos de queso parmesano rallado, además de pimienta blanca y merkén a gusto.
 
-**Preparación:
-**
+**Preparación**
 
 \-Precalentar el horno a 220°C.
 
@@ -62,7 +61,7 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 **SANDWICH DE FALAFEL**
 
-**Ingredientes para el falafel:**
+**Ingredientes para el falafel**
 
 \-400 gramos de garbanzos cocidos.
 
@@ -82,8 +81,7 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-Cilantro a gusto.
 
-**Para el sandwich:
-**
+**Para el sandwich**
 
 \-2 unidades de pan focaccia o masa madre.
 
@@ -99,8 +97,7 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-Cebolla en escabeche, rúcula, aceite de oliva y semillas de girasol a gusto.
 
-**Preparación:
-**
+**Preparación**
 
 \-Precalienta el horno a 200ºC.
 
