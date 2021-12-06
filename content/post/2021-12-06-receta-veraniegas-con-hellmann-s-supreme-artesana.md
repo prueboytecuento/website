@@ -9,6 +9,8 @@ tags:
   - Comer
   - Hellmann’s Supreme Artesana
   - Recetas
+  - Verano
+  - Recetas Veraniegas
 categories:
   - COMER Y BEBER
 weight: '1'
