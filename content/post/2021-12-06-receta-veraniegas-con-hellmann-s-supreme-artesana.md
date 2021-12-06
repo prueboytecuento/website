@@ -1,5 +1,5 @@
 ---
-title: Receta veraniegas con Hellmann’s Supreme Artesana
+title: Recetas veraniegas con Hellmann’s Supreme Artesana
 showonlyimage: true
 date: '2021-12-06T10:14:59-03:00'
 image: /images/uploads/comerybeber-mayonesa.jpg
