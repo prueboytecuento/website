@@ -17,17 +17,13 @@ weight: '1'
 ---
 **\#prueboytecuentoCOMERYBEBER** ¿¡Qué tal el calor de este fin de semana!? Se pasó. Estas temperaturas no sólo invitan a estar gran parte del día en una piscina o manguerearse, sino también a comer platos frescos, fríos y livianitos. La mayo puede ser una gran partner.
 
-<!--more-->
+<!--more-->
 
-![](/images/uploads/comerybeber-mayonesa.jpg)
+![null](/images/uploads/comerybeber-mayonesa.jpg)
 
 Los muchachos de **\#Hellmann’s** nos sugieren algunas recetas bien novedosas con la versión Supreme Artesana de su mayonesa. Mayonesa que, por supuesto, probé y para que se hagan una idea es súper cremosa y consistente. No me gustan las mayonesas muy líquidas.
 
-
-
 Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árabe). Ojo con el paso a paso.
-
-
 
 **OSTIONES A LA PARMESANA**
 
@@ -45,9 +41,8 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-100 gramos de queso parmesano rallado, además de pimienta blanca y merkén a gusto.
 
-
-
-**Preparación:**
+**Preparación:
+**
 
 \-Precalentar el horno a 220°C.
 
@@ -63,9 +58,7 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-Antes de servir echarle el ciboulette y listo.
 
-
-
-![](/images/uploads/comerybeber-mayonesa2.jpg)
+![null](/images/uploads/comerybeber-mayonesa2.jpg)
 
 **SANDWICH DE FALAFEL**
 
@@ -89,9 +82,8 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-Cilantro a gusto.
 
-
-
-**Para el sandwich:**
+**Para el sandwich:
+**
 
 \-2 unidades de pan focaccia o masa madre.
 
@@ -107,9 +99,8 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 
 \-Cebolla en escabeche, rúcula, aceite de oliva y semillas de girasol a gusto.
 
-
-
-**Preparación:**
+**Preparación:
+**
 
 \-Precalienta el horno a 200ºC.
 
@@ -124,7 +115,5 @@ Son dos recetas que se hacen con ostiones y falafel (croqueta de garbanzos árab
 \-Retirar la fuente del refrigerador y rociar con aceite de oliva una lata de horno, poner el falafel y hornear durante 25 minutos o hasta que esté dorado.
 
 \-Luego, retirar y guardar hasta el montaje del sandwich.
-
-
 
 Las recetas son bien fáciles y si me preguntan a mí, la segunda se me hace más atractiva y la voy a preparar, pero además le voy a agregar aceite de sésamo, ¡ñam, ñam! **\#SOYprueboytecuento**
