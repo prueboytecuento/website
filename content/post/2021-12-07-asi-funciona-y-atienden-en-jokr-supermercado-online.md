@@ -44,5 +44,4 @@ No sé si la buena disposición de los repartidores tenga que ver con que cuenta
 
 La verdad es que me dejó bien conforme el servicio, así es que los invito a probarlo. Actualmente abastecen a las comunas de Ñuñoa y Las Condes, pero esperan cubrir otras 10 comunas a principios de 2022. 
 
-JOKR no es una empresa novata. Está presente en algunas ciudades de Europa, en Estados Unidos y países de la región como Brasil, México, Perú y Colombia. Me cuentan cómo les va con su compra, ¿bueno? #SOYprueboytecuento**
-**
+JOKR no es una empresa novata. Está presente en algunas ciudades de Europa, en Estados Unidos y países de la región como Brasil, México, Perú y Colombia. Me cuentan cómo les va con su compra, ¿bueno? **\#SOYprueboytecuento**
