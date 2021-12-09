@@ -32,9 +32,9 @@ Podremos ver más de 300 trabajos del artista.
 
 ![null](/images/uploads/panoramas-vb-2.jpg)
 
-**¿Cuándo?** Desde el 8 de diciembre al 2 de enero de 2022.
+**¿Cuándo?** Desde el 8 de diciembre al 4 de febrero de 2022.
 
-**¿Dónde?** En el Movistar Arena, Santiago, de lunes a domingo entre las 09:30 y 18:00 horas.
+**¿Dónde?** En el Movistar Arena, Santiago, de lunes a domingo entre las 09:30 y 19:30 horas.
 
 **¿Valor por precio y cargo?**
 
