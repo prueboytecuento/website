@@ -49,5 +49,4 @@ Aterrizó en las listas de "Best of" de fin de año de medios como Rolling Stone
 
 La cantante de 26 años generó múltiples sencillos de éxito en todo el mundo, incluidos los temas N°1 "Break my heart" y "Levitating" que sigue encabezando las listas y es la canción de más larga duración en la lista de reproducción Today's Top Hits de Spotify. 
 
-Y así Dua Lipa suma y sigue.
- Nos vemos el 16 de septiembre en el Bicentenario La Florida. **\#SOYprueboytecuento**
+Y así Dua Lipa suma y sigue. Nos vemos el 16 de septiembre en el Bicentenario La Florida. **\#SOYprueboytecuento**
