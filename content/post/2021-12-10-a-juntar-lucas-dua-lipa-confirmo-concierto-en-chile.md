@@ -36,8 +36,6 @@ Fue la misma **Dua Lipa** quien confirmó los shows del Future Nostalgia Tour 20
 
 
 > **COORDENADAS**
->
-> 
 
 
 
