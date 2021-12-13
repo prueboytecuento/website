@@ -38,5 +38,4 @@ Yo visité uno de poca profundidad (15 metros en el fondo del mar) y estaba sin 
 
 Otro de los atractivos de Aruba, también conocida como la One Happy Island, es el sector de San Nicolás. Cuenta con más de 80 murales de artistas locales e internacionales. De hecho, la zona sur de Aruba se ha convertido en el punto de encuentro entre los turistas y el arte callejero. Las piezas impresionan e invitan a interactuar, lo que hace que el paseo sea realmente especial e instagrameable.  
 
-Para conocer más de Aruba, visiten www.aruba.com o vayan al IG @arubabonbini. **\#SOYprueboytecuento
-**
+Para conocer más de Aruba, visiten www.aruba.com o vayan al IG @arubabonbini. **\#SOYprueboytecuento**
