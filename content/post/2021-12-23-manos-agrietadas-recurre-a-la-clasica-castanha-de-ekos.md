@@ -3,7 +3,7 @@ title: ¿Manos agrietadas? Recurre a la clásica Castanha de Ekos
 showonlyimage: true
 date: '2021-12-23T10:23:40-03:00'
 image: /images/uploads/belleza-natura-castanha.jpg
-rating: '-29'
+rating: '1'
 tags:
   - Belleza
   - Manos
