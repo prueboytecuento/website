@@ -26,11 +26,15 @@ Al grano: **MATRIZ Rotbier** es una cerveza que a medida que va cayendo sobre el
 
 No hay tiempo que perder frente a una cerveza servida ni dejar que su densa espuma (también oscura) desaparezca. Tomar ambas partes al mismo tiempo me encanta.
 
+![](/images/uploads/comer-y-beber-matriz-ppal.jpg)
+
 Se trata de una cerveza sin filtrar con su característica opacidad, de aroma frutoso y amargor moderado en boca. Al primer sorbo hay una suavidad que termina dejando la lengua algo áspera. Me gustó eso.
 
 Lo que no me gustó mucho, porque estoy acostumbrada a cervezas bien fuertes y de burbujas robustas, fueron precisamente sus burbujas livianas. Burbujas que, por cierto, pueden ser una buena alternativa para quienes se inician en las cervezas sin filtrar, se enfrentar a un amargor particular y quieren que haya suavidad en cada sorbo. 
 
 A saber, MATRIZ Rotbier además es de 5º de alcohol, o sea, aún más amable con quienes prueban esta cerveza por primera vez y los que llevan tiempo disfrutando las rotbier en bajos grados acohólicos.
+
+![](/images/uploads/comer-y-beber-matriz-cerveza.jpg)
 
 Esta cerveza artesanal fue elaborada con agua de origen termal (Región de El Maule), tanto la malta como lúpulos viene desde Alemania y su proceso de maduración se hizo en barricas de roble francés.
 
