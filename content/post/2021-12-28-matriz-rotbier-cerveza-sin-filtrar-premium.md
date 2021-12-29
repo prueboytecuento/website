@@ -14,6 +14,7 @@ tags:
   - Sur de Chile
   - Volcanes del Sur
   - Sabor
+  - Gusto
 categories:
   - COMER Y BEBER
 weight: '1'
