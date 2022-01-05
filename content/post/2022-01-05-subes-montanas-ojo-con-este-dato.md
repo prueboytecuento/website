@@ -36,4 +36,4 @@ El campamento acompañará a los montañistas durante cuatro semanas: debutó el
 
 ![](/images/uploads/eco-base-camp-el-plomo_mapa.jpg)
 
-Además la marca programó expediciones y esa información la encuentran en https://welcu.com/rimaya/base-camp-the-north-face. **\#SOYprueboytecuento**
+Además la marca programó expediciones y esa información la encuentran en https://welcu.com/rimaya/base-camp-the-north-face.  **\#SOYprueboytecuento**
