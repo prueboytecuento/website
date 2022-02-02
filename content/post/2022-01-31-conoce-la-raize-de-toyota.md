@@ -44,5 +44,4 @@ Raize tiene 4 versiones y estos son sus precios:
 * Toyota Raize E CVT: $ 14.190.000
 * Toyota Raize G CVT: $ 15.690.000
 
-Si quieren más info vayan a Toyota.cl. **\#SOYprueboytecuento
-**
+Si quieren más info vayan a Toyota.cl. **\#SOYprueboytecuento**
