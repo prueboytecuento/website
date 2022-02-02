@@ -18,7 +18,7 @@ categories:
   - COMER Y BEBER
 weight: '1'
 ---
-\#prueboytecuentoCOMERYBEBER Hace algunos días les conté que #Sow Seeds Of Wellness de Benexia no sólo tiene estas semillas en su formato original, sino que además hacen pasta, aceite, bebidas, harina y varios productos más. Yo probé 3 de ellos.
+**\#prueboytecuentoCOMERYBEBER** Hace algunos días les conté que **\#Sow** Seeds Of Wellness de **\#Benexia** no sólo tiene estas semillas en su formato original, sino que además hacen pasta, aceite, bebidas, harina y varios productos más. Yo probé 3 de ellos.
 
 <!--more-->
 
