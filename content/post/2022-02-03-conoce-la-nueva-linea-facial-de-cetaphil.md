@@ -1,5 +1,5 @@
 ---
-title: Conoce la nueva línea facial de Cetaphil
+title: Aquí la nueva línea facial de Cetaphil
 showonlyimage: true
 date: '2022-02-03T19:38:48-03:00'
 image: /images/uploads/belleza-cetaphil-ppl.jpg
