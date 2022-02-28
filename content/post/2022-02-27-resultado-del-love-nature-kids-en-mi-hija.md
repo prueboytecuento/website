@@ -26,7 +26,7 @@ weight: '1'
 
 <!--more-->
 
-A modo de ayuda memoria, les cuento que el aromático producto de la colección **Love Nature **es de uso corporal y capilar, lo que hace más rápido y fácil bañar a los niños.
+A modo de ayuda memoria, les cuento que el aromático producto de la colección **Love Nature** es de uso corporal y capilar, lo que hace más rápido y fácil bañar a los niños.
 
 ![null](/images/uploads/kids-oriflame-shampoo-ppl.jpg)
 
