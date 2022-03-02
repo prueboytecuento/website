@@ -20,7 +20,11 @@ categories:
   - BELLEZA
 weight: '1'
 ---
-**\#prueboytecuentoBELLEZA** Es de **\#Esika** y es un producto que pertenece a la línea de cuidados **\#Multicare** de la marca, pensada, entre otras cosas, el Covid-19.
+**\#prueboytecuentoBELLEZA** Es de **\#Esika** y es un producto que pertenece a la línea de cuidados **\#Multicare** de la marca para protegerse, entre otras cosas, del Covid-19.
+
+
+
+marca, para protegerse, entre otras cosas, del Covid-19.
 
 <!--more-->
 
