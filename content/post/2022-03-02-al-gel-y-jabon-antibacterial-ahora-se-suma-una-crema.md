@@ -26,32 +26,21 @@ weight: '1'
 
 Se trata de un suave, cremoso y aromático producto que no irrita las manos al usarlo. Hay muchos productos antibacteriales que actualmente están en el mercado que lamentablemente desinfectan pero dejan la piel muy irritada y seca.
 
-
-
 Creo que la mayoría hemos pagado el noviciado comprando opciones de antibacteriales que no conocemos, con tal de tener con qué “aislar” nuestras manos del Coronavirus, como medida preventiva.
 
-
-
-![](/images/uploads/belleza-esika-crema-.jpg)
+![null](/images/uploads/belleza-esika-crema-.jpg)
 
 Esta crema hidratante de manos formulada con avena (valor referencial $2.290), componente que probablemente es el responsable de tanta suavidad y que no provoque irritaciones, pertenece a una colección que además cuenta con jabón y gel.
 
-
-
 El jabón antibacterial de manos (valor referencial $2.490) es de consistencia más bien liviana. Con una pequeña cantidad las manos quedan limpias y protegidas. También está hecho con avena.
 
-
-
-![](/images/uploads/belleza-esika-jabo-n.jpg)
+![null](/images/uploads/belleza-esika-jabo-n.jpg)
 
 El gel antibacterial (valor referencial $2.290), en tanto, es más líquido de lo que estamos acostumbrados y se seca rápidamente. Glicerina es uno de sus ingredientes.
 
-
-
-![](/images/uploads/belleza-esika-gel.jpg)
+![null](/images/uploads/belleza-esika-gel.jpg)
 
 Es un buen kit de protección que, por supuesto, se puede comprar por separado. No estás obligada/obligado a comprarlo todo de una sola vez, aunque hacen un buen complemento entre si.
 
-
-
-La colección de Esika está a la venta en esika.tiendabelcorp.com. **\#SOYprueboytecuento**
+La colección de Esika está a la venta en esika.tiendabelcorp.com. **\#SOYprueboytecuento
+**
