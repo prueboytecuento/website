@@ -42,5 +42,4 @@ El gel antibacterial (valor referencial $2.290), en tanto, es más líquido de l
 
 Es un buen kit de protección que, por supuesto, se puede comprar por separado. No estás obligada/obligado a comprarlo todo de una sola vez, aunque hacen un buen complemento entre si.
 
-La colección de Esika está a la venta en esika.tiendabelcorp.com. **\#SOYprueboytecuento
-**
+La colección de Esika está a la venta en esika.tiendabelcorp.com. **\#SOYprueboytecuento**
