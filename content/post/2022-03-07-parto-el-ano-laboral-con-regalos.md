@@ -33,8 +33,7 @@ Así es que les tengo algunos regalitos para hacerles un cariñito, para que cam
 
 Me refiero a los perfumes **Far Away** y **Far Away Royale** de **Avon**, además de la mantequilla corporal **Body Butter Collection** de **Jergens**. Tres premios para una ganadora o ganador.
 
-> **¿Coordenadas?
-> **
+> **¿Coordenadas?**
 
 \-**SEGUIR** Pruebo y te cuento en sus RRSS: IG @prueboytecuento y FB Pruebo y te cuento.
 
