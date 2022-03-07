@@ -2,7 +2,7 @@
 title: Parto el año laboral con regalos
 showonlyimage: true
 date: '2022-03-07T18:54:26-03:00'
-image: /images/uploads/concurso-marzook.jpg
+image: /images/uploads/concurso-mes-de-marzo.jpg
 rating: '1'
 tags:
   - Concurso
@@ -29,7 +29,7 @@ Porque, claro, pienso en ustedes y en mí. Pienso en que este es el mes más dur
 
 Así es que les tengo algunos regalitos para hacerles un cariñito, para que cambien el switch y resalten aún más su belleza.
 
-![null](/images/uploads/concurso-marzook.jpg)
+![null](/images/uploads/concurso-mes-de-marzo.jpg)
 
 Me refiero a los perfumes **Far Away** y **Far Away Royale** de **Avon**, además de la mantequilla corporal **Body Butter Collection** de **Jergens**. Tres premios para una ganadora o ganador.
 
