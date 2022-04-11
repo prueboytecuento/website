@@ -38,5 +38,4 @@ Llegamos al cine y con el pasar de los minutos me relajé y comencé a disfrutar
 
 Ojo, no estoy invitándolos ni invitándolas a hacer lo mismo, sino contándoles mi experiencia y que retomar viejas actividades está bien.
 
-No soy de las que va al cine seguido, pero valió la pena cuando vi la carita de felicidad de mi hija… Me atreví. **\#SOYprueboytecuento
-**
+No soy de las que va al cine seguido, pero valió la pena cuando vi la carita de felicidad de mi hija… Me atreví. **\#SOYprueboytecuento**
