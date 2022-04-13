@@ -58,6 +58,6 @@ En su interior hay trozos de pollo grillado, un slice de jamón de pollo y queso
 
 La quinta y última novedad de la cafetería es el **Iced Chocolate Avena Shaken Espresso**, una bebida helada y chocolatosa que mezcla espresso batido con salsa de mocha y cubierto con avena.
 
-Es espeso, el chocolate se roba el protagonismo, marca la mezcla de sabores y se asemeja a la leche con chocolate, pero mezclada con cafecito.  Muy agradable en el paladar.
+Es espeso, el chocolate se roba el protagonismo, marca la mezcla de sabores y se asemeja a la leche con chocolate, pero mezclada con cafecito.  Muy agradable en paladar.
 
 Si son de los que gustan experimentar sabores nuevos o quieren atreverse con preparaciones keto y veganas aquí hay opciones. Me cuentan si las prueban y les gustan o no, ¿bueno? **\#soyprueboytecuento**
