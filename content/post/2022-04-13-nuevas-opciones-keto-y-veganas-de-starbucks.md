@@ -64,7 +64,7 @@ En su interior hay trozos de pollo grillado, un slice de jamón de pollo y queso
 
 La quinta y última novedad de la cafetería es el **Iced Chocolate Avena Shaken Espresso**, una bebida helada y chocolatosa que mezcla espresso batido con salsa de mocha y cubierto con avena.
 
-
+![](/images/uploads/comerybeber-starbuks-oton-o-iced-chocolate.jpg)
 
 Es espeso, el chocolate se roba el protagonismo, marca la mezcla de sabores y se asemeja a la leche con chocolate, pero mezclada con cafecito.  Muy agradable en paladar.
 
