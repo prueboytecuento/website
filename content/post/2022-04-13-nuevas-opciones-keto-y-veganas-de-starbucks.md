@@ -36,6 +36,8 @@ Lo último de **\#Starbucks** son preparaciones que se suman a la apuesta keto y
 
 Me refiero, por ejemplo, al **Avena Cocoa Macchiato** que es una de las bebidas calientes. Una bebida cremosa, contundente y en donde la cocoa (subproducto en polvo del cacao) está súper presente con un grado de amargor que me gustó harto.
 
+![](/images/uploads/comerybeber-starbucks-oton-o-cocoa.jpg)
+
 No es, en ningún caso, una bebida extremadamente dulce, como ocurre con las que tienen chocolate de leche, que son ricas, pero esta la amé. Y amé la consistencia cremosa que le da la avena.
 
 Los que me leen hace tiempo saben que soy una gran consumidora de café, por lo tanto, el café no puede perder protagonismo en el paladar y aquí no lo pierde. Buen juego de sabores entre la cantidad de cocoa y shot de café.
