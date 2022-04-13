@@ -50,15 +50,21 @@ Si de textura se trata, esta es arenosa. Muy parecida a la masa del pie de limó
 
 Hay una preparación fría que se llama **Iced Avellana de Avena Shaken Espresso**, en donde el jarabe de este fruto seco es equilibrado. No hay nada peor que brebajes empalagosos y ello suele ocurrir con los que se hacen con jarabes.
 
+![](/images/uploads/comerybeber-starbucks-oton-o-avellana.jpg)
+
 En cuanto a la avena, su sabor es más leve que en el Avena Cocoa Macchiato y menos cremosa. Acá estamos frente a una bebida más líquida, refrescante. 
 
 Si tuviera que escoger lo mejor de estas nuevas propuestas Starbucks, sin duda, esa sería el **Keto Chicken Melt**. Qué emparedado más sabroso.
 
 Para empezar, está hecho sobre un esponjoso y gordito pan nube (hecho con queso crema y huevo). Cuando digo gordito, me refiero a mucho mucho huevo. Cosa más rica.
 
+![](/images/uploads/comerybeber-starbucks-oton-o-keto.jpg)
+
 En su interior hay trozos de pollo grillado, un slice de jamón de pollo y queso cheddar. Se mueren lo rica que es la mezcla de sabores después de pasar por el honor. Se puede comer frío, pero tibio es aún más sabroso.
 
 La quinta y última novedad de la cafetería es el **Iced Chocolate Avena Shaken Espresso**, una bebida helada y chocolatosa que mezcla espresso batido con salsa de mocha y cubierto con avena.
+
+
 
 Es espeso, el chocolate se roba el protagonismo, marca la mezcla de sabores y se asemeja a la leche con chocolate, pero mezclada con cafecito.  Muy agradable en paladar.
 
