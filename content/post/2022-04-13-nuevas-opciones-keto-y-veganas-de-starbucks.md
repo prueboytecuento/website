@@ -28,7 +28,7 @@ categories:
   - COMER Y BEBER
 weight: '1'
 ---
-**\#prueboytecuentoCOMERYBEBER** La cadena de cafeterías internacional partió el otoño chileno con nuevas alternativas en su carta y, por supuesto, fui a probarlas todas. ¡TODAS!
+**\#prueboytecuentoCOMERYBEBER** La cadena de cafeterías internacional partió el otoño chileno con nuevas alternativas en su carta y, por supuesto, fui a probarlas todas. **¡TODAS!**
 
 <!--more-->
 
