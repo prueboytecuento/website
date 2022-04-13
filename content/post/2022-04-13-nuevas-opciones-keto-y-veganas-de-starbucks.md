@@ -46,6 +46,8 @@ Sigo con el brownie **Blondie Vegano Avena**, una preparación ideal para los am
 
 Es de matequilla de maní con trozos de maní en su interior y más maní en su superficie. Lo anterior, sumado a chocolate en su interior y salsa de chocolate encima.
 
+![](/images/uploads/comerybeber-starbucks-oton-o-brownie.jpg)
+
 Si de textura se trata, esta es arenosa. Muy parecida a la masa del pie de limón. Un postre blandito, de rico sabor, aunque demasiado aceitoso. Sí o sí tienes que comerte el brownie con cubierto. Insisto, un postre ideal para los que gustan del maní. Se come calientito.
 
 Hay una preparación fría que se llama **Iced Avellana de Avena Shaken Espresso**, en donde el jarabe de este fruto seco es equilibrado. No hay nada peor que brebajes empalagosos y ello suele ocurrir con los que se hacen con jarabes.
