@@ -17,9 +17,11 @@ weight: '1'
 ---
 **\#prueboytecuentoMÚSICA** Una de las voces más queridas del pop español regresa a nuestro país para presentarse en vivo el próximo sábado 12 de noviembre.
 
+<!--more-->
+
 Porque #VolvieronLosConciertos y Ana Torroja se subirá al escenario del Gran Arena Monticello en el marco de la gira "Volver".
 
-![](/images/uploads/ana-torroja.jpg)
+![null](/images/uploads/ana-torroja.jpg)
 
 El espectáculo incluirá canciones de su nuevo disco “Mil Razones” y los grandes éxitos que la han hecho mundialmente conocida. 
 
