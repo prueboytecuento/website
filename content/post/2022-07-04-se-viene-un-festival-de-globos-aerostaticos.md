@@ -23,12 +23,12 @@ weight: '1'
 
 Ver el mundo desde las alturas arriba de un globo aerostático sería un sueño, ver un puñado de globos elevándose, alucinante. Bueno, eso va a pasar en Chile el 6, 7 y 8 de enero de 2023.
 
-![](/images/uploads/panoramas-globos-a-ppalok.jpg)
+![null](/images/uploads/panoramas-globos-a-ppalok.jpg)
 
 Se trata del **“Festival Internacional del Globo”** anunciado por el gobernador de la Región Metropolitana, Claudio Orrego.
 
 Se elevarán 52 globos, cada uno representando a una comuna de la RM, más un globo del Gobierno Regional. Qué tal?!
 
-¿La mejor parte? Habrá tres dirigibles para organizar vuelos y paseos familiares. Para hacer posible estos vuelos, se hizo una alianza público-privada cuyo costo es de $1.629 millones, de los cuales, $600 millones serán aportados por el Gobierno Regional Metropolitano de Santiago.
+¿La mejor parte? Habrá tres dirigibles para organizar vuelos y paseos familiares. Para hacer posible estos vuelos, se hizo una alianza público-privada cuyo costo es de $1.629 millones, de los cuales $600 millones serán aportados por el Gobierno Regional Metropolitano de Santiago.
 
 El evento se celebrará en la comuna de Colina y se calcula que convocará a unas 300 mil personas. A juntar ganas hasta el primer mes de vacaciones de los chilenos. **\#SOYprueboytecuento**
