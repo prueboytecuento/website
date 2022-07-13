@@ -35,7 +35,7 @@ weight: '1'
 
 Falabella sumó a su market place 6.000 productos para mascotas, muchos de ellos de emprendedores, y entrar a ese mundo que nunca antes había sido explorado por el retail, no sólo los familiarizó con esa área, sino que además los llevó a involucrarse, por ejemplo, en iniciativas como esta.
 
-“Años dorados” es un programa para “rehabilitación física y conductual para todos los perritos viejtos que tenemos en la fundación, que son 7”, dice Javiera González, directora de Fundación Huella Animal. “Van a todos sus tratamientos con etólogos, fisiatras, traumatólogos para tener una mejor calidad de vida”, sostiene. 
+“Años dorados” es un programa para “rehabilitación física y conductual para todos los perritos viejitos que tenemos en la fundación, que son 7”, dice Javiera González, directora de Fundación Huella Animal. “Van a todos sus tratamientos con etólogos, fisiatras, traumatólogos para tener una mejor calidad de vida”, sostiene. 
 
 ![null](/images/uploads/dato-mascota-2ok.jpg)
 
