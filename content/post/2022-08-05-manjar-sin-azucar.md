@@ -38,5 +38,4 @@ Le gustó la consistencia, aunque echó de menos más dulzor. Para mí el dulzor
 
 Es espeso, sabroso y, lo más importante, no se siente el sabor del endulzante. En este caso de la sucralosa. No hay nada peor que comerse cualquier producto dulce sintiendo el sabor artificial.
 
-Lo encuentro ideal para hacer alfajores o comérselo con frutas. Lo volvería a comer. El manjar viene en un frasco de vidrio de 340 gramos y su valor referencial es de $3.390. **\#SOYprueboytecuento
-**
+Lo encuentro ideal para hacer alfajores o comérselo con frutas. Lo volvería a comer. El manjar viene en un frasco de vidrio de 340 gramos y su valor referencial es de $3.390. **\#SOYprueboytecuento**
