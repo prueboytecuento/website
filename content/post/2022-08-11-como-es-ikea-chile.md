@@ -54,13 +54,13 @@ Para la cocina hay hartos utensilios útiles, como las tapas planas de silicona 
 
 ¿Usan clips para cerrar bolsas? Yo uso los mismos de la foto. Son de los grandes, vienen 10 y valen $990. Las bandejas para el cubierto están a $1.990.
 
-![](/images/uploads/deco-ikea-pata-clip-cubierto.jpg)
+![null](/images/uploads/deco-ikea-pata-clip-cubierto.jpg)
 
 Si buscan un basurero para el escritorio o baño (el modelo sirve para ambos casos), hay uno con forma de cono, blanco que está a $1.490. El pack de 10 colgadores de ropa lo encuentran a $1.990, etc.
 
 Me gustaron mucho las repisas y cajas organizadoras. Hay varios modelos y tamaños. 
 
-![](/images/uploads/deco-ikea-repisas.jpg)
+![null](/images/uploads/deco-ikea-repisas.jpg)
 
 Por supuesto, no alcancé a ver todo porque son 15.000m2 de superficie total distribuidos en 2 pisos, pero si tuviera que escoger algunos productos, me encantaron la vitrina blanca, los archivadores de mimbre y el diseño completo de la cocina de la foto principal. ¡La a-m-e!
 
@@ -70,5 +70,4 @@ Como el recorrido el largo y agotador, dentro de la misma tienda hay un restaura
 
 ![null](/images/uploads/deco-ikea-livings.jpg)
 
-Resumo en que Ikea Chile es una tremenda experiencia y si les gusta la decoración, están armando la casa, una pieza, remodelando el baño, etc. ir a la tienda puede ser una gran oportunidad novedad-calidad-precio. **\#SOYprueboytecuento
-**
+Resumo en que Ikea Chile es una tremenda experiencia y si les gusta la decoración, están armando la casa, una pieza, remodelando el baño, etc. ir a la tienda puede ser una gran oportunidad novedad-calidad-precio. **\#SOYprueboytecuento**
