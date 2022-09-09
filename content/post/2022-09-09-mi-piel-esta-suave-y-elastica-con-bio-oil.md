@@ -23,7 +23,7 @@ weight: '1'
 
 Soy, ya lo saben, de las mujeres que aman las cremas, que usa una distinta para las piernas y brazos, pies, cuello, rostro, uñas y cada centímetro de mi humanidad. Para mi abdomen, vientre y caderas, estoy con lo nuevo de **\#BioOil**. ¿Por qué? Porque su humectación es espectacular.
 
-Es muy agradable aplicarlo o aplicarlo y masajear, que es lo que hago yo, porque hay que aprovechar que el aceite es consistente, para nada acuoso, es muy suave y la piel de inmediato empieza a hidratarse. Ojo, hidrata y se absorbe de inmediato. No mancha la ropa.
+Es muy agradable aplicarlo o aplicarlo y masajear, que es lo que hago yo, porque hay que aprovechar que el aceite es consistente, para nada acuoso, es muy suave y la piel de inmediato empieza a hidratarse. Ojo, se hidrata y se absorbe de inmediato. No mancha la ropa.
 
 Se nota cuando te haces masajes más profundos. Yo estoy súper contenta porque justo arriba del ombligo tengo algunas arruguitas de celulitis que odio, que se marcan, pero que se están atenuando. 
 
