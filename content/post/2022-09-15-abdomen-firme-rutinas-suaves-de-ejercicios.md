@@ -24,7 +24,7 @@ weight: '1'
 
 ¿Por qué? Durante el 2021, Marido (@kleberos) y yo decidimos dejar por un tiempo los carbohidratos (si lo hacen que sea bajo supervisión médica) y bajamos: él 21 kilos y yo 23. 
 
-![](/images/uploads/fitness-ejercicios-1-ppal.jpg)
+![null](/images/uploads/fitness-ejercicios-1-ppal.jpg)
 
 Ese proceso lo acompañamos con ejercicios que, por supuesto, nos costó realizar por la falta de costumbre, pero ahora nos es más fácil.
 
@@ -34,7 +34,7 @@ Hace unos días les dejé un REEL con algunos ejercicios muy simples para trabaj
 
 Paso a detallar los ejercicios y para que los entiendan mejor, pueden ver el REEL adjunto. **(REEL https://bit.ly/3ROaQIc)**
 
-
+![](/images/uploads/fitness-ejercicios-pierna-arriba-y-abajo.jpg)
 
 > **EJERCICIOS DE COSTADO**
 
