@@ -34,7 +34,7 @@ Hace unos días les dejé un REEL con algunos ejercicios muy simples para trabaj
 
 Paso a detallar los ejercicios y para que los entiendan mejor, pueden ver el REEL adjunto. **(REEL https://bit.ly/3ROaQIc)**
 
-![](/images/uploads/fitness-ejercicios-pierna-arriba-y-abajo.jpg)
+![null](/images/uploads/fitness-ejercicios-pierna-arriba-y-abajo.jpg)
 
 > **EJERCICIOS DE COSTADO**
 
@@ -46,15 +46,21 @@ Ojo, cuando hagan cualquier ejercicio de piernas, siempre háganlos con el taló
 
 Si quieren, después de las repeticiones, pueden quedarse con la pierna arriba y hacer subidas y bajadas cortitas.
 
+![](/images/uploads/fitness-ejercicios-1-elevacio-n-cintura.jpg)
+
 > **ELEVACIÓN DE CINTURA**
 
 Es simple. Recuéstense en el piso boca arriba con las piernas flectadas, pies pegados al piso y eleven la pelvis. Traten de levantar lo menos posible la espalda para hacer bien el ejercicio, no terminar adoloridos y que el trabajo sea en el abdomen.
+
+![](/images/uploads/fitness-ejercicios-1-excavadora.jpg)
 
 > **LA EXCAVADORA**
 
 Ya recostados en el suelo y las piernas levantadas, empiecen a bajarlas y devolverlas hacia el cuerpo sin tocar el suelo. Debe ser un movimiento constante. 
 
 Mi hija Rafaela (9) bautizó el movimiento como excavadora porque es muy parecido. Cuesta, pero se puede.
+
+![](/images/uploads/fitness-ejercicios-1-ambas-piernas-abajo.jpg)
 
 > **ROTACIÓN A LOS COSTADOS**
 
