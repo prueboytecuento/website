@@ -27,26 +27,16 @@ weight: '1'
 
 Es una especie de leche corporal que viene en spray, lo que facilita su uso. Es de textura lechosa y consistente. Al aplicar el serum inmediatamente te das cuenta que está humectando la piel.
 
-![](/images/uploads/belleza-cetaphil-sol-ppal.jpg)
-
- 
+![null](/images/uploads/belleza-cetaphil-sol-ppal.jpg)
 
 Como mi piel está morena, cualquier tipo de crema se absorbe rápidamente. Esta también pero deja una capa aterciopelada que ayuda a que la humectación sea más prolongada.
 
-
-
 Ojo que esa capa de crema no deja la piel grasosa, punto no menor, porque nadie quiere la ropa manchada.
-
-
 
 \#OptimalHydration, al igual que todos los productos **Cetaphil**, es hipoalergénica por lo tanto no debería irritar la piel de ninguno de nosotros. Mi experiencia hasta ahora es mi piel sin daños.
 
-
-
-![](/images/uploads/belleza-cetaphil-sol2.jpg)
+![null](/images/uploads/belleza-cetaphil-sol2.jpg)
 
 Lo anterior, me imagino, es porque entre sus componente hay HydroSensitiv Complex, que aumenta el contenido de agua de la piel y alivia su sensibilidad.
 
-
-
-La Optimal Hydration de Cetaphil viene el formado de 207ml y su valor referencial es de $32.000. **\#SOYprueboytecuento**
+La Optimal Hydration de Cetaphil viene en formato de 207ml y su valor referencial es de $32.000. **\#SOYprueboytecuento**
