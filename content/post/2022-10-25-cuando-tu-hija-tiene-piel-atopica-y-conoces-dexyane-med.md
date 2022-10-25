@@ -16,7 +16,7 @@ tags:
   - sensibilidad
   - Piel Reseca
 categories:
-  - BELLEZA
+  - KIDS
 weight: '1'
 ---
 **\#prueboytecuentoBELLEZA** La piel de mi hija Rafaela (9) es extremadamente seca y desde niña se la cuidamos con cremas, shampoo y jabones especiales. **\#Ducray** es una marca especializada en pieles sensibles y la estamos probando.
