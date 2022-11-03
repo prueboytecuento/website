@@ -37,10 +37,10 @@ Si lo que uno quiere es saborear algo recién salido del horno o, al menos, prep
 
 ![null](/images/uploads/comerybeber-lider-qq3.jpg)
 
-La verdad es que pensé que había sido un error del supermercado, pero me encontré con varios queques en la misma situación, tartas sin fecha, otros queques sólo con fecha de vencimiento, etc. Le pregunté a dos chicas del supermercado y sólo me dijeron que no sabían.
+La verdad es que pensé que había sido un error del supermercado, pero me encontré con varios queques, tartas sin fecha, otros queques sólo con fecha de vencimiento, etc. Le pregunté a dos chicas del supermercado y sólo me dijeron que no sabían.
 
 ![null](/images/uploads/comerybeber-lider-qq-jumbo.jpg)
 
-Cuento corto, me fui al **\#Jumbo** y compré un queque hecho en el día. Tema solucionado para mí y tema no mejor para los que también vamos al Lider, porque a veces se nos pasa y no miramos las fechas de vencimiento. Cuidado ahí.
+Cuento corto, me fui al **\#Jumbo** de Bilbao y compré un queque hecho en el día. Tema solucionado para mí y tema no mejor para los que también vamos al Lider, porque a veces se nos pasa y no miramos las fechas de vencimiento. Cuidado ahí.
 
 ¿Y a ustedes les ha pasado algo similar? **\#SOYprueboytecuento**
