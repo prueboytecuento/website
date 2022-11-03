@@ -19,7 +19,7 @@ categories:
   - COMER Y BEBER
 weight: '1'
 ---
-**\#prueboytecuentoCOMERYBEBER** Ayer, 2 de noviembre, en el sector de reportería del conocido supermercado me encontré una serie de pasteles con fechas de elaboración viejas y vencimientos eternos. Asco.
+**\#prueboytecuentoCOMERYBEBER** Ayer, 2 de noviembre, en el sector de repostería del conocido supermercado me encontré una serie de pasteles con fechas de elaboración viejas y vencimientos eternos. Asco.
 
 <!--more-->
 
