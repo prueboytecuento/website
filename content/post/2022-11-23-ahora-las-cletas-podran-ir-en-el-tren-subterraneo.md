@@ -1,7 +1,7 @@
 ---
 title: Ahora las cletas podrán ir en el tren subterráneo
 showonlyimage: true
-date: '2022-11-23T10:23:39-03:00'
+date: '2022-11-22T10:23:39-03:00'
 image: /images/uploads/dato-bicismetro.jpg
 rating: '1'
 tags:
