@@ -29,14 +29,13 @@ Y, claro, en tiempos en donde lentamente las mujeres han empezado a aceptarse ta
 
 La cosa fue la siguiente: una seguidora -que la miraba mostrar un blusón bien bonito- le dijo "necesitamos ropa extra extra large".
 
-![](/images/uploads/moda-bolocco-collage.jpg)
+![null](/images/uploads/moda-bolocco-collage.jpg)
 
 "Este (Cecilia abre el blusón) llega hasta el extra large y van a ver lo grande que es. Así es que yo no sé, si más grande que extra large, pensando que esto es medium… **Si ustedes creen que necesitan más talla, yo creo que lo que necesitan es comer menos, ¿ya? Se los digo con amor**”. ¡¿Qué onda Cecilia Carolina?! Se desubicó mal. 
 
-
 Ese sólo comentario podría gatillar complejos en muchas chicas, que empiecen a hacer dietas sin supervisión médica, etc. 
 
-"Hagan un ayuno intermitente, alguna cosa, porque tan tan grande, no... Entradita en carne es rico, porque incluso a muchos hombres también les gusta, ¿no cierto, mis amores? ¿Mis preciosos hombres que están ahí?", siguió ella.
+"Hagan un ayuno intermitente, alguna cosa, porque tan tan grande, no... Entradita en carne es rico, porque incluso a muchos hombres también les gusta, ¿no cierto, mis amores? Mis preciosos hombres que están ahí", siguió ella.
 
 Y con el remate sobre el “éxito con los muchachos” la embarró más. **"Cuéntenle a las chicas que hay muchos de ustedes que les gustan las mujeres entradas en carne, así es que confiésenlo. Pero extra extra large, así tan tan tan grande, de repente no es sano, no es bueno. Por eso se los digo y porque van a tener más éxito con los muchachos"**, manifestó.
 
