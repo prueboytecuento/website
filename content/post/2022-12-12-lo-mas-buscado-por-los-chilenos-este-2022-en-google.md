@@ -71,7 +71,7 @@ weight: '1'
 
 ![null](/images/uploads/dato-google-shakiraok.jpg)
 
-> **NOTICIAS**
+NOTICIAS
 
 * Guerra Ucrania.
 * Apertura Ikea.
