@@ -25,9 +25,7 @@ weight: '1'
 
 <!--more-->
 
-> **PALABRAS que marcaron tendencia**
->
-> 
+> **PALABRAS que marcaron tendencia** 
 
 * Bono Invierno.
 * Pase de Movilidad.
@@ -40,13 +38,9 @@ weight: '1'
 * Viruela del Mono.
 * Rusia.
 
- 
-
-![](/images/uploads/dato-google-ppal.jpg)
+![null](/images/uploads/dato-google-ppal.jpg)
 
 > **PERSONAJES y PERSONALIDADES**
->
-> 
 
 * Daddy Yankee.
 * Alejandro Tabilo.
@@ -59,11 +53,10 @@ weight: '1'
 * Marcianeke.
 * Vladimir Putin.
 
+![null](/images/uploads/dato-google-ucrania.jpg)
 
-
-![](/images/uploads/dato-google-ucrania.jpg)
-
-> **PREGUNTAS FRECUENTES**
+> **PREGUNTAS FRECUENTES**_
+> _
 
 * ¿Qué es la OTAN?
 * ¿Qué es TPP11?
@@ -76,13 +69,9 @@ weight: '1'
 * ¿Qué es flurona?
 * ¿Qué es litio?
 
-
-
-![](/images/uploads/dato-google-shakiraok.jpg)
+![null](/images/uploads/dato-google-shakiraok.jpg)
 
 > **NOTICIAS**
->
-> 
 
 * Guerra Ucrania.
 * Apertura Ikea.
@@ -95,11 +84,7 @@ weight: '1'
 * Precio aceite.
 * Cambio de Mando.
 
-
-
 > **FÚTBOL**
->
-> 
 
 * Flamengo.
 * Clasificatorias Qatar 2022.
@@ -112,13 +97,9 @@ weight: '1'
 * Norwich.
 * Villareal.
 
-
-
-![](/images/uploads/dato-google-flamengo.jpg)
+![null](/images/uploads/dato-google-flamengo.jpg)
 
 > **Sobre la pregunta ¿CÓMO?**
->
-> 
 
 * ¿Cómo saber si soy Vocal de Mesa?
 * ¿Cómo sacar Pase de Movilidad?
@@ -130,7 +111,5 @@ weight: '1'
 * ¿Cómo postular al IFE laboral?
 * ¿Cómo murió Jeffrey Dahmer?
 * ¿Cómo van las votaciones?
-
-
 
 Y así la lista de categorías continúa, pero yo llego hasta acá. ¿Están en algunas de las búsquedas? Yo en **Guerra Ucrania Rusia**, **Ikea**, **Johnny Depp**, **OTAN** y otras. **\#SOYprueboytecuento**
