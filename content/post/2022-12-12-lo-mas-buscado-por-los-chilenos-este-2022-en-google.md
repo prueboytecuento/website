@@ -25,7 +25,7 @@ weight: '1'
 
 <!--more-->
 
-> **PALABRAS que marcaron tendencia** 
+> **PALABRAS que marcaron tendencia en Chile**
 
 * Bono Invierno.
 * Pase de Movilidad.
