@@ -64,7 +64,7 @@ weight: '1'
 * ¿Qué es PGU?
 * ¿Qué es edecan?
 * ¿Qué es un NFT?
-* ¿Qué es la viruela del Mono?
+* ¿Qué es la Viruela del Mono?
 * ¿Qué es flurona?
 * ¿Qué es litio?
 
