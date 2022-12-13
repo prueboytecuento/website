@@ -55,8 +55,7 @@ weight: '1'
 
 ![null](/images/uploads/dato-google-ucrania.jpg)
 
-> **PREGUNTAS FRECUENTES**_
-> _
+> **PREGUNTAS FRECUENTES**
 
 * ¿Qué es la OTAN?
 * ¿Qué es TPP11?
@@ -71,7 +70,7 @@ weight: '1'
 
 ![null](/images/uploads/dato-google-shakiraok.jpg)
 
-NOTICIAS
+> **NOTICIAS**
 
 * Guerra Ucrania.
 * Apertura Ikea.
