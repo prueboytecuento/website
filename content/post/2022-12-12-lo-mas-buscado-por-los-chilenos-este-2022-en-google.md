@@ -25,7 +25,7 @@ weight: '1'
 
 <!--more-->
 
-> **PALABRAS que marcaron tendencia** 
+> **PALABRAS que marcaron tendencia en Chile**
 
 * Bono Invierno.
 * Pase de Movilidad.
@@ -64,7 +64,7 @@ weight: '1'
 * ¿Qué es PGU?
 * ¿Qué es edecan?
 * ¿Qué es un NFT?
-* ¿Qué es la viruela del Mono?
+* ¿Qué es la Viruela del Mono?
 * ¿Qué es flurona?
 * ¿Qué es litio?
 
