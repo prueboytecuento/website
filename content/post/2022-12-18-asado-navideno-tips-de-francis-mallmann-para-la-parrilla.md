@@ -51,7 +51,11 @@ Ahora entiendo por qué los bistecs me quedaban duros en los bordes. Siempre pon
 
 Durante la Master Class probamos varios cortes y todos estaban exquisitos. Mis favoritos: un Tomahawk más bien rojo, jugos, sabroso. Y una entraña a la plancha súper blanda y sangrante. Me encanta la carne y creo que nunca en mi vida había probado tantos cortes en sólo una jornada.
 
+![](/images/uploads/comerybeber-francis4.jpg)
+
 * Si tuviera que escoger algunos cortes, #Mallmann -que dirige restaurantes como “Garzón” en Uruguay, “Patagonia Sur”,  “Francis Mallmann 1884”, “Kaiken Ramos Generales” y “7 Fuegos” en Argentina, y “Fuegos de Apalta” en Chile- va por la Entraña, Tira, Punta Ganso y Lomo Vetado.
 * El Lomo Vetado está entre sus cortes regalones y dice que se cocina 14 minutos: 10 del primer lado, se sube el calor y se da vuelta para terminar la cocción y darle un toque crocante al segundo lado.
+
+![](/images/uploads/comerybeber-francis6.jpg)
 
 Datos entregadísimos. Ahora a ponerse el delantal y a cancherear en la parrilla. Los **\#DOSH** (De Oliveira Santos Hernández) vamos por nuestro asadito navideño con todo el entusiasmo, hambre y dispuestos a saborear lo que resulte… Estoy segura que la vamos a romper, jajajá. **\#SOYprueboytecuento**
