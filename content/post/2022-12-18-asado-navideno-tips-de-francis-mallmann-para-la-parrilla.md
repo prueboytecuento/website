@@ -43,7 +43,7 @@ Dicho esto, no pudo ser más oportuno haber participado en una Master Class de *
 * La carne se sala antes de empezar el asado. Él usa sal de mar y no otra en granos, porque la de mar se derrite sobre el animal e impregna. En el último tiempo ha optado por salarla poco y adjuntar, por ejemplo, un chimichurri para que los asistentes a sus restaurantes vivan experiencias de sabores.
 * El trasandino sostiene que para que un asado quede en un buen punto, debe tener una cocción de un 75% por un lado y un 25% por el otro. Me atrevería a decir que la mayoría de los parrilleros caseros lo hacen al ojo.
 
-![]()
+![](/images/uploads/comerybeber-francis3.jpg)
 
 * Los trozos de carne nunca deben tocarse. Sea en la parrilla, plancha, sartén, etc. ¿Por qué? Porque se hierven y se produce una humedad. Hay que dejar que el calor entre por todos lados.
 
