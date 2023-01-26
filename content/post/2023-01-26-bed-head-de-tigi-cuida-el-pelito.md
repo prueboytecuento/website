@@ -6,7 +6,17 @@ image: /images/uploads/belleza-tigi-ppal.jpg
 rating: '1'
 tags:
   - Pelo
-  - ''
+  - Hair
+  - Belleza
+  - Cuidado Capilar
+  - Look
+  - Suave
+  - Esponjoso
+  - Brillo
+  - Opaco
+  - Frizz
+  - Bed Head de Tigi
+  - After Party
 categories:
   - BELLEZA
 weight: '1'
