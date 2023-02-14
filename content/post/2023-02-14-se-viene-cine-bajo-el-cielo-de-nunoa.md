@@ -16,7 +16,7 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-**\#prueboytecuentoPANORAMA** Tarde-noche, clima templado, verano y ganas de relajarse son elementos que se conjugan perfectos para, por ejemplo, ver una buena película y **\#Riivi** armó tremendo panorama.
+**\#prueboytecuentoPANORAMAS** Tarde-noche, clima templado, verano y ganas de relajarse son elementos que se conjugan perfectos para, por ejemplo, ver una buena película y **\#Riivi** armó tremendo panorama.
 
 <!--more-->
 
