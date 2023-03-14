@@ -1,5 +1,5 @@
 ---
-title: 'Se viene otra experiencia inversiva: Egipto'
+title: 'Se viene otra experiencia inmersiva: Egipto'
 showonlyimage: true
 date: '2023-03-14T11:52:50-03:00'
 image: /images/uploads/panoramas-egipto-papirosok.jpg
