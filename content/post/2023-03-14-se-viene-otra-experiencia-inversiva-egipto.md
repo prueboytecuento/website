@@ -22,18 +22,18 @@ Las muestras “Meet Vincent Van Gogh” y “Beyond Van Gogh: The Immersive Exp
 
 <!--more-->
 
-![](/images/uploads/panoramas-egipto-papirosok.jpg)
+![null](/images/uploads/panoramas-egipto-papirosok.jpg)
 
 Bajo el nombre **“Egipto, The Experience”**, se inaugurará el próximo 6 de abril una muestra que incluirá sarcófagos, momias, esfinges e incluso una máscara de Tutankamón… Egipto en SCL.
 
 Piezas de museo, pero también esas piezas que podremos ver de manera virtual. Recorrido virtual y puntualmente esa experiencia inmersiva que tanto nos ha cautivado por su realismo.
 
-![](/images/uploads/panoramas-egipto-sarco-fagook.jpg)
+![null](/images/uploads/panoramas-egipto-sarco-fagook.jpg)
 
 Qué buena oportunidad para conocer algo más de la cultura egipcia. Hace unos años fuimos en familia a una exposición sobre Egipto al Centro Cultural Palacio de la Moneda y mi Rafaela (9), que le encanta el tema, se desencantó. Se aburrió mirando las piezas. Hacía falta darle vida a la forma de presentar la cultura.
 
 “Egipto, The Experience”, se realizará en **Centro X**, nueva área de muestras de **Mallplaza Los Dominicos**.
 
-![](/images/uploads/panoramas-egipto-guardianesok.jpg)
+![null](/images/uploads/panoramas-egipto-guardianesok.jpg)
 
 En **Ticketplus** están los valores y venta de entradas. Ojo que los tickets tienen un 25% de descuento hasta el 31 de marzo o hasta agotar stock, y los clientes con tarjetas BCI un 25% de descuento adicional. **\#SOYprueboytecuento**
