@@ -21,9 +21,9 @@ weight: '1'
 ---
 **\#prueboytecuentoBELLEZA** Si hay algo que no soporto es tomarme el pelo y que en mi frente quede con pelusas sueltas que no puedo controlar. Se ve horrible y, hasta ahora, había recurrido incluso a la casera técnica del limón: mi mamá me peinaba así.
 
-<!--more-->
+![null](/images/uploads/belleza-tigi-stick-mechita-y-liso.jpg)
 
-![](/images/uploads/belleza-tigi-stick-mechita-y-liso.jpg)
+<!--more-->
 
 Cómo olvidarla haciéndome la “cola de caballo” para el colegio y, luego, pasándome la mitad de un limón por la cabeza, jajajá. Ni media mecha parada. Truco ochentero efectivo.
 
@@ -41,4 +41,4 @@ Me gustó harto porque el pelo no queda tieso y quitar la cera es fácil. No se 
 
 ![null](/images/uploads/belleza-tigi-stick-mechas.jpg)
 
-La barra es de 73g. ideal para echarla a la cartera o mochila y su valor referencial es de $19.990. Está a la venta en peluquería y tiendas de retail. **\#SOYprueboytecuento**
+La barra es de 73g. ideal para echarla a la cartera o mochila y su valor referencial es de $19.990. Está a la venta en peluquerías y tiendas de retail. **\#SOYprueboytecuento**
