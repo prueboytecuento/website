@@ -20,9 +20,7 @@ weight: '1'
 
 <!--more-->
 
-Celebra el 4 de mayo el **“Día de Star Wars”** o **“May the 4th”** armando a R2D2 en 
-
-en la tienda Lego de Manquehue Norte 1255 - Vitacura. Podrás participar de la actividad entre las 10 y 20 horas.
+Celebra el 4 de mayo el **“Día de Star Wars”** o **“May the 4th”** armando a R2D2 en la tienda Lego de Manquehue Norte 1255 - Vitacura. Podrás participar de la actividad entre las 10 y 20 horas.
 
 ![null](/images/uploads/photo-output-25.jpg)
 
