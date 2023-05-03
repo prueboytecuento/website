@@ -16,7 +16,7 @@ categories:
   - DATO
 weight: '1'
 ---
-**\#prueboytecuentoDATO** Ser fan de **"Star Wars"** y poder ser parte de la construcción de uno de sus personajes en versión **\#Lego** debe ser toda una aventura y ahora puedes hacerlo.
+**\#prueboytecuentoDATO** Ser fan de **Star Wars** y poder ser parte de la construcción de uno de sus personajes en versión **\#Lego** debe ser toda una aventura y ahora puedes hacerlo.
 
 <!--more-->
 
@@ -26,9 +26,7 @@ en la tienda Lego de Manquehue Norte 1255 - Vitacura. Podrás participar de la a
 
 ![null](/images/uploads/photo-output-25.jpg)
 
-¿Lo terminarían en 1 día? Claro que no, así es que la construcción se mantendrá hasta el 
-
-día 6 de este mes.
+¿Lo terminarían en 1 día? Claro que no, así es que la construcción se mantendrá hasta el día 6 de este mes.
 
 El grueso de la obra lo realizarán expertos constructores en el Building Happening y, por supuesto, compartirán consejos y trucos para mejorar la experiencia de armados de todos los amantes de estas populares figuritas. 
 
@@ -36,9 +34,5 @@ El grueso de la obra lo realizarán expertos constructores en el Building Happen
 
 ![null](/images/uploads/photo-output-26.jpg)
 
-Pero esa no es la única actividad. La marca danesa presentarán una exposición
-
-de sets exclusivos de la saga hasta el 07 de mayo en la tienda de
-
-Mallplaza Egaña y Mall Vivo Los Trapenses: lunes a sábado abierto de 10 a 20:30 horas, y el domingo de 11 a 20 horas. **\#SOYprueboytecuento
+Pero esa no es la única actividad. La marca danesa presentarán una exposición de sets exclusivos de la saga hasta el 07 de mayo en la tienda de Mallplaza Egaña y Mall Vivo Los Trapenses: lunes a sábado abierto de 10 a 20:30 horas, y el domingo de 11 a 20 horas. **\#SOYprueboytecuento
 **
