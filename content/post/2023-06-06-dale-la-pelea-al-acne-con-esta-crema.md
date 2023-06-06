@@ -36,7 +36,7 @@ Al séptimo día de aplicación se empiezan a notar los primeros cambios faciale
 
 Cuenta con Celastrol® y Myrtacine® que en conjunto trabajan en la eliminación de los granos. Viene en formato de tubo de 30ml.
 
-Pero no es el único producto para la rutina de limpieza y control de impurezas de Ducray, porque las impurezas no sólo aparecen en el rostro. Hay una espuma limpiadora de rostro y cuerpo cuyo uso también es diario: **Keracnyl Gel Moussant**. 
+Pero no es el único producto para la rutina de limpieza y control de impurezas de Ducray, porque las impurezas no sólo aparecen en el rostro. Hay una espuma limpiadora de rostro y cuerpo cuyo uso también es diario: **Keracnyl Gel Moussant**. 400ml.
 
 ![null](/images/uploads/belleza-acne-d-gel.jpg)
 
