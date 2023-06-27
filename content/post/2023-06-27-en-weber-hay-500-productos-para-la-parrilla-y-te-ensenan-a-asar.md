@@ -31,13 +31,15 @@ Hay parrillas a gas y carbón de todos los tamaños ideales para casas o departa
 
 El encendedor de carbón **Rapidfire** es útil y eficiente. Vi cómo funciona e incluso lo usé. Es un cilindro con reja en la parte inferior para que el carbón no se caiga. Después de un rato quemando las piedras de carbón, lo mueves para que se prendan las piedras que no alcanzaron a hacerlo. La idea es tener un fuego lo más parejo posible.
 
+![](/images/uploads/comerybeber-weber-encendedor.jpg)
+
 De las parrillas a gas, la más grande y completa es la **Summit S-670 GBS**. Tiene ahumador, mesas laterales, grilla de cocción, espacios para colgar los accesorios de cocina, indicador led para combustible, etc.
 
-FOTO
+![](/images/uploads/comerybeber-weber-summit.jpg)
 
 Hay una parrilla estilo vintage que me encantó. Esta es a carbón. La **Kettle 70 Aniversario**. Su diseño está inspirado en los autos de los 50s, es muy estilosa. Cuenta con un termómetro en la tapa, tiene una bandeja auxiliar para guardar todos los utensilios, viene con un abrebotellas retro y más. Son de edición limitada. 
 
-FOTO PARRILLA VINTAGE
+![](/images/uploads/comerybeber-weber-kettle.jpg)
 
 Tienen planchas, grillas, bases redondas ideales para hacer pizzas, wok, fundas para proteger las parrillas, canastas para asar, pulidor de acero inoxidable y una infinidad de accesorios que incluso uno, como consumidor común y corriente, no sabe que existen.
 
@@ -52,6 +54,8 @@ Junto a otros colegas de la prensa, influencers y expertos parrilleros fuimos te
 La temperatura se mantuvo, la humedad de la carne era perfecta, había suavidad, se sentía el sabor del jugo de manzana, el salado era preciso (siempre encuentro que a todo le falta sal) y el gusto de tallow (grasita de mismo brisket) hizo que esta experiencia fuera maravillosa.
 
 Para esta preparación, Bravo trabajó en la **parrilla Smokefire X6** que, me comentó, es su favorita.
+
+![](/images/uploads/comerybeber-weber-x6.jpg)
 
 Las clases que él y su equipo imparten en Entre Toros son de 2 a 3 horas repasando conceptos del asado, ritual del fuego, tipos de cocción, anatomía de las parrillas Weber y cómo parrillar en ellas, para finalmente pasar a lo práctico cocinando deliciosos y novedosos platos a la parrilla. 
 
