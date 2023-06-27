@@ -1,5 +1,5 @@
 ---
-title: En Weber hay 500 productos para la parrilla y te enseñan a asar
+title: En Weber hay 500 productos para la parrilla y enseñan a asar
 showonlyimage: true
 date: '2023-06-26T23:41:58-04:00'
 image: /images/uploads/comerybeber-weber-collage3.jpg
@@ -31,15 +31,15 @@ Hay parrillas a gas y carbón de todos los tamaños ideales para casas o departa
 
 El encendedor de carbón **Rapidfire** es útil y eficiente. Vi cómo funciona e incluso lo usé. Es un cilindro con reja en la parte inferior para que el carbón no se caiga. Después de un rato quemando las piedras de carbón, lo mueves para que se prendan las piedras que no alcanzaron a hacerlo. La idea es tener un fuego lo más parejo posible.
 
-![](/images/uploads/comerybeber-weber-encendedor.jpg)
+![null](/images/uploads/comerybeber-weber-encendedor.jpg)
 
 De las parrillas a gas, la más grande y completa es la **Summit S-670 GBS**. Tiene ahumador, mesas laterales, grilla de cocción, espacios para colgar los accesorios de cocina, indicador led para combustible, etc.
 
-![](/images/uploads/comerybeber-weber-summit.jpg)
+![null](/images/uploads/comerybeber-weber-summit.jpg)
 
 Hay una parrilla estilo vintage que me encantó. Esta es a carbón. La **Kettle 70 Aniversario**. Su diseño está inspirado en los autos de los 50s, es muy estilosa. Cuenta con un termómetro en la tapa, tiene una bandeja auxiliar para guardar todos los utensilios, viene con un abrebotellas retro y más. Son de edición limitada. 
 
-![](/images/uploads/comerybeber-weber-kettle.jpg)
+![null](/images/uploads/comerybeber-weber-kettle.jpg)
 
 Tienen planchas, grillas, bases redondas ideales para hacer pizzas, wok, fundas para proteger las parrillas, canastas para asar, pulidor de acero inoxidable y una infinidad de accesorios que incluso uno, como consumidor común y corriente, no sabe que existen.
 
@@ -47,7 +47,7 @@ Pero podemos dejar de ser consumidores comunes, aprender y explotar nuestra mejo
 
 Es precisamente él quien está detrás de las clases de cocina en la Grill Academy, The Original by Weber que dicta en su restaurante Entre Toros (justo frente a la nueva tienda Weber). Lo acompaña un grupo de expertos embajadores de la marca. Todos secos para los asados.
 
-FOTO BRAVO
+![](/images/uploads/comerybeber-weber-c-bravo.jpg)
 
 Junto a otros colegas de la prensa, influencers y expertos parrilleros fuimos testigos de varios procesos de cocina y cortes de carne, pero la mejor parte fue cuando Christian Bravo tomó un brisket envuelto en papel aluminio que había tenido durante 9 horas en un ahumador y, luego, dejó reposando por otra hora más. 
 
@@ -55,7 +55,7 @@ La temperatura se mantuvo, la humedad de la carne era perfecta, había suavidad,
 
 Para esta preparación, Bravo trabajó en la **parrilla Smokefire X6** que, me comentó, es su favorita.
 
-![](/images/uploads/comerybeber-weber-x6.jpg)
+![null](/images/uploads/comerybeber-weber-x6.jpg)
 
 Las clases que él y su equipo imparten en Entre Toros son de 2 a 3 horas repasando conceptos del asado, ritual del fuego, tipos de cocción, anatomía de las parrillas Weber y cómo parrillar en ellas, para finalmente pasar a lo práctico cocinando deliciosos y novedosos platos a la parrilla. 
 
