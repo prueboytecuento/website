@@ -14,7 +14,7 @@ tags:
   - Christian Bravo
   - Ahumador
   - Brisket
-  - Smokefire EX6
+  - Smokefire X6
 categories:
   - COMER Y BEBER
 weight: '1'
