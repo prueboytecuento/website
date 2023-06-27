@@ -2,7 +2,7 @@
 title: En Weber hay 500 productos para la parrilla y te enseñan a asar
 showonlyimage: true
 date: '2023-06-26T23:41:58-04:00'
-image: /images/uploads/comerybeber-weber-collage-ppal.jpg
+image: /images/uploads/comerybeber-weber-collage3.jpg
 rating: '1'
 tags:
   - Weber Original Store
@@ -25,7 +25,7 @@ weight: '1'
 
 Por eso la **Weber Original Store** me parece una muy buena tienda para comprar todo lo necesario a la hora de hacer un asado, un postre, una pizza, asar pollos, etc. Sí, tienen una amplia gama de accesorios y equipos (500) y es una tienda que además cuenta con una **Grill Academy** para aprender a manejar la parrilla y preparar una buena carne: todo está en Las Terrazas de Chicureo: Av. Chicureo #1700.
 
-![null](/images/uploads/comerybeber-weber-collage-ppal.jpg)
+![null](/images/uploads/comerybeber-weber-collage3.jpg)
 
 Hay parrillas a gas y carbón de todos los tamaños ideales para casas o departamentos. Si les gusta ahumar carne, hay tambores en tres tamaños e incluso unas cajitas rectangulares que van sobre la parrilla.
 
@@ -51,7 +51,7 @@ Junto a otros colegas de la prensa, influencers y expertos parrilleros fuimos te
 
 La temperatura se mantuvo, la humedad de la carne era perfecta, había suavidad, se sentía el sabor del jugo de manzana, el salado era preciso (siempre encuentro que a todo le falta sal) y el gusto de tallow (grasita de mismo brisket) hizo que esta experiencia fuera maravillosa.
 
-Para esta preparación, Bravo trabajó en la **parrilla Smokefire EX6** que, me comentó, es su favorita.
+Para esta preparación, Bravo trabajó en la **parrilla Smokefire X6** que, me comentó, es su favorita.
 
 Las clases que él y su equipo imparten en Entre Toros son de 2 a 3 horas repasando conceptos del asado, ritual del fuego, tipos de cocción, anatomía de las parrillas Weber y cómo parrillar en ellas, para finalmente pasar a lo práctico cocinando deliciosos y novedosos platos a la parrilla. 
 
