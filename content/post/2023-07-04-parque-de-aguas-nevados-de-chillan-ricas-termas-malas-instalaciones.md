@@ -53,6 +53,8 @@ Para que se hagan una idea, cercana a la piscina 4, que fue la que más usamos h
 
 Este tipo de lugares suelen tener buena duchas y puertas de vidrio que dividen las cabinas de la zona de vestuario. ¿Mucho pedir? No, es lo que cualquiera de ustedes debería exigir.
 
+![](/images/uploads/ontour-termas-collage-duchas.jpg)
+
 Tu única opción de bañarte con agua caliente es subir “tiesa de frío” un buen número de escalones para llegar al spa. ¿Por qué tendría que hacer eso si cada zona tiene camarines? ¿No sería mejor ofrecer un mejor servicio en esos?
 
 Sigo: baños y lavamanos básicos, pero muy limpios. Hay lockers, pero no estaban habilitados porque no tenían llaves y en la foto van a poder ver su tamaño… Ni siquiera caben las botas de nieve. Piensen que además de las botas hay que guardar pantalón y parka de nieve que no son prendas pequeñas, el resto de la ropa, artículos de aseo básicos, billetera, etc. Mal.
