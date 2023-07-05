@@ -35,9 +35,15 @@ Por la época del año y el frío que suele ser de 4 grados hacia abajo, esta er
 
 Y aunque ninguno de esos factores estaba presente en el ambiente el primer golpe térmico fue cuando salí del camarín en bikini y cubierta sólo con una toalla… Congelamiento nivel Dios vs. agua hirviendo, pero en unos minutitos ya estaba aclimatada. 
 
+![](/images/uploads/ontour-termas-piscina-4.jpg)
+
 ¡Qué experiencia más rica! Entré a la piscina 4 (tiene bar), cuya temperatura llega a los 37 grados. ¡Muy agradable! Hay que salirse cada 15 minutos por el vapor te deja bien atontada y marea. El agua, lógico, viene desde la montaña con un pool de minerales que tiene muchas propiedades curativas, pero también aspirar mucho rato azufre deja lánguido.
 
+![](/images/uploads/ontour-termas-piscina-techada.jpg)
+
 Así es que entre las salidas y entradas a las piscinas (también estuvimos en la techada que es a 40 grados de temperatura), mucha hidratación con agua (las bebidas NO son hidratantes) y ver a mi familia disfrutar nadando fui muy feliz.
+
+![](/images/uploads/ontour-termas-piscina-3.jpg)
 
 La cara poco amable de esta experiencia acuática en el **Parque de Agua de Nevados de Chillán** es lo básica de sus instalaciones, razón por la cual no volvería. 
 
@@ -61,6 +67,4 @@ Ojo con los bordes trizados de las piscinas y barandas oxidadas de las escaleras
 
 Tiene bastante que mejorar Nevados de Chillán en su Parque de Aguas. Ojalá ello ocurra pronto o derechamente bajen sus tarifas a precios que sean proporcionales a lo que ofrecen. Mientras, me quedo con los baños de tina de mi casa en Santiago.
 
-Por supuesto que más información encuentran en www.nevadosdechillan.com. 
-
- **\#SOYprueboytecuento**
+Por supuesto que más información encuentran en www.nevadosdechillan.com. **\#SOYprueboytecuento**
