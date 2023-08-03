@@ -41,11 +41,15 @@ Acto seguido moví mi cabello con las manos para distribuir el polvo y lo dejé 
 
 Ojo que no queda súper suave porque es un polvo sobre tu pelo, pero sí es totalmente manipulable para modelarlo a tu pinta. Además que nadie va a andar tocándolo así es que, al menos para mí, que esté menos suave no es tema.
 
+![](/images/uploads/belleza-shampoo-seco-lata.jpg)
+
 Lo que no me gustó mucho es que no queda tan brillante. Se entiende que es para SOS, pero extrañé más luz. Ahora, claro, lo que me eché en la raíz y distribuí con las manos sobre todo el pelo fue un polvo.
 
 Función de limpiar y quitar la grasa del pelo en modo emergencia, check. Como les dije más arriba, este es un producto a base de avena. Avena cultivada orgánicamente que protege el cuero cabelludo.
 
 La limpieza está en manos de almidón tanto de maíz, como de arroz. Hay microesferas y sílice absorbentes naturales que cumplen la función de eliminar el exceso de suciedad, aceite y olor.
+
+![](/images/uploads/belleza-shampoo-seco-pelo-listo.jpg)
 
 Como todos los productos de Klorane, este también es libre de parabenos, sulfatos, conservantes y siliconas. Ello además de cloruro de sodio, fenoxietanol, triclosán y mit.
 
