@@ -93,10 +93,10 @@ Tendrán un mercado de emprendedores con productos de diseño y gastronomía que
 Metropolitan Santiago (ex CasaPiedra).
  Av. Escrivá de Balaguer 5600, Vitacura.
 
-¿HORARIO?
+**¿HORARIO?**
 
 De 12 a 21 horas.
 
-¿VALOR?
+**¿VALOR?**
 
 $25.000 en la puerta, pero compran la entrada antes tendrán un 25% de descuento. La venta es a través del sistema Ticketmaster. **\#SOYprueboytecuento**
