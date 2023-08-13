@@ -15,23 +15,23 @@ categories:
   - PANORAMAS
 weight: '1'
 ---
-Si te interesa la obra e historia de uno de los artistas más importantes del impresionismo hoy tienes una nueva oportunidad.
+**\#prueboytecuentoPANORAMAS** Si te interesa la obra e historia de uno de los artistas más importantes del impresionismo hoy tienes una nueva oportunidad.
 
 <!--more-->
 
 A las muestras **“Meet Vincent Van Gogh”** y **“Beyond Van Gogh: The Immersive Experience”** se suma ahora **“Van Gogh Immersive Art Experience”**. Cada una con su atractivo y particularidad.
 
-![](/images/uploads/panoramas-van-gogh-2023-1.jpg)
+![null](/images/uploads/panoramas-van-gogh-2023-1.jpg)
 
 Yo, que pronto recorreré la muestra, siento mucha curiosidad por usar un casco de última generación que genera la sensación de estar dentro del cuadro y poder “pasear”, por ejemplo, por la obra “Noche estrellada”. Ventajas de la realidad virtual.
 
 En esta experiencia inmersiva se podrá recorrer la muestra con las creaciones de Van Gogh, como ya se ha visto antes, de piso a lo más alto de los muros, pero con un adicional: escuchar las cartas que el pintor le escribió a su hermano Theo.
 
-![](/images/uploads/panoramas-van-gogh-2023-3.jpg)
+![null](/images/uploads/panoramas-van-gogh-2023-3.jpg)
 
 La muestra de uno de los exponentes más destacados del impresionismo mundial se podrá ver hasta el 31 de agosto en el Portal La Dehesa. Son 1.000m2 de superficie y el recorrido dura aproximadamente 60 minutos. 
 
-![](/images/uploads/panoramas-van-gogh-2023-2.jpg)
+![null](/images/uploads/panoramas-van-gogh-2023-2.jpg)
 
 **¿Entradas?** 
 
