@@ -19,7 +19,7 @@ Si te interesa la obra e historia de uno de los artistas más importantes del im
 
 <!--more-->
 
-A las muestras **“Meet Vincent Van Gogh”** y **“Beyond Van Gogh: The Immersive Experience”** se suma ahora **“Van Gogh Immersive Art Experience”.** Cada una con su atractivo y particularidad.
+A las muestras **“Meet Vincent Van Gogh”** y **“Beyond Van Gogh: The Immersive Experience”** se suma ahora **“Van Gogh Immersive Art Experience”**. Cada una con su atractivo y particularidad.
 
 ![](/images/uploads/panoramas-van-gogh-2023-1.jpg)
 
