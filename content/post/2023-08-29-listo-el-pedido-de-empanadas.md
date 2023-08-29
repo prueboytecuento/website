@@ -43,7 +43,7 @@ Valor - $2.400.
 
 Valor - $2.400.
 
-Ecuador 4660, comuna de Santiago.
+Ecuador 4660, Santiago.
 
 Mientras que en la categoría **“Premio 20 años - Típico Chileno”**, el premio fue para las empanadas Rosalía: su costo es de $2.700 y la tienda está en Pastor Fernández 15521, Lo Barnechea.
 
