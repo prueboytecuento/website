@@ -25,9 +25,9 @@ weight: '1'
 
 Como todos los años, el **Círculo de Cronistas Gastronómicos** eligió las mejores empanadas del año y el resultado fue el siguiente.
 
-![](/images/uploads/comerybeber-empanada2023.jpg)
+![null](/images/uploads/comerybeber-empanada2023.jpg)
 
-* **1er lugar - La Temucana.**
+* **1er lugar - La Temucana.**
 
 Valor - $2.800.
 
@@ -49,4 +49,6 @@ Mientras que en la categoría **“Premio 20 años - Típico Chileno”**, el pr
 
 En cuanto a la **“Mejor Empanada Precio Calidad”** ganó el Almacén Bendición. Valen $1.900 y están en Haendel 2801, San Joaquín.
 
-Felicito a todos los ganadores y creo que siempre hay que probar productos nuevos, pero este 18 de septiembre voy con las sabrosas San Luis (**Empanadería San Luis**). La tienda está a unas cuadras de mi casa (Manuel Montt 2660, Ñuñoa) y son las que el año pasado fueron premiadas como las mejores del año. **\#SOYprueboytecuento**
+Felicito a todos los ganadores y creo que siempre hay que probar productos nuevos, pero este 18 de septiembre voy con las sabrosas San Luis (**Empanadería San Luis**). La tienda está a unas cuadras de mi casa (Manuel Montt 2660, Ñuñoa) y son las que el año pasado fueron premiadas como las mejores del año.
+ **\#SOYprueboytecuento
+**
