@@ -45,10 +45,9 @@ Valor - $2.400.
 
 Ecuador 4660, Santiago.
 
-Mientras que en la categoría **“Premio 20 años - Típico Chileno”**, el premio fue para las empanadas Rosalía: su costo es de $2.700 y la tienda está en Pastor Fernández 15521, Lo Barnechea.
+Mientras que en la categoría **“Premio 20 años - Típico Chileno”**, el premio fue para las empanadas **Rosalía**: su costo es de $2.700 y la tienda está en Pastor Fernández 15521, Lo Barnechea.
 
-En cuanto a la **“Mejor Empanada Precio Calidad”** ganó el Almacén Bendición. Valen $1.900 y están en Haendel 2801, San Joaquín.
+En cuanto a la **“Mejor Empanada Precio Calidad”** ganó el **Almacén Bendición**. Valen $1.900 y están en Haendel 2801, San Joaquín.
 
-Felicito a todos los ganadores y creo que siempre hay que probar productos nuevos, pero este 18 de septiembre voy con las sabrosas San Luis (**Empanadería San Luis**). La tienda está a unas cuadras de mi casa (Manuel Montt 2660, Ñuñoa) y son las que el año pasado fueron premiadas como las mejores del año.
- **\#SOYprueboytecuento
+Felicito a todos los ganadores y creo que siempre hay que probar productos nuevos, pero este 18 de septiembre voy con las sabrosas San Luis (**Empanadería San Luis**). La tienda está a unas cuadras de mi casa (Manuel Montt 2660, Ñuñoa) y son las que el año pasado fueron premiadas como las mejores del año. **\#SOYprueboytecuento
 **
