@@ -19,7 +19,7 @@ categories:
   - COMER Y BEBER
 weight: '1'
 ---
-\#prueboytecuentoCOMERYBEBER Fiestas Patrias sin hincarle el diente a unas jugosas empanadas, no son Fiestas Patrias. Yo tengo mis favoritas, pero aquí les dejo las mejor evaluadas de 2023.
+**\#prueboytecuentoCOMERYBEBER** Fiestas Patrias sin hincarle el diente a unas jugosas empanadas, no son Fiestas Patrias. Yo tengo mis favoritas, pero aquí les dejo las mejor evaluadas de 2023.
 
 <!--more-->
 
