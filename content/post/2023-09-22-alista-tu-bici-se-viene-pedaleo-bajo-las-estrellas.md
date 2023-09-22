@@ -27,13 +27,19 @@ weight: '1'
 
 La actividad está programada para el próximo sábado 7 de octubre junto a este grupo de trabajo que impulsa el deporte en familia y que desde hace 10 años cierra la Avenida Andrés Bello los domingos en las mañanas.
 
+![](/images/uploads/panoramas-cicletadanocturna-ppal.jpg)
+
 Bicicletas, scooters, carros de arrastre de bicicletas, patines, skates, personas corriendo o caminando y más pueden verse transitando libremente por la avenida. Todos respetan su espacio, los deportistas y amateurs son cuidadosos para evitar accidentes. Un ambiente bien agradable.
 
 Lo anterior, sin mencionar que cada ciertas distancias hay estaciones de hidratación y a veces de abastecimiento de frutas. Una maravilla. 
 
+![](/images/uploads/panoramas-cicletadanocturna-3.jpg)
+
 Este evento nocturno irá desde las 18 horas y hasta la medianoche. El circuito es de 3,5km y comprende los tramos de Avenida Los Leones y Puente Pío Nono.
 
 En esta pasada, durante el recorrido tendrán música en vivo junto a un DJ, cine al aire libre e incluso un muro de testimonios en colores fluorescentes para describir tu experiencia.
+
+![](/images/uploads/panoramas-cicletadanoctura-2.jpg)
 
 ¿Requisito? Llevar luces para casco y bicicletas, herramientas en caso de necesitar reparación y ropa flúor. Al igual que en las actividades diurnas, no se paga por participar. **\#SOYprueboytecuento**
 
