@@ -23,7 +23,7 @@ categories:
   - MÚSICA
 weight: '1'
 ---
-**\#prueboytecuentoMÚSICA** No son pocos los números cerrados para la 63º versión del **Festival de Viña del Mar** y los nombres van desde el mexicano de 24 años Peso Pluma a los australianos de la 80tera banda Men At Work.
+**\#prueboytecuentoMÚSICA** No son pocos los números cerrados para la 63º versión del **Festival de Viña del Mar** y los nombres van desde la brasilera Anitta a los australianos de la 80tera banda Men At Work.
 
 Variada y para todos los gustos es la lista que ya conforma un 90% el cartel de la fiesta musical que se realizará desde el domingo 25 de febrero al viernes 1 de marzo.
 
@@ -36,7 +36,7 @@ Variada y para todos los gustos es la lista que ya conforma un 90% el cartel de 
 * María Becerra.
 * Maná.
 * Young Cister.
-* Anitta.
+* Peso Pluma.
 * Mora.
 * Manuel Turizo.
 * Miranda! 
