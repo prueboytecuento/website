@@ -1,7 +1,7 @@
 ---
 title: Conoce Super Mario Bros. Wonder
 showonlyimage: true
-date: '2023-10-21T01:24:23-03:00'
+date: '2023-10-20T01:24:23-03:00'
 image: /images/uploads/tech-nintendo-juego-ppal.jpg
 rating: '1'
 tags:
