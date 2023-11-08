@@ -47,7 +47,7 @@ Con Caramelo ha sido un grato descubrimiento. Sobre todo porque son productos he
 
 ![null](/images/uploads/comerybeber-concaramelo-5.jpg)
 
-Cuando eres mamá este es un punto no menor para mí. Buenos dulces para una niña de 10 años y para todos, la verdad.
+Cuando eres mamá, sabes que todos los niños consumen dulces, quieren hacer lo mismo y quieres darle algo más saludable a la tuya o  tuyo esta es una buena opción. Buenos opción para ellos y para todos.
 
 En cuanto a la caja con frascos de Chilensis, su precio referencial es de $21.900 y, ojo, que si guardan los frascos y los llevan a la tienda, tiene descuentos en la siguiente compra. **\#SOYprueboytecuento
 **
