@@ -43,12 +43,13 @@ La otra infusión es de **Boldo**, de sabor más marcado, fuerte, igual de arom�
 
 Los dulcesitos del tercer frasco están hechos de **Laurel** y son perfectos para condimentar la comida. Si los echas a una olla con caldo, lógicamente se van a disolver solos, pero si quieres condimentar un trozo de carne, por ejemplo, lo ideal es dejar los caramelos en un molinillo e ir aliñando a gusto.
 
-Con Caramelo ha sido un grato descubrimiento. Sobre todo porque son productos hecho con materias primas naturales, como flores, frutas, hierbas, que es algo que muchos buscamos hoy en día. Mientras más saludables, mejor.
+Con Caramelo ha sido un grato descubrimiento. Sobre todo porque son productos hechos con materias primas naturales, como flores, frutas, hierbas, que es algo que muchos buscamos hoy en día. Mientras más saludables, mejor.
 
 ![null](/images/uploads/comerybeber-concaramelo-5.jpg)
 
-Soy mamá y este es un punto no menor para mí. Buenos dulces para una niña de 10 años y para todos, la verdad.
+Cuando eres mamá este es un punto no menor para mí. Buenos dulces para una niña de 10 años y para todos, la verdad.
 
-En cuanto a la caja con frascos de Chilensis, su precio referencial es de $21.900 y, ojo, que si guardan los frascos y los llevan a la tienda, tiene descuentos en la siguiente compra. **\#SOYprueboytecuento**
+En cuanto a la caja con frascos de Chilensis, su precio referencial es de $21.900 y, ojo, que si guardan los frascos y los llevan a la tienda, tiene descuentos en la siguiente compra. **\#SOYprueboytecuento
+**
 
 **©Derechos reservados** - Todos los derechos reservados al respectivo propietario(s) de las imágenes: **Pruebo y te cuento y Con Caramelo.**
