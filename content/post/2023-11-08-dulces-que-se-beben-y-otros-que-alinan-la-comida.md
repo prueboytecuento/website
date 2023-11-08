@@ -49,7 +49,6 @@ Con Caramelo ha sido un grato descubrimiento. Sobre todo porque son productos he
 
 Soy mamá y este es un punto no menor para mí. Buenos dulces para una niña de 10 años y para todos, la verdad.
 
-En cuanto a la caja con frascos de Chilensis, su precio referencial es de $21.900 y, ojo, que si guardan los frascos y los llevan a la tienda, tiene descuentos en la siguiente compra. **\#SOYprueboytecuento**_
-_
+En cuanto a la caja con frascos de Chilensis, su precio referencial es de $21.900 y, ojo, que si guardan los frascos y los llevan a la tienda, tiene descuentos en la siguiente compra. **\#SOYprueboytecuento**
 
 **©Derechos reservados** - Todos los derechos reservados al respectivo propietario(s) de las imágenes: **Pruebo y te cuento y Con Caramelo.**
