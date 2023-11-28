@@ -43,7 +43,7 @@ En atletismo… Ver las larguísimas piernas de Martina Weil a toda velocidad en
 
 Pruebo y te cuento para mí es un canal de distintos tipos de información y promover el deporte junto a una vida saludable es prioridad. Por lo mismo, siempre les doy tips, muestro entrenamientos propios, cuidados y, en estas semanas, estuve mostrándoles mi experiencia y la de mi familia en esta fiesta del deporte.
 
-Sumamos muchos partidos de voleibol, atletismo, lanzamiento de martillo, jabalina, salto alto y más en los Panamericanos, mientras que en los parapanamericanos conocimos, como ya les mencioné el rugby Y basketball.
+Sumamos muchos partidos de voleibol, atletismo, lanzamiento de martillo, jabalina, salto alto y más en los Panamericanos, mientras que en los parapanamericanos conocimos, como ya les mencioné el rugby y basketball.
 
 ![null](/images/uploads/fitness-santiago2023-chi-bra-ok.jpg)
 
@@ -59,6 +59,6 @@ Fue en un día de muchísimo calor, a ratos estaban lánguidos, pero disfrutaron
 
 Una tremenda experiencia de vida, tremenda experiencia deportiva y de que los límites no existen cuando te lo propones y vas más allá de cualquier dificultad física. Gracias al equipo de Educación de Santiago 2023 por haber hecho posible que los niños estuvieran ahí.
 
-![](/images/uploads/fitness-santiago2023-nacional.jpg)
+![null](/images/uploads/fitness-santiago2023-nacional.jpg)
 
 Ojalá esto no quede aquí, que muchos más chilenos se entusiasmen y practiquen deportes. Que salir a caminar o dar unas vueltas a la cuadra se haga costumbre, andar en bici (si tienen) un infaltable y se animen a conocer más sobre las disciplinas que vieron en los juegos y practicarlas. **\#SOYprueboytecuento**
