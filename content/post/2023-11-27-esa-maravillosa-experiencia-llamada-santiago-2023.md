@@ -19,7 +19,7 @@ categories:
   - FITNESS
 weight: '1'
 ---
-**\#prueboytecuentoSantiago2023** Nos sentimos huérfanos sin esa sobredosis de adrenalina, energía y garra que nos entregaron los **Juegos Panamericanos y Parapanamericanos**. Lo que vivimos como familia junto a Rafaela (10) y Marido (@kleberos) fue realmente enriquecedor. 
+**\#prueboytecuentoSantiago2023** Nos sentimos viudos los **Juegos Panamericanos y Parapanamericanos**. De esa sobredosis de adrenalina, energía y garra que nos entregaron los atletas y que vivimos como familia junto a Rafaela (10) y Marido (@kleberos). Fue una experiencia enriquecedora. 
 
 <!--more-->
 
