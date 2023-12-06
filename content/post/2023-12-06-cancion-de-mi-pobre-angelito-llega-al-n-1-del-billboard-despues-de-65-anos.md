@@ -17,13 +17,11 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/collage-brenda-angelito-ok.jpg)
+![null](/images/uploads/collage-brenda-angelito-ok.jpg)
 
 Aunque por acá me tienen todos los diciembres escuchando música navideña, jajajá. Y en la playlist que hicimos con la Rafa (10) en Spotify este clásico de **Brenda Lee** se repite una y otra vez. Literal.
 
 “¡Esto es increíble! No puedo creer que 'Rockin' haya alcanzado el número 1, 65 años después de su lanzamiento”, dijo Lee y siguió: “¡Esto es tan especial! Gracias al equipo de UMG/UMe (Universal Music Group) que trabajó tan duro para celebrar el aniversario de la canción este año. Pero lo más importante, gracias a los fans que siguen escuchando”.
-
-
 
 Recordó además que “la canción salió cuando era una joven adolescente (13) y saber que ha resonado en múltiples generaciones y continúa resonando es uno de los mejores regalos que he recibido. ¡Sigan rockeando y feliz Navidad! -Brenda Lee”. Ídola.
 
@@ -34,4 +32,4 @@ Para que se hagan una idea de lo que esto significa en la carrera de Brenda Lee,
 * Lee y “Rockin’ around the christmas tree” ahora ostenta el récord del ascenso más largo a la cima del Hot 100, porque, como les decía más arriba, fue lanzado hace 65 años.
 * Este logro además la convierte en la mujer de mayor edad en encabezar el Hot 100, superando a las anteriores poseedoras del récord Cher (“Believe”, 52 años) y Mariah Carey (“All I want for christmas is you”, edad 53).
 
-Qué mejor regalo de fin de año para un artista que su música sea escuchada por millones de personas, millones de veces. **\#SOYprueboytecuento**
+Qué mejor regalo de fin de año para un artista que su música sea escuchada por millones de personas, millones de veces. #SOYprueboytecuento
