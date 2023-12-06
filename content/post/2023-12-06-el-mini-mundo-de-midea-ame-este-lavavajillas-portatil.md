@@ -56,6 +56,8 @@ El de Midea es de 4 puertas. Las 2 de abajo resguardan los congelados, las 2 de 
 
 El primero permite mantener cualquier tipo de carne en estado de microcongelación, a través de un control preciso de temperatura. Ello permite conservar los alimentos frescos sin cambiar de color ni sabor (ver imagen).
 
+![](/images/uploads/tech-collage-cajuelas.jpg)
+
 La IPL es una cajuela de purificación que libera impulsos de alta energía en muy poco tiempo para esterilizar verduras y frutas. 
 
 Ambas son cajuelas de acero inox. Muy interesante el sistema de la marca China que más electrodomésticos vendió este 2023 en Chile: 350.950 hasta el cierre de esta edición.
