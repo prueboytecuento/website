@@ -25,15 +25,15 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/belleza-hydrocollage-1.jpg)
+![null](/images/uploads/belleza-hydrocollage-1.jpg)
 
-Muchos serum se tornan pegajosos al momento de la aplicación y parte del contenido queda en las manos. O sea, pérdida de producto, plata y no se puede realizar una buena rutina de belleza.
+Muchos serums se tornan pegajosos al momento de la aplicación y parte del contenido queda en las manos. O sea, pérdida de producto, plata y no se puede realizar una buena rutina de belleza.
 
 No tuve problemas con el **Serum Hidratante Concentrado Hydro Boost**. De hecho, se siente de inmediato la piel más elástica, suave, liviana, no quedas con la cara pegote. Muy agradable.
 
 Llevo usándolo desde hace varios días y es cierto que la piel queda más suave (su etiqueta promete un 72% más). Queda aterciopelada incluso. 
 
-![](/images/uploads/belleza-hydro-frasco.jpg)
+![null](/images/uploads/belleza-hydro-frasco.jpg)
 
 Tengo la fortuna de tener una piel firme a mis 47 años y que este producto de Neutrogena otorgue un 63% más me parece espectacular para quienes, por ejemplo, tienen la piel muy delgada y la gravedad les afecta más rápido. Fortalece la barrera cutánea.
 
@@ -41,7 +41,7 @@ Para este review hubo días en que sólo apliqué el serum y dejé que hidratara
 
 También hice ejercicios de drenaje faciales con una **Gua Sha (piedra de masaje)** en rostro y cuello (acá me eché otras gotas más). Ambos muy relajantes y agradables. 
 
-![](/images/uploads/belleza-hydrocollage-2.jpg)
+![null](/images/uploads/belleza-hydrocollage-2.jpg)
 
 Increíble cómo se reactiva cada célula de la piel y te da un aspecto menos cansado, más vivo, un rostro luminoso. En resumen, muy buen producto.
 
