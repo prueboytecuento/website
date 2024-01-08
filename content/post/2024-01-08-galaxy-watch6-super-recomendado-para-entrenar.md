@@ -10,7 +10,7 @@ tags:
   - Reloj
   - Ejercicios
   - Reloj Inteligente
-  - Incluye más Deportes
+  - Samsung
 categories:
   - TECH
 weight: '1'
