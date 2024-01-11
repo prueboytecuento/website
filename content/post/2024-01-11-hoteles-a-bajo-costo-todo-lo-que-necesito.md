@@ -24,6 +24,8 @@ weight: '1'
 
 <!--more-->
 
+![](/images/uploads/ontour-accor-collage-ppal.jpg)
+
 Hay varios tipos de **\#ibis** alrededor del mundo y en Chile también. Pero no son los únicos de la cadena francesa **\#Accor** que cumplió 20 años operando en Chile. También está **\#Novotel** (el de Vitacura fue el 1ero que abrieron en el país), **\#Pullman**, **\#Mercure**. Las opciones son varias.
 
 Todo depende de lo que buscamos, lo que nos acomoda por el tipo de viaje, estilo de alojamiento que nos gusta. En mi caso, los ibis siempre han sido una buena opción para viajes con varias paradas.
