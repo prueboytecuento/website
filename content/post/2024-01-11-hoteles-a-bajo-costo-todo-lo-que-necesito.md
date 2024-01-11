@@ -42,7 +42,7 @@ Hoy viajar en avión BBB y quedarse en un hotel BBB es posible. Antes era un luj
 
 Para que tengan una idea, el alojamiento con impuesto en el ibis Budget de Providencia cuesta $58.905.
 
-![null](/images/uploads/ontour-accor-novotel-pieza.jpg)
+![null](/images/uploads/ontour-accor-novotel-pieza-2.jpg)
 
 Hasta ahora la cadena francesa tiene en el país 26 hoteles y pretende abrir ibis Chillán, ibis La Serena, ibis Styles Coquimbo e ibis Budget Concepción. 
 
