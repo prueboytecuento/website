@@ -1,7 +1,7 @@
 ---
 title: En Old Navy están con descuentos de un 40% y 50%
 showonlyimage: true
-date: '2024-01-23T10:58:30-03:00'
+date: '2024-01-22T10:58:30-03:00'
 image: /images/uploads/dato-old-navy-enterito.jpg
 rating: '1'
 tags:
