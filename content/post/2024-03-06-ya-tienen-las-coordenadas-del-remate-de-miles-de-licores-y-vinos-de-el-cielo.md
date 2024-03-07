@@ -19,7 +19,7 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/dato-el-cielo-ppal.jpg)
+![null](/images/uploads/dato-el-cielo-ppal.jpg)
 
 El remate corresponde a la liquidación en 2022 de la **“Distribuidora El Cielo”** y el dictamen del 13° Juzgado Civil de Santiago por una deuda de la empresa superior a los 520 millones de pesos.
 
@@ -34,7 +34,7 @@ Entre los productos que se van a subastar, **TOMEN NOTA** hay: 6.500 botellas de
 * Muebles.
 * Equipos de sala, oficina y bodega.
 
-> **LO QUE HAY QUE SABER**
+> **LO QUE HAY QUE SABER**
 
 1. El remate es el próximo día 14 de marzo de 2024.
 2. Comienza a las 11 horas.
