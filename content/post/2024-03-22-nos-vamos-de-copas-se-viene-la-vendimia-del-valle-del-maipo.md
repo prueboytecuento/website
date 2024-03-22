@@ -33,29 +33,15 @@ Además de las **40 viñas del Valle del Maipo** con sus respectivas cepas, habr
 
 La entrada es liberada, pero si se entusiasman y quieren hacer degustaciones pueden comprar su copa de vino y las opciones son:
 
-
-
 * Copa + 3 degustaciones: $10.000 más cargo por servicio.
-
-
-
 * Copa + 5 degustaciones: $15.000 más cargo por servicio.
-
-
-
 * Copa + 8 degustaciones: $20.000 más cargo por servicio.
-
-
 
 Las copas se compran en www.vendimiavalledelmaipo.cl. La preventa es hasta el 31 de marzo.
 
-
-
 Ojo que las degustaciones, como ya todos sabemos, no son compatibles con la conducción, así es que habrán buses de acercamiento desde las estaciones de metro cercanas al parque Padre Hurtado con salida cada 15 minutos. 
 
-
-
-![](/images/uploads/panoramas-vendimia-maipo.jpg)
+![null](/images/uploads/panoramas-vendimia-maipo.jpg)
 
 La **Vendimia Valle del Maipo** es un panorama pensado en los amantes del vino, pero también en la familia, por lo tanto, los organizadores tendrán shows de música en vivo para adultos y niños, experiencias inmersivas, juegos, exhibiciones, gastronomía y más.
 
