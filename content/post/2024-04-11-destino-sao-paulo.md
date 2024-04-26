@@ -21,11 +21,11 @@ categories:
   - ON TOUR
 weight: '1'
 ---
-**\#prueboytecuentoONTOUR** Es la metrópoli más grande de Sudamérica, tiene 22 millones de habitantes y 39 municipios. Muchos atractivos turísticos por conocer, así es que agarré maleta y me las emplumé.
+**\#prueboytecuentoONTOUR** Es la metrópoli más grande de Sudamérica. Para que se hagan una idea tiene 44 millones de habitantes. Muchos atractivos turísticos por conocer, así es que agarré maleta y me las emplumé.
 
 <!--more-->
 
-Claro que me fui directo al **Gran São Paulo** o el “centro” (11 millones de personas), para dejarles algunos imperdibles de la ciudad distintos a clásicos, como el Mercado Municipal, el parque Ibirapuera, Mirador Sampa Sky o el autódromo de Interlagos en donde Ayrton Senna ganó el Gran Premio de Brasil en 1993. 
+Claro que me fui directo al **Gran São Paulo** o el “centro” (22 millones de personas), para dejarles algunos imperdibles de la ciudad distintos a clásicos, como el Mercado Municipal, el parque Ibirapuera, Mirador Sampa Sky o el autódromo de Interlagos en donde Ayrton Senna ganó el Gran Premio de Brasil en 1993. 
 
 ![null](/images/uploads/ontour-sao-paulo-ppal.jpg)
 
