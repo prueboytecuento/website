@@ -32,7 +32,7 @@ weight: '1'
 
 Abro el pool de reviews centrada sólo en el **\#GranSãoPaulo** (22 millones de habitantes y 39 municipios) con las clásicas ferias libres de domingo. Como les comenté en la nota anterior, en estas reseñas no repasaré los lugares de los que ya se ha escrito mucho. 
 
-Así es que me fui a la **Feria Jardim Susana**, ubicado en la zona sur (R. da Paz, 1209 - Chácara Santo Antônio). Al dar los primeros pasos por sus calles, el aroma a mango, guayaba y maracuyá abren los sentidos. Aromas que no solemos sentir en Chile y que se disfrutan. 
+Así es que me fui a la **Feria Jardim Susana**, ubicada en el distrito de Socorro, zona sur: está en la Avenida Inácio Cunha Leme. Al dar los primeros pasos por sus calles, el aroma a mango, guayaba y maracuyá abren los sentidos. Aromas que no solemos sentir en Chile y que se disfrutan. 
 
 Es un agrado ver a todo tipo de brasileros transitando por el lugar, haciendo sus compras o simplemente disfrutando de un refrescante **Caldo de Cana** o jugo hecho con caña de azúcar.
 
@@ -54,7 +54,7 @@ Con Marido (@kleberos) le insistimos y terminó tomándose el vaso más grande. 
 
 Los valores vs. tamaño son súper convenientes. **OJO**, no sólo manejen dólares cuando se vayan de viaje, sino también la moneda local, en este caso el Real. 
 
-**Hay caldo de cana en 4 tamaño:**
+**Hay caldo de cana en 4 tamaños:**
 
 * Pequeño 	(300ml) a R$7 o $1.286.
 * Mediano 	(400ml) a R$8 o $1.470.
