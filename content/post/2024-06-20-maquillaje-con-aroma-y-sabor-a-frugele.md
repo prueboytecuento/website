@@ -39,7 +39,7 @@ Para qué les digo los gloss de frutilla, manzana y piña. Exquisitos todos. Emu
 
 Hay 2 paletas con sombras de ojos de 9 colores cada una. Siempre me han gustado los nude y para esta reseña usé esa. Claro que son pocos los tonos opacos: la mayoría tiene brillos (dos tonos de dorado), un terracota intenso y 3 con brillos gruesos (escarcha) en cobre, dorado y otro café con brillos terracota. Muy lindos todos los colores.
 
-Aquí les dejo foto del resultado y en Instagram @prueboytecuento el REEL con el proceso de maquillaje y cómo usé las sombras.
+Aquí les dejo foto del resultado y en Instagram @prueboytecuento el REEL con el proceso de maquillaje y cómo usé las sombras (https://www.instagram.com/reel/C8plljwxNIG/?igsh=NjR5YzBrbHYzZTh2).
 
 ![null](/images/uploads/belleza-frugele-labiales-1-collage.jpg)
 
