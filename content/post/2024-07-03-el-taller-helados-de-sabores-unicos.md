@@ -63,6 +63,8 @@ Y así podría estar varias líneas más contándole sobre los sabores de helado
 
 ![null](/images/uploads/comerybeber-eltaller-cafe-.jpg)
 
-Si de cafetería se trata, amé que hagan el **Fat White** una preparación de café que no encuentras en todos lados y acá les queda muy bien. Este es el primer local nacional que trabaja con los granos top de línea de Lavazza: los Tierra.  
+Si de cafetería se trata, amé que hagan el **Fat White** una preparación de café que no encuentras en todos lados y acá les queda muy bien. Este es el primer local nacional que trabaja con los granos top de línea de Lavazza: los Tierra. El **Affogato** es otra de las grandes preparaciones de la cafetería: café más helado de avellana o vainilla.  
+
+![](/images/uploads/comerybeber-eltaller-affogato.jpg)
 
 Qué más que decirles que si están antojados y quieren probar los helados de una nueva tienda, vayan a El Taller y se formen su propia opinión. **\#SOYprueboytecuento**
