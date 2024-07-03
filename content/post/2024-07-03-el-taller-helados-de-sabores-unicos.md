@@ -32,8 +32,6 @@ Estuve en la recientemente inaugurada sucursal de **El Taller en Zoco Santiago e
 
 La especialidad de El Taller son los helados, pero también el café que los que me leen saben es mi debilidad. Pero el ítem heladería nos convoca hoy.
 
-
-
 Se trata de productos lógicamente artesanales, hecho a base de crema y frutas naturales. Son 12 de esa variedad y otras 8 a base de agua. Hay opciones keto y para diabéticos. 
 
 > **¿Con qué me voy a encontrar en tienda?**
@@ -42,7 +40,7 @@ Se trata de productos lógicamente artesanales, hecho a base de crema y frutas n
 
 No soy de consumir ni leche condensada ni crema de avellanas… Con suerte un poco de manjar, pero, de verdad, masticar esas calugas de condensada es un gusto. Exquisito.
 
-![](/images/uploads/comerybeber-el-taller-cubo.jpg)
+![null](/images/uploads/comerybeber-el-taller-cubo.jpg)
 
 * **Cheesecake con Amarena:** Me encanta la amarena o guinda ácida. En helado pinta súper bien. Este cheesecake tiene una equilibrada cantidad de queso crema, es rico y suave. Cuando se trata de amarena en helado, sin embargo, me gusta más dulce, lo que no significa que no sea un rico producto.
 * **Negrita:** Se llama negrita porque está hecho con Chokita, la galleta que cambió de nombre, pero que todos seguimos pidiendo en el kiosko como Negrita. Algunas tradiciones se mantienen y algunas preparaciones evolucionan, así es que en El Taller decidieron hacer un helado que, para mí, es un regreso a mis días de colegio, a la infancia y ¿saben por qué? porque a pesar de tener helado su sabor se conserva intacto. 
@@ -65,6 +63,10 @@ Y así podría estar varias líneas más contándole sobre los sabores de helado
 
 ![](/images/uploads/comerybeber-eltaller-cafe-.jpg)
 
-Si de cafetería se trata, amé que hagan el **Fat White** una preparación de café que no encuentras en todos lados y acá les queda muy bien. Este es el primer local nacional que trabaja con los granos top de línea de Lavazza: los Tierra.  
+Si de cafetería se trata, amé que hagan el **Fat White** una preparación de café que no encuentras en todos lados y acá les queda muy bien. Este es el primer local nacional que trabaja con los granos top de línea de Lavazza: los Tierra. 
+
+Otro café que les recomiendo es el **Affogato** (café con helado de vainilla o avellana) también son una maravilla. 
+
+![](/images/uploads/comerybeber-eltaller-affogato.jpg)
 
 Qué más que decirles que si están antojados y quieren probar los helados de una nueva tienda, vayan a El Taller y se formen su propia opinión. **\#SOYprueboytecuento**
