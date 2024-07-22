@@ -30,7 +30,7 @@ El **Galaxy Ring** es un aro con estilo en Titanio Negro, Titanio Plata y Titani
 
 Cuando nos ejercitamos los hacemos sin necesidad de tocar el dispositivo y además podemos manejar funciones como apagar alarmas, tomar fotos, controlar la cámara SIN tocar el celular: usaremos sólo gestos. Lo que hacemos desde los smartwatch, pero ahora en un aparato más pequeño.
 
-![](/images/uploads/tech-samsung-todos-los-equipos.jpg)
+![null](/images/uploads/tech-samsung-todos-los-equipos.jpg)
 
 Está en 9 tamaños y este punto es importante, porque mientras más apegado esté a tu piel, su funcionamiento va a ser más eficiente con la batería, cuya duración máxima es de 7 días.
 
@@ -92,21 +92,21 @@ PC + SUS (bisagra).
 
 Proporciona carga portátil (361 mAh).
 
-> OTROS LANZAMIENTOS
+> **OTROS LANZAMIENTOS**
 
 El **Galaxy Watch 7** conserva el modelo tradicional y **Galaxy Watch Ultra** es más grande ideal para condiciones extremas. Para ambos relojes se desarrollaron procesadores más robustos en términos de tecnología y prometen ser más exactos al momento de monitorear nuestra salud.
 
-![](/images/uploads/tech-samsung-collage-relojes-.jpg)
+![null](/images/uploads/tech-samsung-collage-relojes-.jpg)
 
 En cuanto a los **Z Flip 6** y **Z Fold 6**, ambos evidencian cambios estéticos que van desde un sencillo borde plano a un potente sellado y protección de los equipos de un IP48.
 
 Los 2 equipos funcionan con el procesador Snapdragon 8 Gen 3 para Galaxy, que ya no sólo optimiza su desempeño, sino que también las funciones de la inteligencia artificial.
 
-![](/images/uploads/tech-collage-samsung-tele-fonos.jpg)
+![null](/images/uploads/tech-collage-samsung-tele-fonos.jpg)
 
 Finalmente están los **Galaxy Buds 3**, cuyo ajuste es menos intrusivo y los **Buds 3 Pro** con puntas de goma para un mejor sellado y sonido.
 
-![](/images/uploads/tech-samsung-buds.jpg)
+![null](/images/uploads/tech-samsung-buds.jpg)
 
 Desde este miércoles 24 de julio de 2024, estarán disponibles el Galaxy Ring, Galaxy Watch7 y Galaxy Watch Ultra.
 **\#SOYprueboytecuento**
