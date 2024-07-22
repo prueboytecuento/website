@@ -1,5 +1,5 @@
 ---
-title: 'Controla el celular y monitorea tu salud desde el Galaxy '
+title: Controla el celular y monitorea tu salud desde el Galaxy Ring
 showonlyimage: true
 date: '2024-07-22T14:11:19-04:00'
 image: /images/uploads/tech-samsung-ring.jpg
