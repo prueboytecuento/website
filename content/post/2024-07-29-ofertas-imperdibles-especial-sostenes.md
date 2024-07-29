@@ -50,17 +50,19 @@ Muy distinto a los anteriores es esta segunda opción **Everyday**. Es de microf
 
 Yo diría que mi busto es tamaño medio, pero prefiero no usar relleno. Sin embargo y como les dije más arriba, en este review quise mostrarles modelos para todos los gustos.
 
-![](/images/uploads/tendencia-soste-n-5.jpg)
+![null](/images/uploads/tendencia-soste-n-5.jpg)
 
 Lo que más me gustó de este fue el diseño y la banda gruesa que hay bajo la barba. No aprieta, es suave, hace que el modelo tenga un toque original, el grosor de los pabilos es medio. La verdad es que se trata de un modelo que uno no creería que calza tan bonito. Pero se ve precioso. Su valor sin descuento es de $10.990.
 
 Si tuvieran que pagar estos 3 sostenes Palmers en tienda, su costo sería de $30.970, pero en la Bodeganga del **Centro de Distribución El Panal (Av. Pdte Eduardo Frei Montalva 550, Renca)**, se ahorrarán $20.980.
 
-Díganme si no es precioso este bralette **ChicFrance** cuyo color base es el negro y sobre él hay encaje en tono cobrizo full destellante. El encaje es de figuras que simulan hojas grandes, es delicado, no pica y sus pabilos son finitos.
+Díganme si no es precioso este bralette **ChicFrance** cuyo color base es el negro y sobre él hay encaje en tono cobrizo full destellante foto principal). El encaje es de figuras que simulan hojas grandes, es delicado, no pica y sus pabilos son finitos.
 
 Es un bralette que cubre súper bien por los costados o bajo el brazo y la ancha cinta elástica que va debajo de lo triángulos es firme, sin llegar al punto de apretar. Una prenda 90% de poliamida y 10% de elastano ideal para usar con una blusa negra transparente o sólo con una chaqueta encima y un pantalón a la cintura.
 
 Esta prenda cuesta en tienda $16.990 y en la Bodeganga queda a $8.495, mientras que este último **Everyday** completamente negro, confeccionado con microfibra y con un cierre más alto entre el busto costaba $12.990 y queda en $6.495.
+
+![](/images/uploads/tendencia-soste-n-6.jpg)
 
 Es un sostén con forma pero suave y flexible. No hablo de copa ni de relleno. Es una prenda muy cómoda, liviana, fresca. La verdad es que todas las prendas son muy ricas y son un amplio stock las que van a poder vitrinear en esta bodega: calcetines (hay paquetes de 10 pares por $9.990), camisetas, calzones para niña (4 por $4.990), colaless, pantuflas, pijamas infantiles ($6.000), etc.
 
