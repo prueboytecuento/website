@@ -24,7 +24,7 @@ weight: '1'
 
 <!--more-->
 
-![null](/images/uploads/tendencia-soste-n-1-collage.jpg)
+![](/images/uploads/tendencia-soste-n-1-collage.jpg)
 
 Cuando les conté de estos MEGA descuentos en una nota anterior y en RRSS la pregunta más frecuente de ustedes fue por ellos y, aunque hay modelos de sostenes que no uso, los escogí para mostrarles variedad, calce, colores.
 
@@ -42,13 +42,15 @@ El valor original de esta pieza es de $9.990.
 
 Con la segunda opción volví a atreverme con tonos claro. Suelo comprarme ropa interior oscura porque con las cremas corporales se mancha muy rápido. Es un sostén blanco con tonos en celeste y azul que simulan flores. Ello, sumado a que el encaje es de flores. 
 
-![]()
+![](/images/uploads/tendencia-soste-n-3.jpg)
 
 Una prenda muy delicada, femenina, de cobertura media y tirantes anchos. La encuentran bajo el nombre **Seducción**, tiene barba e incluye un expansor del tirante. Fuera de oferta el modelo vale $9.990.
 
 Muy distinto a los anteriores es esta segunda opción **Everyday**. Es de microfibra, agradable al tacto, con una barba que moldea súper bien y una copa con relleno discreto que levanta y da la sensación que eres una talla más. De esos modelos que muchas agradecen porque tienen poco busto y quieren marcarlo más. 
 
 Yo diría que mi busto es tamaño medio, pero prefiero no usar relleno. Sin embargo y como les dije más arriba, en este review quise mostrarles modelos para todos los gustos.
+
+![]()
 
 Lo que más me gustó de este fue el diseño y la banda gruesa que hay bajo la barba. No aprieta, es suave, hace que el modelo tenga un toque original, el grosor de los pabilos es medio. La verdad es que se trata de un modelo que uno no creería que calza tan bonito. Pero se ve precioso. Su valor sin descuento es de $10.990.
 
