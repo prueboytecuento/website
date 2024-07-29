@@ -24,7 +24,7 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/tendencia-soste-n-1-collage.jpg)
+![null](/images/uploads/tendencia-soste-n-1-collage.jpg)
 
 Cuando les conté de estos MEGA descuentos en una nota anterior y en RRSS la pregunta más frecuente de ustedes fue por ellos y, aunque hay modelos de sostenes que no uso, los escogí para mostrarles variedad, calce, colores.
 
@@ -34,7 +34,7 @@ Las 3 primeras opciones que les mostraré en imágenes son las que escogí dentr
 
 El primer sostén es de microfibra, muy elasticado, suave, para nada rígido que es algo que valoro, porque no me gustan los rellenos y el relleno hace que el sostén sea como una armadura. El modelo **Everyday** tiene forma, no es sólo tela y es comodísimo.
 
-![](/images/uploads/tendencia-soste-n-2.jpg)
+![null](/images/uploads/tendencia-soste-n-2.jpg)
 
 Había varios modelos color palo rosa, pero este me encantó porque es con doble bretel delgado y la figura es triangular… Como la parte superior de un bikini y, lógico, sin arco. 
 
@@ -49,8 +49,6 @@ Una prenda muy delicada, femenina, de cobertura media y tirantes anchos. La encu
 Muy distinto a los anteriores es esta segunda opción **Everyday**. Es de microfibra, agradable al tacto, con una barba que moldea súper bien y una copa con relleno discreto que levanta y da la sensación que eres una talla más. De esos modelos que muchas agradecen porque tienen poco busto y quieren marcarlo más. 
 
 Yo diría que mi busto es tamaño medio, pero prefiero no usar relleno. Sin embargo y como les dije más arriba, en este review quise mostrarles modelos para todos los gustos.
-
-![]()
 
 Lo que más me gustó de este fue el diseño y la banda gruesa que hay bajo la barba. No aprieta, es suave, hace que el modelo tenga un toque original, el grosor de los pabilos es medio. La verdad es que se trata de un modelo que uno no creería que calza tan bonito. Pero se ve precioso. Su valor sin descuento es de $10.990.
 
