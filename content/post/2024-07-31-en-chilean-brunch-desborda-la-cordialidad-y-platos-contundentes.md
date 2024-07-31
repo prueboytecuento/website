@@ -37,7 +37,7 @@ Los invito a conocer el **Brunch del Huaso**, un mega plato con varias preparaci
 
 También me gustó, pero lo prefiero sin azúcar. Había una **Empanada de Pino** de masa crujiente, liviana y un relleno muy sabroso. En el plato también vienen 2 **Sopaipillas** que conquistaron el paladar de Vitoria y Thiago, un matrimonio brasilero que estaba de vacaciones en nuestro país y me comentó que este era el mejor lugar en donde habían comido desde su arribo a Chile.
 
-![](/images/uploads/comerybeber-chileanb-brasileros.jpg)
+![null](/images/uploads/comerybeber-chileanb-brasileros.jpg)
 
 “Muy bueno, maravilloso (el Brunch del Huaso). Me gustó ese pastel redondo (pastel en Brasil es una especie de empanada, pero ella hablaba de la sopaipilla). Muy buena. La comí sola y lo otro que me gustó mucho fue el Pastel de Choclo. Mil veces mejor que el que ya habías probado (en otro lado)”, comentó Vitoria. 
 
@@ -56,7 +56,7 @@ El **Mote con Huesillo** tenía el dulzor ideal y con un marcado sabor a especia
 
 Este enorme plato (**$16.500**) para compartir culmina con una **Ensalada de Frutas** de la estación: me tocó pera, arándanos, naranja y un kiwi madurito.
 
-![](/images/uploads/comerybeber-chileanb-postres.jpg)
+![null](/images/uploads/comerybeber-chileanb-postres2.jpg)
 
 Definitivamente este es un lugar ideal para ir con amigos, familia y visitantes extranjeros, porque es una rica manera de mostrarles un mix de comida chilena.
 
