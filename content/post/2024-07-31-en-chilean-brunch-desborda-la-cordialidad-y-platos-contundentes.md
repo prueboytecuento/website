@@ -25,11 +25,11 @@ weight: '1'
 
 <!--more-->
 
-![null](/images/uploads/comerybeber-chileanb-1-de-2.jpg)
+![](/images/uploads/comerybeber-chileanb-1-de-2.jpg)
 
 Se llama **\#ChileanBrunch** y es un espacio cargado de cultura: paredes con pinturas que puedes comprar si te gustan, una sala de teatro, un piano para escuchar buena música, un pequeño patio interior y más. Detalles delicados y bien pensados por **Daniel Hoppmann, quien heredó el lugar de sus padres y quiso agregarle al legado cultural, el culinario con sabores criollos**.
 
-Hubo 2 preparaciones que probamos con la Rafita (11). Ya saben que suelo ir a los restaurantes con mi pequeña degustadora porque muchos salimos con hijos o sobrinos y buscamos lugares en donde esperamos que ellos sí coman. **¡Ya basta del menú kids de Nuggets con Papás Fritas!**
+Hubo 2 preparaciones que probamos con la Rafita (11). Ya saben que suelo ir a los restaurantes con mi pequeña degustadora porque muchos salimos con hijos o sobrinos y buscamos lugares en donde esperamos que ellos sí coman. **¡Ya basta del menú kids de Nuggets con Papas Fritas!**
 
 > **BRUNCH DEL HUASO**
 
@@ -43,7 +43,7 @@ También me gustó, pero lo prefiero sin azúcar. Había una **Empanada de Pino*
 
 En lo personal, las sopaipillas estaban algo harinosas. No fueron lo que más me gustó y encontré genial que el **chef Alejandro Calderón** se tomara con altura de miras mi comentario y manifestara sus intenciones de seguir buscando su preparación perfecta. 
 
-![null](/images/uploads/comerybeber-chileanb-chef.jpg)
+![](/images/uploads/comerybeber-chileanb-chef.jpg)
 
 Las sopaipillas y empanada las probé solas y con **Chancho en Piedra** que estaba total y absolutamente apto para niños. Picante leve. Ideal para la pequeña degustadora de Pruebo y te cuento. 
 
@@ -56,7 +56,7 @@ El **Mote con Huesillo** tenía el dulzor ideal y con un marcado sabor a especia
 
 Este enorme plato (**$16.500**) para compartir culmina con una **Ensalada de Frutas** de la estación: me tocó pera, arándanos, naranja y un kiwi madurito.
 
-![](/images/uploads/comerybeber-chileanb-postres.jpg)
+![](/images/uploads/comerybeber-chileanb-postres2.jpg)
 
 Definitivamente este es un lugar ideal para ir con amigos, familia y visitantes extranjeros, porque es una rica manera de mostrarles un mix de comida chilena.
 
@@ -68,7 +68,7 @@ Mi idea es siempre mostrarles extremos, así es que escogimos en **Brunch Keto**
 
 Claro que de este plato lo que me dejó en estado máximo de satisfacción fue el **Huevo Pochado**. Una cosa es una palta cremosa y suave, otra es un huevo con la cocción perfecta para reventar y untar ambas partes con un buen trozo de pan. 
 
-![null](/images/uploads/comerybeber-chileanb-keto-ok.jpg)
+![](/images/uploads/comerybeber-chileanb-keto-ok.jpg)
 
 Pero si les digo que además todo esto viene sobre un timbal de salmón ahumado, rodeado con una lámina de beacon crocante y con un toque de merkén van a vivir una experiencia ma-ra-vi-llo-sa. Qué cosa más rica, qué disfrute más grande. Me faltan palabras para definir esta experiencia de sabores.
 
@@ -84,6 +84,6 @@ Raya para la suma, Chilean Brunch es un lugar rico para visitar: Hay amor en la 
 
 ¿Detalles? En las mesas hay mensajes escritos con chilenismos y su traducción al inglés para que los turistas nos entiendan al hablar. Los platos vienen con un pergamino en inglés para sepas qué estás comiendo.
 
-![null](/images/uploads/comerybeber-chileanb-bebidas.jpg)
+![](/images/uploads/comerybeber-chileanb-bebidas.jpg)
 
 Un lindo detalle fue encontrarme en medio de la alcuza con un emboque como símbolo de nuestros juegos típicos. Chilean Brunch es un lugar diferente que hay que conocer. Está ubicado en **Ernesto Pinto Lagarrigue 191**, pleno **Barrio Bellavista**. **\#SOYprueboytecuento**
