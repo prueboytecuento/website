@@ -2,7 +2,7 @@
 title: En Chilean Brunch desborda la cordialidad y platos contundentes
 showonlyimage: true
 date: '2024-07-31T11:26:51-04:00'
-image: /images/uploads/comerybeber-chileanb-1.jpg
+image: /images/uploads/comerybeber-chileanb-1-de-2.jpg
 rating: '1'
 tags:
   - Chilean Brunch
