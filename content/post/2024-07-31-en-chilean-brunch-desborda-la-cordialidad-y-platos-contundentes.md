@@ -16,6 +16,7 @@ tags:
   - Sopaipillas
   - Mote con Huesillo
   - Empanadas
+  - Comida Chilena
 categories:
   - COMER Y BEBER
 weight: '1'
