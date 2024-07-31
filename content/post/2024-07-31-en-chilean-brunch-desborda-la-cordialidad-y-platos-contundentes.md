@@ -40,6 +40,8 @@ También me gustó, pero lo prefiero sin azúcar. Había una **Empanada de Pino*
 
 En lo personal, las sopaipillas estaban algo harinosas. No fueron lo que más me gustó y encontré genial que el **chef Alejandro Calderón** se tomara con altura de miras mi comentario y manifestara sus intenciones de seguir buscando su preparación perfecta. 
 
+![](/images/uploads/comerybeber-chileanb-chef.jpg)
+
 Las sopaipillas y empanada las probé solas y con **Chancho en Piedra** que estaba total y absolutamente apto para niños. Picante leve. Ideal para la pequeña degustadora de Pruebo y te cuento. 
 
 Rafaela no suele comer este tipo de salsas y lo hizo. Chilean Brunch es afín para mini clientes con sus sabores nacionales.
@@ -61,7 +63,7 @@ Mi idea es siempre mostrarles extremos, así es que escogimos en **Brunch Keto**
 
 Claro que de este plato lo que me dejó en estado máximo de satisfacción fue el **Huevo Pochado**. Una cosa es una palta cremosa y suave, otra es un huevo con la cocción perfecta para reventar y untar ambas partes con un buen trozo de pan. 
 
-![null](/images/uploads/comerybeber-clhileanb-keto2.jpg)
+![null](/images/uploads/comerybeber-chileanb-keto-ok.jpg)
 
 Pero si les digo que además todo esto viene sobre un timbal de salmón ahumado, rodeado con una lámina de beacon crocante y con un toque de merkén van a vivir una experiencia ma-ra-vi-llo-sa. Qué cosa más rica, qué disfrute más grande. Me faltan palabras para definir esta experiencia de sabores.
 
