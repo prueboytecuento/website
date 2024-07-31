@@ -40,7 +40,7 @@ También me gustó, pero lo prefiero sin azúcar. Había una **Empanada de Pino*
 
 En lo personal, las sopaipillas estaban algo harinosas. No fueron lo que más me gustó y encontré genial que el **chef Alejandro Calderón** se tomara con altura de miras mi comentario y manifestara sus intenciones de seguir buscando su preparación perfecta. 
 
-![](/images/uploads/comerybeber-chileanb-chef.jpg)
+![null](/images/uploads/comerybeber-chileanb-chef.jpg)
 
 Las sopaipillas y empanada las probé solas y con **Chancho en Piedra** que estaba total y absolutamente apto para niños. Picante leve. Ideal para la pequeña degustadora de Pruebo y te cuento. 
 
@@ -79,4 +79,4 @@ Raya para la suma, Chilean Brunch es un lugar rico para visitar: Hay amor en la 
 
 ¿Detalles? En las mesas hay mensajes escritos con chilenismos y su traducción al inglés para que los turistas nos entiendan al hablar. Los platos vienen con un pergamino en inglés para sepas qué estás comiendo.
 
-Un lindo detalle fue encontrarme en medio de la alcuza con un emboque como símbolo de nuestros juegos típicos. Chilean Brunch es un lugar diferente que hay que conocer. Está ubicado en **Ernesto Pinto Lagarrigue 191**, pleno **Barrio Bellavista**. #SOYprueboytecuento
+Un lindo detalle fue encontrarme en medio de la alcuza con un emboque como símbolo de nuestros juegos típicos. Chilean Brunch es un lugar diferente que hay que conocer. Está ubicado en **Ernesto Pinto Lagarrigue 191**, pleno **Barrio Bellavista**. **\#SOYprueboytecuento**
