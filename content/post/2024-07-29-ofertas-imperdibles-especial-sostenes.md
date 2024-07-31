@@ -24,7 +24,7 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/tendencia-soste-n-1-collage.jpg)
+![null](/images/uploads/tendencia-soste-n-1-collage.jpg)
 
 Cuando les conté de estos MEGA descuentos en una nota anterior y en RRSS la pregunta más frecuente de ustedes fue por ellos y, aunque hay modelos de sostenes que no uso, los escogí para mostrarles variedad, calce, colores.
 
@@ -34,7 +34,7 @@ Las 3 primeras opciones que les mostraré en imágenes son las que escogí dentr
 
 El primer sostén es de microfibra, muy elasticado, suave, para nada rígido que es algo que valoro, porque no me gustan los rellenos y el relleno hace que el sostén sea como una armadura. El modelo **Everyday** tiene forma, no es sólo tela y es comodísimo.
 
-![](/images/uploads/tendencia-soste-n-2.jpg)
+![null](/images/uploads/tendencia-soste-n-2.jpg)
 
 Había varios modelos color palo rosa, pero este me encantó porque es con doble bretel delgado y la figura es triangular… Como la parte superior de un bikini y, lógico, sin arco. 
 
@@ -44,7 +44,7 @@ Con la segunda opción volví a atreverme con tonos claro. Suelo comprarme ropa 
 
 Una prenda muy delicada, femenina, de cobertura media y tirantes anchos. La encuentran bajo el nombre **Seducción**, tiene barba e incluye un expansor del tirante. Fuera de oferta el modelo vale $9.990.
 
-![](/images/uploads/tendencia-soste-n-3.jpg)
+![null](/images/uploads/tendencia-soste-n-3.jpg)
 
 Muy distinto a los anteriores es esta segunda opción **Everyday**. Es de microfibra, agradable al tacto, con una barba que moldea súper bien y una copa con relleno discreto que levanta y da la sensación que eres una talla más. De esos modelos que muchas agradecen porque tienen poco busto y quieren marcarlo más. 
 
@@ -54,16 +54,18 @@ Lo que más me gustó de este fue el diseño y la banda gruesa que hay bajo la b
 
 Si tuvieran que pagar estos 3 sostenes Palmers en tienda, su costo sería de $30.970, pero en la Bodeganga del **Centro de Distribución El Panal (Av. Pdte Eduardo Frei Montalva 550, Renca)**, se ahorrarán $20.980.
 
-![](/images/uploads/tendencia-soste-n-5.jpg)
+![null](/images/uploads/tendencia-soste-n-5.jpg)
 
-Díganme si no es precioso este bralette **ChicFrance** cuyo color base es el negro y sobre él hay encaje en tono cobrizo full destellante (**foto principal**). El encaje es de figuras que simulan hojas grandes, es delicado, no pica y sus pabilos son finitos.
+Díganme si no es precioso el bralette **ChicFrance** cuyo color base es el negro y sobre él hay encaje en tono cobrizo full destellante (**foto principal**). El encaje es de figuras que simulan hojas grandes, es delicado, no pica y sus pabilos son finitos.
 
 Es un bralette que cubre súper bien por los costados o bajo el brazo y la ancha cinta elástica que va debajo de lo triángulos es firme, sin llegar al punto de apretar. Una prenda 90% de poliamida y 10% de elastano ideal para usar con una blusa negra transparente o sólo con una chaqueta encima y un pantalón a la cintura.
 
 Esta prenda cuesta en tienda $16.990 y en la Bodeganga queda a $8.495, mientras que este último **Everyday** completamente negro, confeccionado con microfibra y con un cierre más alto entre el busto costaba $12.990 y queda en $6.495.
 
-![](/images/uploads/tendencia-soste-n-6.jpg)
+![null](/images/uploads/tendencia-soste-n-6.jpg)
 
-Es un sostén con forma pero suave y flexible. No hablo de copa ni de relleno. Es una prenda muy cómoda, liviana, fresca. La verdad es que todas las prendas son muy ricas y son un amplio stock las que van a poder vitrinear en esta bodega: calcetines (hay paquetes de 10 pares por $9.990), camisetas, calzones para niña (4 por $4.990), colaless, pantuflas, pijamas infantiles ($6.000), etc.
+Es un sostén con forma pero suave y flexible. No hablo de copa ni de relleno. Es una prenda muy cómoda, liviana, fresca. La verdad es que todas las prendas son muy ricas y es un amplio stock el que van a poder vitrinear en esta bodega: calcetines (hay paquetes de 10 pares por $9.990), camisetas, calzones para niña (4 por $4.990), colaless, pantuflas, pijamas infantiles ($6.000), etc.
 
-Imposible salir con las manos vacías. En la Bodeganga hay productos **Palmers**, **Sloggi**, **ChicFrance**, **Triumph**, **Enersocks**. Me cuentan cómo les va. **\#SOYprueboytecuento**
+Imposible salir con las manos vacías. En la Bodeganga hay productos **Palmers**, **Sloggi**, **ChicFrance**, **Triumph**, **Enersocks** y está abierta de lunes a domingo entre las 10 a 18 horas. Sin embargo, la bodega se reserva el derecho de hacer un cierre anticipado los fines de semana si hay mucho público.
+
+**Punto a considerar**: No hay probadores, así es que tienen que tener súper claro su tallaje y si es ropa interior llévense las tallas considerando modelos similares que tengan en casa y una cinta métrica. Yo hice eso y no tuve problemas. **\#SOYprueboytecuento**
