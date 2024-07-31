@@ -29,7 +29,7 @@ weight: '1'
 
 Se llama **\#ChileanBrunch** y es un espacio cargado de cultura: paredes con pinturas que puedes comprar si te gustan, una sala de teatro, un piano para escuchar buena música, un pequeño patio interior y más. Detalles delicados y bien pensados por **Daniel Hoppmann, quien heredó el lugar de sus padres y quiso agregarle al legado cultural, el culinario con sabores criollos**.
 
-Hubo 2 preparaciones que probamos con la Rafita (11). Ya saben que suelo ir a los restaurantes con mi pequeña degustadora porque muchos salimos con hijos o sobrinos y buscamos lugares en donde esperamos que ellos sí coman. **¡Ya basta del menú kids de Nuggets con Papás Fritas!**
+Hubo 2 preparaciones que probamos con la Rafita (11). Ya saben que suelo ir a los restaurantes con mi pequeña degustadora porque muchos salimos con hijos o sobrinos y buscamos lugares en donde esperamos que ellos sí coman. **¡Ya basta del menú kids de Nuggets con Papas Fritas!**
 
 > **BRUNCH DEL HUASO**
 
