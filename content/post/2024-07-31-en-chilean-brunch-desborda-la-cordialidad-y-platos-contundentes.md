@@ -24,7 +24,7 @@ weight: '1'
 
 <!--more-->
 
-![null](/images/uploads/comerybeber-chileanb-1.jpg)
+![null](/images/uploads/comerybeber-chileanb-1-de-2.jpg)
 
 Se llama **\#ChileanBrunch** y es un espacio cargado de cultura: paredes con pinturas que puedes comprar si te gustan, una sala de teatro, un piano para escuchar buena música, un pequeño patio interior y más. Detalles delicados y bien pensados por **Daniel Hoppmann, quien heredó el lugar de sus padres y quiso agregarle al legado cultural, el culinario con sabores criollos**.
 
@@ -79,4 +79,4 @@ Raya para la suma, Chilean Brunch es un lugar rico para visitar: Hay amor en la 
 
 ¿Detalles? En las mesas hay mensajes escritos con chilenismos y su traducción al inglés para que los turistas nos entiendan al hablar. Los platos vienen con un pergamino en inglés para sepas qué estás comiendo.
 
-Un lindo detalle fue encontrarme en medio de la alcuza con un emboque como símbolo de nuestros juegos típicos. Chilean Brunch es un lugar diferente que hay que conocer. Está ubicado en **Ernesto Pinto Lagarrigue 191**, pleno **Barrio Bellavista**. **\#SOYprueboytecuento**
+Un lindo detalle fue encontrarme en medio de la alcuza con un emboque como símbolo de nuestros juegos típicos. Chilean Brunch es un lugar diferente que hay que conocer. Está ubicado en **Ernesto Pinto Lagarrigue 191**, pleno **Barrio Bellavista**. #SOYprueboytecuento
