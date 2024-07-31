@@ -61,7 +61,7 @@ Mi idea es siempre mostrarles extremos, así es que escogimos en **Brunch Keto**
 
 Claro que de este plato lo que me dejó en estado máximo de satisfacción fue el **Huevo Pochado**. Una cosa es una palta cremosa y suave, otra es un huevo con la cocción perfecta para reventar y untar ambas partes con un buen trozo de pan. 
 
-![](/images/uploads/comerybeber-clhileanb-keto.jpg)
+![null](/images/uploads/comerybeber-clhileanb-keto2.jpg)
 
 Pero si les digo que además todo esto viene sobre un timbal de salmón ahumado, rodeado con una lámina de beacon crocante y con un toque de merkén van a vivir una experiencia ma-ra-vi-llo-sa. Qué cosa más rica, qué disfrute más grande. Me faltan palabras para definir esta experiencia de sabores.
 
