@@ -15,7 +15,7 @@ tags:
   - Gastronomía
   - Food
 categories:
-  - DATO
+  - PANORAMAS
 weight: '1'
 ---
 **\#prueboytecuentoCOMERYBEBER** Son 3 días de una de las grandes celebraciones costumbristas de **\#Chillán** y tendrá a los mejores exponentes de este producto con denominación de origen que solemos disfrutar a la parrilla. En especial durante Fiestas Patrias.
