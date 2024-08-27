@@ -21,7 +21,7 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/tech-honor-pad9.jpg)
+![null](/images/uploads/tech-honor-pad9.jpg)
 
 Hace mucho que quería contarles sobre la **\#HonorPad9**, un equipo que demuestra que accesibilidad económica no es sinónimo de mala calidad. ¿Se acuerdan cuando los celulares eran de uso exclusivo de algunos o sólo se subían a un avión quienes tenían un alto poder adquisitivo? Con la tecnología pasa lo mismo.
 
@@ -33,9 +33,13 @@ Tal vez en los contactos Zoom, Meet u otros no haya una imagen tan perfecta, per
 
 Sus cámaras con IA son de gran nivel. La trasera es circular y sin relieve, lo que hace a este equipo más cómodo de manipular. 
 
+![](/images/uploads/tech-honor-camara-trasera.jpg)
+
 A pesar de tratarse de una tablet grande, en comparación a las que podemos encontrar hoy en el mercado, es muy liviana (550 gramos), delgada (0,7cms.), plana, lo que hace fácil su uso.
 
 Un punto full destacable es su sistema de sonido. Potente. Tiene 8 altavoces que reproducen en estéreo, con claridad. Básicamente puedes escuchar música sin la necesidad de conectar la tablet a un reproductor de sonido.
+
+![](/images/uploads/tech-honor-vertical.jpg)
 
 Las salidas de audio están por los bordes del equipo y no de frente, lo que hace más agradable la experiencia. No molesta el ruido porque está bien distribuido.
 
