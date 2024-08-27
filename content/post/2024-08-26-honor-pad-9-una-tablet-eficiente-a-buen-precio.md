@@ -47,6 +47,8 @@ Funciona con puerto de carga USB-C, el equipo sí viene con cargador y de carga 
 
 La autonomía de carga es de aproximadamente 7 horas usando RRSS, música, videos, correo, etc.
 
+Este equipo cuenta con las apps de Google y Google Chrome.
+
 No trae teclado aparte del de la pantalla ni lápiz. Tampoco tiene salida para enchufar audífonos, aunque casi todos echamos manos a los inalámbricos que son más cómodos, así es que no le veo mayor problema. 
 
 La Honor Pad 9 funciona bien y si pongo en la balanza precio, beneficios, funcionalidad y calidad, el valor es justo: el equipo de 256GB cuesta $399.990.
