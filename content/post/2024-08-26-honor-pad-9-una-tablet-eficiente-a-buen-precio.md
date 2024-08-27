@@ -1,7 +1,7 @@
 ---
 title: 'Honor Pad 9: una tablet eficiente a buen precio'
 showonlyimage: true
-date: '2024-08-26T14:24:22-04:00'
+date: '2024-08-22T14:24:22-04:00'
 image: /images/uploads/tech-honor-pad9.jpg
 rating: '1'
 tags:
