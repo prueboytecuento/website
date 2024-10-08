@@ -29,6 +29,8 @@ Y no sólo visualizándolo, sino además recibiendo coordenadas sobre velocidad 
 
 Cuenta con asistencia de bienestar emocional. ¿Cómo así? A la Gestión Integral de Salud que tienen la mayoría de los dispositivos de muñeca (ECG, detección de rigidez arterial, monitoreo de respiración durante el sueño, ritmo cardiaco, SpO2, temperatura cutánea, sueño y estrés), los chicos de Huawei sumaron una herramienta que permite identificar cuándo estás más irritable, a gusto o un estado de ánimo más neutral.
 
+![null](/images/uploads/tech-huawei-reloj-negro.jpg)
+
 Lo anterior te permite trabajar junto con el reloj ejercicios para encontrar la calma y equilibrio.
 
 Siempre agradezco que algunos relojes inteligentes consideren los deportes en agua salada y, en esta pasada, toda la serie GT 5 es apta para buceo libre con inmersiones de hasta 40 metros. Se puede programar para realizar bajadas controladas y te avise la profundidad específica a la que quieres llegar.
