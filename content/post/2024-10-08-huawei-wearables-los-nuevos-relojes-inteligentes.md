@@ -37,13 +37,15 @@ Siempre agradezco que algunos relojes inteligentes consideren los deportes en ag
 
 Si eres bueno para subir cerros, la función de carrera de montaña puede convertirse en una gran aliada, porque va indicando las características del terreno como si es plano, hay inclinación, obstáculos y también es de los dispositivos que marcan por donde pasaste para no perderte y volver al punto de inicio sin problemas.
 
+![](/images/uploads/tech-huawei-reloj-blanco.jpg)
+
 Y así son muchas las novedades de estos relojes compatible con IOS y Android, cuya batería dura hasta 2 semanas. Relojes que en sus versiones HUAWEI WATCH GT 5 Pro y GT 5 están fabricados con cristal de zafiro, nano cerámica y titanio, y son aptos para pieles sensibles.
 
 En el caso de los Pro hay 2 modelos masculinos (negro y plata) con distintos tipos de correas, diseño y detalles. Los femeninos también son 2, ambos blancos con pulseras en el mismo color, claro que una tradicional y otras en prisma en 3D. La corona y bisel son dorados y pulidos con forma de hojas. Hermosos, aunque el 3D me mató.
 
 Hay otro equipo que no puedo dejar de mencionar: el **HUAWEI WATCH D2** que tiene la capacidad de monitorear la presión arterial y entregar datos exactos sobre cómo te encuentras en caso de tener hipertensión y te sientes mal. Con un touch, el reloj se infla y toma tu presión. 
 
-![](/images/uploads/tech-huawei-presio-n.jpg)
+![null](/images/uploads/tech-huawei-presio-n.jpg)
 
 Este equipo está certificado por entidades regulatorias de China, como la NMPA (Administración Nacional de Productos Médicos del Consejo de Estado de China) y el MDR (Regulación de Dispositivos Médicos de China). 
 
