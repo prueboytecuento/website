@@ -29,6 +29,8 @@ Y no sólo visualizándolo, sino además recibiendo coordenadas sobre velocidad 
 
 Cuenta con asistencia de bienestar emocional. ¿Cómo así? A la Gestión Integral de Salud que tienen la mayoría de los dispositivos de muñeca (ECG, detección de rigidez arterial, monitoreo de respiración durante el sueño, ritmo cardiaco, SpO2, temperatura cutánea, sueño y estrés), los chicos de Huawei sumaron una herramienta que permite identificar cuándo estás más irritable, a gusto o un estado de ánimo más neutral.
 
+![](/images/uploads/tech-huawei-reloj-negro.jpg)
+
 Lo anterior te permite trabajar junto con el reloj ejercicios para encontrar la calma y equilibrio.
 
 Siempre agradezco que algunos relojes inteligentes consideren los deportes en agua salada y, en esta pasada, toda la serie GT 5 es apta para buceo libre con inmersiones de hasta 40 metros. Se puede programar para realizar bajadas controladas y te avise la profundidad específica a la que quieres llegar.
@@ -40,8 +42,6 @@ Y así son muchas las novedades de estos relojes compatible con IOS y Android, c
 En el caso de los Pro hay 2 modelos masculinos (negro y plata) con distintos tipos de correas, diseño y detalles. Los femeninos también son 2, ambos blancos con pulseras en el mismo color, claro que una tradicional y otras en prisma en 3D. La corona y bisel son dorados y pulidos con forma de hojas. Hermosos, aunque el 3D me mató.
 
 Hay otro equipo que no puedo dejar de mencionar: el **HUAWEI WATCH D2** que tiene la capacidad de monitorear la presión arterial y entregar datos exactos sobre cómo te encuentras en caso de tener hipertensión y te sientes mal. Con un touch, el reloj se infla y toma tu presión. 
-
-![](/images/uploads/tech-huawei-presio-n.jpg)
 
 Este equipo está certificado por entidades regulatorias de China, como la NMPA (Administración Nacional de Productos Médicos del Consejo de Estado de China) y el MDR (Regulación de Dispositivos Médicos de China). 
 
