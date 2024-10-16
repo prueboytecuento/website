@@ -36,11 +36,13 @@ Con esta manera de producir que, para que se hagan una idea, tiene 7 eternas lí
 
 Y no fue un invento de los panaderos Walmart. Junto al **DICTUC (Dirección de Investigaciones Científicas y Tecnológicas de la Universidad Católica)**, estudiaron panes de la competencia fresco y envasado, panes de locales de barrio y fue así que comenzaron a trabajar en la receta correcta y llegaron, por ejemplo, a una marraqueta crujiente, de miga esponja y que no se endurece de un día a otro.
 
-![null](/images/uploads/comerybeber-pan-bolsas.jpg)
+![](/images/uploads/comerybeber-pan-bolsas.jpg)
 
 Como en la mayoría de los supermercados está el pan para escoger con pinzas y el envasado precocido, que es mi favorito porque puedo servirlo calientito en los desayunos. Este último viene cerrado con una atmósfera modificada que permite que dure en la despensa hasta 30 días. Una vez abierto hay que guardarlo en el refri. 
 
 Fue espectacular vivir la ruta del pan y otros alimentos. Porque, claro, uno imagina máquinas mezcladora grandes en panaderías o supermercados, además de personas dándole forma a cada variedad o metiendo y sacando el pan a los hornos. Pasar de eso a un sistema que mezcla, amasa, da forma y el toque de cocción preciso antes de irse al área en embolsado y, luego, a donde los brazos de unos robots que abren las cajas en donde se guardará ese pan antes de irse a distintos puntos de Chile me gustó mucho.
+
+![](/images/uploads/comerybeber-pan-walpress.jpg)
 
 Algunos datos interesantes. A las 15 millones de marraquetas que la empresa vende al mes, puedo sumarle que durante la línea de producción van saliendo 3.300 panes por hora y 2.000 pizzas en la misma cantidad de tiempo. 
 
@@ -68,6 +70,8 @@ Por supuesto y como ya es tradición, me sacrifiqué por ustedes y probe las ult
 **Baguette:** Este tipo de pan siempre me pincha la boca porque por fuera es muy duro. Es sabroso pero se me hace desagradable comerlo. El de Walmart es blando sin perder crocancia.
 
 **Dobladitas precocidas:** Con 12 minutos a 200 grados en la air fryer queda espectacular. La dobladita se caracteriza por ser un pan más denso, no así grueso. La diferencia con otras que he probado es que esta es crujiente. No sé cómo lo hicieron, pero da gusto cómo se desarman las capitas en tu boca.
+
+![](/images/uploads/comerybeber-pan-listo.jpg)
 
 **Hullulla precocida:** Con 12 minutos a 200 grados en la air fryer queda bien. A mi hija Rafaela (11) le encanta el “pan redondo” como le dice y lo aprobó totalmente. Importante decir que es un pan de grosor moderado, justo. Hay Hallullas que terminan siendo sólo miga y a nosotros como familia al menos no nos gusta.
 
