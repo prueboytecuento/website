@@ -44,8 +44,7 @@ Algunos datos interesantes. A las 15 millones de marraquetas que la empresa vend
 
 Entre los on top de Walmart están las magdalenas… Se mueren pasar por el área de elaboración e impregnarse del aroma a vainilla. Hambre nivel Dios. Es uno de sus productos más vendidos por precio (6 X $1.000) y calidad. Me habían dicho que eran menos aceitosas y confirmo. No tienes que agarrar varias servilletas para limpiarte.
 
-**¿Sabían que Chile es el 3er país del mundo que más pan consume, por debajo de Turquía y Alemania? 
-**
+**¿Sabían que Chile es el 3er país del mundo que más pan consume, por debajo de Turquía y Alemania?**
 
 * 96 kg per cápita anual.
 * 15,7Kg Consumo hogar promedio mensual.
