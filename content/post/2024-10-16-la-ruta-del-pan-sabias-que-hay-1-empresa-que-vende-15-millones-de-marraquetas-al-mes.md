@@ -50,8 +50,7 @@ Entre los on top de Walmart están las magdalenas… Se mueren pasar por el áre
 
 ![](/images/uploads/comerybeber-pan-magda.jpg)
 
-**¿Sabían que Chile es el 3er país del mundo que más pan consume, por debajo de Turquía y Alemania? 
-**
+**¿Sabían que Chile es el 3er país del mundo que más pan consume, por debajo de Turquía y Alemania?**
 
 * 96 kg per cápita anual.
 * 15,7Kg Consumo hogar promedio mensual.
