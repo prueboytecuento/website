@@ -36,19 +36,19 @@ Con esta manera de producir que, para que se hagan una idea, tiene 7 eternas lí
 
 Y no fue un invento de los panaderos Walmart. Junto al **DICTUC (Dirección de Investigaciones Científicas y Tecnológicas de la Universidad Católica)**, estudiaron panes de la competencia fresco y envasado, panes de locales de barrio y fue así que comenzaron a trabajar en la receta correcta y llegaron, por ejemplo, a una marraqueta crujiente, de miga esponja y que no se endurece de un día a otro.
 
-![](/images/uploads/comerybeber-pan-bolsas.jpg)
+![null](/images/uploads/comerybeber-pan-bolsas.jpg)
 
 Como en la mayoría de los supermercados está el pan para escoger con pinzas y el envasado precocido, que es mi favorito porque puedo servirlo calientito en los desayunos. Este último viene cerrado con una atmósfera modificada que permite que dure en la despensa hasta 30 días. Una vez abierto hay que guardarlo en el refri. 
 
 Fue espectacular vivir la ruta del pan y otros alimentos. Porque, claro, uno imagina máquinas mezcladora grandes en panaderías o supermercados, además de personas dándole forma a cada variedad o metiendo y sacando el pan a los hornos. Pasar de eso a un sistema que mezcla, amasa, da forma y el toque de cocción preciso antes de irse al área en embolsado y, luego, a donde los brazos de unos robots que abren las cajas en donde se guardará ese pan antes de irse a distintos puntos de Chile me gustó mucho.
 
-![](/images/uploads/comerybeber-pan-walpress.jpg)
+![null](/images/uploads/comerybeber-pan-walpress.jpg)
 
 Algunos datos interesantes. A las 15 millones de marraquetas que la empresa vende al mes, puedo sumarle que durante la línea de producción van saliendo 3.300 panes por hora y 2.000 pizzas en la misma cantidad de tiempo. 
 
 Entre los on top de Walmart están las magdalenas… Se mueren pasar por el área de elaboración e impregnarse del aroma a vainilla. Hambre nivel Dios. Es uno de sus productos más vendidos por precio (6 X $1.000) y calidad. Me habían dicho que eran menos aceitosas y confirmo. No tienes que agarrar varias servilletas para limpiarte.
 
-![](/images/uploads/comerybeber-pan-magda.jpg)
+![null](/images/uploads/comerybeber-pan-magda.jpg)
 
 **¿Sabían que Chile es el 3er país del mundo que más pan consume, por debajo de Turquía y Alemania?**
 
@@ -70,10 +70,10 @@ Por supuesto y como ya es tradición, me sacrifiqué por ustedes y probe las ult
 
 **Dobladitas precocidas:** Con 12 minutos a 200 grados en la air fryer queda espectacular. La dobladita se caracteriza por ser un pan más denso, no así grueso. La diferencia con otras que he probado es que esta es crujiente. No sé cómo lo hicieron, pero da gusto cómo se desarman las capitas en tu boca.
 
-![](/images/uploads/comerybeber-pan-listo.jpg)
+![null](/images/uploads/comerybeber-pan-listo.jpg)
 
 **Hullulla precocida:** Con 12 minutos a 200 grados en la air fryer queda bien. A mi hija Rafaela (11) le encanta el “pan redondo” como le dice y lo aprobó totalmente. Importante decir que es un pan de grosor moderado, justo. Hay Hallullas que terminan siendo sólo miga y a nosotros como familia al menos no nos gusta.
 
 **Hallulla Integral precocido:** Con 9 minutos a 200 grados en la air fryer queda bien. A diferencia de los panes anteriores, en casa coincidimos en que tiene buen sabor, pero es un poco más seca. Si me dan a escoger, optaría por un pan con semillas, sin ser esta hallulla integral mala. Cosa de gustos.
 
-Qué más que decirles que soy del team **\#PanLover**, que disfruto una marraqueta untada en el jugo del tomate, que amo los tapaditos con semillas, un fondue de quesos de quesos con pan rústico y así podría seguir y seguir. **\#SOYprueboytecuento**
+Qué más que decirles que soy del team **\#PanLover**, que disfruto una marraqueta untada en el jugo del tomate, que amo los tapaditos con semillas, un fondue de quesos con pan rústico y así podría seguir y seguir. **\#SOYprueboytecuento**
