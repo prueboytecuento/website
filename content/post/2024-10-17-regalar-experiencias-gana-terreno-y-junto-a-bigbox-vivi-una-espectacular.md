@@ -32,11 +32,15 @@ Las opciones son infinitas, pero quiero hablarles de esta en donde junto a un gr
 
 Películas románticas con escenas cruciales que han estado marcadas por cocteles: los mixólogos Nadin Elías y Raúl Fajardo partieron con “Casablanca” (1942). Pedazo de producción y de actores.
 
+![](/images/uploads/comerybeber-bigb-french.jpg)
+
 Me encantó el link que hicieron con la película en aquella escena en la que los protagonistas Rick (Humphrey Bogart) y IIsa (Ingrid Bergman) se despiden para siempre bebiendo un **French 75**. Es ahí que él renuncia a ella (IIsa se va con otro) y se despacha la frase “siempre nos quedará Paris”.
 
 Sobre la Madonna, mesa especial con todo lo necesario para preparar los tragos (por supuestos nos explicaron para qué servía cada elemento), hicimos este refrescante brebaje con gin, jugo de limón, syrup (yo usé Fluer de Sureau) y hielo. Todo a la coctelera y a batir cuando, en paralelo, la copa se enfriaba con otros hielos. 
 
 Paso final: tomar una cascarita de limón, apretarla por el lado amarillo sobre el trago ya vertido en la copa para soltar sus aceites esenciales. Nunca había visto eso y es impresionante cuántas gotitas libera la cáscara, aroma y gusto. Amé esta preparación.
+
+![](/images/uploads/comerybeber-bidb-mgcollage.jpg)
 
 > **PERO, ¿QUÉ PASA CON LOS QUE NO BEBEN ALCOHOL Y QUIEREN APRENDER?**
 
@@ -45,6 +49,8 @@ Hasta ahora tenía en mis registros las cervezas, espumantes y vinos sin alcohol
 Así es que en representación de todos los que no iban a beber alcohol por gusto, orden médica, porque iban a manejar, etc. preparé los 2 siguientes tragos con “destilados” sin alcohol y comparé sabores con los sí tenían.
 
 Hicimos un **Apple Martini** de la cinta “Separados” de Jennifer Aniston y un **Mint Julep** por “El gran Gatsby”. Honestamente con y sin alcohol quedaron muy ricos y definitivamente voy a aplicar todo lo que aprendí en esta experiencia Bigbox en casa.
+
+![](/images/uploads/comerybeber-bigb-verdes-collage.jpg)
 
 **¿Qué otras experiencias tienen?** La empresa cuenta con 6 categorías: 
 
