@@ -47,8 +47,7 @@ Mario como personaje y juego son cartas segura de éxito, porque hay un público
 
 ![](/images/uploads/tech-nintendo-jamb-pilar-p.jpg)
 
-**\-¿Es correcto afirmar que esta es la última versión de Super Mario Party y por eso es tan contundente en contenido?
-**
+**\-¿Es correcto afirmar que esta es la última versión de Super Mario Party y por eso es tan contundente en contenido?**
 
 \-No es correcto, porque no sabemos si va a haber más o no. Es simplemente la más reciente.
 
