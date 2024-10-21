@@ -23,7 +23,7 @@ weight: '1'
 
 <!--more-->
 
-![null](/images/uploads/tech-nintendo-jamboree-ppal.jpg)
+![](/images/uploads/tech-nintendo-jamboree-ppal.jpg)
 
 El **Super Mario Party Jamboree** es una infinidad de opciones de juegos dentro de uno que garantiza horas de desafíos, de entretenerme, de ponerme a prueba en distintos niveles de dificultad con varios amigos porque se puede jugar de 4 personas presencial y 20 en línea, pero sobre todo seguir disfrutando con el Mario y Luigi que conocí a principios de los 90 en la **NES** (**Nintendo Entertainment System - 1era consola Nintendo**) de mi hermano chico.
 
@@ -44,6 +44,8 @@ Los otros tableros son: **Plaza Arcoíris**, **Isla Goomba**, **Mundo del Oeste*
 Mario como personaje y juego son cartas segura de éxito, porque hay un público cautivo que por años lo acompaña desde su consola. Pero qué pasa con las nuevas generaciones.
 
 “Lo primero es innovar que es algo que Nintendo siempre está haciendo, buscando características que puedan atraer a los fans experimentados de siempre y de sus franquicias, pero también nuevos que se sumen a jugar”, comenta Pilar Pueblita, PR Manager para LATAM. “Este modo de hasta 20 jugadores online es más un elemento de innovación que se está sumando en uno de sus juegos principales de Nintendo”, agrega.
+
+![](/images/uploads/tech-nintendo-jamb-pilar-p.jpg)
 
 **\-¿Es correcto afirmar que esta es la última versión de Super Mario Party y por eso es tan contundente en contenido?
 **
