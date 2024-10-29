@@ -1,5 +1,5 @@
 ---
-title: Los refrigeradores ultra delgados y empotrables de Midea
+title: Los refrigeradores ultradelgados y empotrables de Midea
 showonlyimage: true
 date: '2024-10-29T14:13:09-03:00'
 image: /images/uploads/tech-midea-refri-ppal.jpg
