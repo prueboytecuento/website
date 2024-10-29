@@ -39,4 +39,4 @@ Son refris inteligentes que se pueden manejar desde el teléfono vía WIFI, con 
 
 Estamos rodeados de refrigeradores cuyos compartimentos en las puertas no sirven para nada, porque los productos no caben por forma y dimensiones.
 
-Más detalles de los equipos en la web mencionada o, mejor aún, vayan y conózcanlos en tienda si tienen planes de renovar su refrigerador. **\#SOYprueboytecuento **
+Más detalles de los equipos en la web mencionada o, mejor aún, vayan y conózcanlos en tienda si tienen planes de renovar su refrigerador. **\#SOYprueboytecuento**
