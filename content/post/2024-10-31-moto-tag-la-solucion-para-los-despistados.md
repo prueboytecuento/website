@@ -45,6 +45,8 @@ El rastreo es por la App de Google, pero para ello usa Bluetooth y UWB (Ultra-Wi
 
 Me parece fantástico en caso de robos. Podremos llegar al punto exacto en dónde están nuestros objetos sustraídos. 
 
+![](/images/uploads/tech-moto-tag-paso-a-paso-ok.jpg)
+
 * **Paso 3:** De manera opcional pueden descargar la **App Moto Tag** y desde ahí comandar todo: volumen del pito, revisar actualizaciones del dispositivo, revisar características y, lógico, buscar el objeto que tengan asociado al Moto Tag.
 
 Súper simple, rápido y eficiente. Este aparato tiene una autonomía de batería de 1 año, por lo tanto, no hay que darse la lata de estar cargándolo cada cierto tiempo. 
