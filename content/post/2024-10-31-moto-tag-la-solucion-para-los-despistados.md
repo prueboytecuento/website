@@ -22,7 +22,7 @@ weight: '1'
 
 <!--more-->
 
-![null](/images/uploads/tech-moto-tag-ppal.jpg)
+![](/images/uploads/tech-moto-tag-ppal.jpg)
 
 El **Moto tag** es un pequeño disco que puedes guardar en la cartera, mochila, colgar en las llaves del auto o casa, maletas cuando viajas, cajones en donde dejas documentos importantes, closet o cercano a otros dispositivos. La idea es tener la seguridad de que vas a llegar a ellos sin la necesidad de calentarte la cabeza buscándolos por varios minutos.
 
@@ -37,6 +37,9 @@ Si en ese momento hubiese dejado un **\#MotoTag** cerca de los tickets todo habr
 Lo tienen que emparejar con su smartphone. En varios países es compatible con **IOS** y **Android**, mientras que para Chile lo podrán usar con este segundo sistema operativo móvil.
 
 * **Paso 1:** Pon el Moto Tag cerca de tu teléfono Motorola o el de la compañía que uses y tenga Android. Yo lo hice con el modelo de alta gama **razr 50** de **Motorola** y reconozco que al principio me costó linkearlos, pero lo logré. Se cargó en menos de 1 minuto vía Bluethooth.
+
+![](/images/uploads/tech-moto-tag-razr50-ok.jpg)
+
 * **Paso 2:** Para ponerlo en práctica tenemos que usar **“Encontrar mi dispositivo”** de **Google**. Usualmente cuando tienen Gmail se descargan todas las funciones de Google, de lo contrario baja la App. Entren y les va a aparecer el nombre de su teléfono y automáticamente el Moto Tag. Este pequeño disco tiene un botón al centro que al apretarlo emite el pito. 
 
 Si el dispositivo está lejos, van al celular, entran a **“Encontrar mi dispositivo”**, pinchan **Moto Tag**, luego, **“Buscar Cercanos”** y les va a aparecer la imagen del disco. Pinchan y se abre el mapa de dónde está. Podrán escuchar el pito si está cerca. En caso de encontrarse a gran distancia, tendrán a mano la localización.
@@ -47,7 +50,7 @@ Me parece fantástico en caso de robos. Podremos llegar al punto exacto en dónd
 
 ![](/images/uploads/tech-moto-tag-paso-a-paso-ok.jpg)
 
-* **Paso 3:** De manera opcional pueden descargar la **App Moto Tag** y desde ahí comandar todo: volumen del pito, revisar actualizaciones del dispositivo, revisar características y, lógico, buscar el objeto que tengan asociado al Moto Tag.
+* **Paso 3:** También pueden descargar la **App Moto Tag** y desde ahí comandar todo: volumen del pito, revisar actualizaciones del dispositivo, revisar características y, lógico, buscar el objeto que tengan asociado al Moto Tag.
 
 Súper simple, rápido y eficiente. Este aparato tiene una autonomía de batería de 1 año, por lo tanto, no hay que darse la lata de estar cargándolo cada cierto tiempo. 
 
