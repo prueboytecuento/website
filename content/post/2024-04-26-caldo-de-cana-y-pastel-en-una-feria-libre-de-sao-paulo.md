@@ -21,7 +21,7 @@ tags:
   - São Paulo
   - Gran São Paulo
 categories:
-  - ONTOUR
+  - ON TOUR
 weight: '1'
 ---
 **\#prueboytecuentoONTOUR** Como ya les conté en una nota anterior, es un estado que supera los 44 millones de habitantes, así es que se imaginarán la cantidad de cosas que se pueden hacer en esta metrópoli de **\#Brasil**. Y comer cositas ricas es una de las tantas.
