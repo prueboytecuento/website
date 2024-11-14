@@ -68,5 +68,4 @@ En ambos países, se requiere una serie de documentos como prueba de la inversi�
 
 Si les interesa conocer más sobre esta posibilidad, siempre es recomendable consultar con expertos, que puedan asesorar a los interesados en el proceso. 
 
-Más información y orientación profesional en  **https://goaimglobal.com/**. **\#SOYprueboytecuento
-**
+Más información y orientación profesional en  **https://goaimglobal.com/**. **\#SOYprueboytecuento**
