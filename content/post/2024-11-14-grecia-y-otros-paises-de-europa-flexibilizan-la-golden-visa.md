@@ -32,6 +32,8 @@ Este umbral de €250.000, sin embargo, se mantiene para dos tipos de inversión
 
 Y señala: “Como requerimiento adicional, la startup debe crear al menos 2 puestos de trabajo durante el primer año. La idea principal es transformar el modelo productivo griego a uno basado en la producción de productos innovadores y de alto valor agregado”.
 
+![](/images/uploads/dato-visa-grecia-2.jpg)
+
 > **OTROS PAÍSES DE EUROPA**
 
 Las GOLDEN VISA para startups también están presentes en países como Portugal y España, con programas de residencia que permiten a inversionistas y emprendedores obtener permisos de residencia a cambio de realizar inversiones en el país. 
