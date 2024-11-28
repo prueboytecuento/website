@@ -53,11 +53,11 @@ Aprovecha de ir por el tuyo porque aún quedan. Es 80% algodón y 20% polyester.
 
 ![](/images/uploads/tendencia-sioux-bluza.jpg)
 
-Y así como esta tienda de concepto urbano tiene ropa para el día a día o momentos más distendidos, también cuenta con prendas como la **Blusa Celeste Rayas con Lino** ($17.990) que puede tener un uso algo más formal. Todo depende cómo la uses. 
+Y así como esta tienda de concepto urbano tiene ropa para el día a día o momentos más distendidos, también cuenta con prendas como la **Blusa Celeste Rayas con Lino** ($17.990) que puede tener un uso algo más formal. Todo depende de cómo la uses. 
 
 Sólo la bluza cerrada con un pantalón oscuro para una reunión queda perfecta o con una polera blanca abajo y abierta. La opción de la bluza amarrada, por ejemplo, a la altura del ombligo ya pasa a ser más informal. Finalmente el estilo lo damos nosotros. Es 50% viscosa, 40% algodón y 10% lino.
 
-Me gustó el **Bolso con Malla Arena** ($9.990), a la derecha de la foto. Soy de ir mucho a conciertos y tiene el tamaño ideal para teléfono, documentos y algo de efectivo. Es suave al tacto.  100% polyester.
+Me gustó el **Bolso con Malla Arena** ($9.990), a la derecha de la foto. Soy de ir mucho a conciertos y tiene el tamaño ideal para teléfono, documentos y algo de efectivo. Es suave al tacto. 100% polyester.
 
 
 
@@ -73,9 +73,11 @@ La tela es exquisita, liviana, no se pega a la piel, no se humedece, tiene buena
 
 Más arriba les mencioné que Sioux tiene ropa masculina, pero he destacado más los modelitos para nosotras porque fui yo la que se probó las prendas. Sin embargo, puedo contarles que me tienen una colección robusta con pantalones cargo y con puño en jeans y otras telas, las leyendas de las poleras van desde algo más rockero a zen. Muchas guayaberas, shorts y bermudas.
 
-La polera negra tiene un estampado simple sólo adelante. Ideal para quienes gustan de la ropa oscura sin muchos detalles. Es 100% algodón y la encuentran bajo el nombre **Polera Hombre Negro Week** ($12.990). Se ve muy linda con el **Jeans Celeste Recto Carpintero** ($29.990), tiene un detalle al costado (como si fuera una cadena colgante desde el bolsillo trasero hacia adelante, pero de la misma tela de jeans. Es 92% algodón y 8% poliester. 
+La polera negra tiene un estampado simple sólo adelante. Ideal para quienes gustan de la ropa oscura sin muchos detalles. Es 100% algodón y la encuentran bajo el nombre **Polera Hombre Negro Week** ($12.990). Se ve muy linda con el **Jeans Celeste Recto Carpintero** ($29.990), tiene un detalle al costado (como si fuera una cadena colgante desde el bolsillo trasero hacia adelante, pero es de la misma tela de jeans. Es 92% algodón y 8% poliester. 
 
-Si se fijan en el patalón cargo negro que me probé y está en la foto principal vs. este (_**foto de la derecha**_), el 1ero tiene bolsillos pequeños, discretos y lo que se destaca es la caída del pantalón. Este otro modelo es todo lo contrario, un cargo muy recargado de elementos: el Jeans Azul Multibolsillos Lavado ($32.990) no sólo tiene muchos bolsillos, sino que además amarras y en la parte inferior del pantalón una huincha que va desde adentro hacia afuera del pantalón y se  abotona. Detalles que hacen la diferencia. Lo amé. Es 100% algodón.
+Si se fijan en el patalón cargo negro que me probé, el de la foto principal, vs. este (_**foto de la derecha**_), el 1ero tiene bolsillos pequeños, discretos y lo que se destaca es la caída del pantalón. Este otro modelo es todo lo contrario, un cargo muy muy recargado de elementos.
+
+El Jeans Azul Multibolsillos Lavado ($32.990) no sólo tiene muchos bolsillos, sino que además amarras y en la parte inferior del pantalón una huincha que va desde adentro hacia afuera del pantalón y se  abotona. Detalles que hacen la diferencia. Lo amé. Es 100% algodón.
 
 
 
@@ -90,3 +92,5 @@ En Sioux no sólo hay ropa, sino que además bastantes accesorios para ellos y e
 Al cierre de este review Sioux, les dejo 2 prendas masculinas que me gustaron harto. La polera blanca de la izquierda tiene en su espalda esos angelitos enojado con la leyenda "Angry in the heaven" (enojo en el cielo). Los dibujos están geniales y fueron hechos simulando acuarela. Hay más de 20 modelos de poleras en variadas telas, estilo, mensajes, lisas y más.
 
 Mientras que al otro extremo de la foto está esa guayabera fresquita, suave, mega veraniega e ideal para hacerle el quite al calor porque no se pega. La encuentran como **Camisa Azul Palmeras**, es 100% viscosa y cuesta $16.990.
+
+¿Que dónde está su tienda más cercana? En **siouxjeans.cl** están las direccciones del total de 12 tiendas a nivel nacional y, si no quieren ir, tienen la opción de hacer la compra online. **\#SOYprueboytecuento**
