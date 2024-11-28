@@ -51,47 +51,23 @@ El polerón de la derecha lo tiene mi Rafaela (11) y me encantó lo grueso que e
 
 Aprovecha de ir por el tuyo porque aún quedan. Es 80% algodón y 20% polyester.
 
-![null](/images/uploads/tendencia-sioux-bluza.jpg)
+![](/images/uploads/tendencia-sioux-bluza.jpg)
 
-Y así como esta tienda de concepto urbano tiene ropa para el día a día o momentos más distendidos, también cuenta con prendas como la Blusa Celeste Rayas Con Lino ($17.990) que puede tener un uso algo más formal. Todo depende cómo la uses. 
+Y así como esta tienda de concepto urbano tiene ropa para el día a día o momentos más distendidos, también cuenta con prendas como la Blusa Celeste Rayas con Lino ($17.990) que puede tener un uso algo más formal. Todo depende cómo la uses. 
 
-Sólo la bluza cerrada, con una polera blanca abajo y abierta, amarrada a la altura del ombligo. Finalmente el estilo lo damos nosotros. Es 50% viscosa, 40% algodón y 10% lino.
+Sólo la bluza cerrada con un pantalón oscuro para una reunión queda perfecta o con una polera blanca abajo y abierta. La opción de la bluza amarrada, por ejemplo, a la altura del ombligo ya pasa a ser más informal. Finalmente el estilo lo damos nosotros. Es 50% viscosa, 40% algodón y 10% lino.
 
-
-
-
+Me gustó el Bolso con Malla Arena ($9.990), a la derecha de la foto. Soy de ir mucho a conciertos y tiene el tamaño ideal para teléfono, documentos y algo de efectivo. Es suave al tacto.  100% polyester.
 
 
 
-un batallón de poleras en muchos Bolso Con Malla Arena Sioux
+![](/images/uploads/tendencia-sioux-ppal-ok.jpg)
 
-$ 9.990
+Este conjunto estaba lejos de ser un outfit que usaría en mi vida, pero cuando me lo probé descubrí que sí me acomodaba, que queda precioso, marca muy bien parte superior e inferior del cuerpo y es cómodo con zapatillas, plataforma o tacos.
 
-Composicion: 100% Polyester
+La tela es exquisita, liviana, no se pega a la piel, no se humedece, tiene buena caída y te da la opción de tener en el closet un 2 piezas para momentos algo más formales. La Blusa Beige Gillette Liviano ($19.990) y el Pantalón Mujer Beige Liviano Pinzas ($29.990) son 100% polyester.
 
-\-----
 
-Blusa Mujer Celeste Rayas Con Lino Sioux
-
-$ 17.990
-
-Color:Celeste
-
-Composicion:50% Viscosa 40% Algodon 10% Lino
-
-![null](/images/uploads/tendencia-sioux-ppal-ok.jpg)
-
-Blusa Mujer Beige Gillette Liviano Sioux 19.990
-
-Composicion:100% Polyester
-
-\---
-
-Pantalon Mujer Beige Liviano Pinzas Sioux
-
-$ 29.990
-
-Composicion:100% Polyester
 
 ![null](/images/uploads/tendencia-sioux-desfile.jpg)
 
