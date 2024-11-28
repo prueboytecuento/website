@@ -43,35 +43,27 @@ La falda la encuentras como Verde Denim Cargo ($24.990) es de grosor intermedio,
 
 ![](/images/uploads/tendencia-sioux-polero-n-bermuda.jpg)
 
-Esta podría ser una bermuda de jeans, pero en realidad es un baggy porque es un poco más largo, recto, llega a la cintura y ayuda a que tu abdomen quede bien comprimido. Está por Short Celeste Baggy Denim ($29.990) 
+Esta podría ser una bermuda de jeans, pero en realidad es un baggy porque es un poco más largo, recto, llega a la cintura y ayuda a que tu abdomen quede bien comprimido y te estiliza más. Lo encuentras como Short Celeste Baggy Denim ($29.990). Si tengo que elegir entre este y la falda-short, voy por la última porque a los 5 minutos ya tenía calor, jajajá. Es 99% algodón y 1% spandex.
 
+Lo combiné con este Polerón Gris Lavado Tachas ($22.990) de algodón al 100% simplemente porque hacían buen match y porque es un diseño a descatar. Me encanta el gris petróleo y el detalle de las tachas marca muy bien la línea que va desde tu cuello y hombros, lo estiliza. Tiene puños en mangas y cintura.
 
+El polerón de la derecha lo tiene mi Rafaela (11) y me encantó lo grueso que es, calientito, tremenda manufactura. El trabajo de bordados, combinación de colores y leyendas fueron muy bien pensados. El Polerón Crudo Canguro Oversize ($24.990) es el que mi hija usa más seguido desde que se lo regalé en agosto. 
 
-Poleron Mujer Gris Lavado Tachas Sioux
-
-$ 22.990
-
-Composicion:100% Algodon
-
-\------
-
- Short Mujer Celeste Baggy Denim Sioux
-
-$ 29.990
-
-Composicion:99% Algodon 1% Spandex
-
-\---
-
-Poleron Mujer Crudo Canguro Oversize Sioux
-
-$ 24.990
-
-Composicion:80%Algodon 20%Polyester
+Aprovecha de ir por el tuyo porque aún quedan. Es 80% algodón y 20% polyester.
 
 ![null](/images/uploads/tendencia-sioux-bluza.jpg)
 
-Bolso Con Malla Arena Sioux
+Y así como esta tienda de concepto urbano tiene ropa para el día a día o momentos más distendidos, también cuenta con prendas como la Blusa Celeste Rayas Con Lino ($17.990) que puede tener un uso algo más formal. Todo depende cómo la uses. 
+
+Sólo la bluza cerrada, con una polera blanca abajo y abierta, amarrada a la altura del ombligo. Finalmente el estilo lo damos nosotros. Es 50% viscosa, 40% algodón y 10% lino.
+
+
+
+
+
+
+
+un batallón de poleras en muchos Bolso Con Malla Arena Sioux
 
 $ 9.990
 
