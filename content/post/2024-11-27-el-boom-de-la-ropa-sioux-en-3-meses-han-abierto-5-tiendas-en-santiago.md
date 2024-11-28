@@ -35,23 +35,71 @@ Lo usé con la polera verde petroleo Sisa ($12.990). Soy de poleras más entalla
 
 ![](/images/uploads/tendencia-sioux-polera-falda.jpg)
 
-M CLSCSCM
+Falda Mujer Azul Denim Cargo Sioux
+
+$ 24.990
+
+Composicion:98% Algodon 2% Elastano
+
+\----
+
+Polera Mujer Verde Lavado Bostom Sioux
+
+$ 9.990
+
+Composicion:95% Algodon 5% Elastano 
+
+
 
 ![](/images/uploads/tendencia-sioux-polero-n-bermuda.jpg)
 
-ffff
+Poleron Mujer Gris Lavado Tachas Sioux
+
+$ 22.990
+
+Composicion:100% Algodon
+
+\------
+
+ Short Mujer Celeste Baggy Denim Sioux
+
+$ 29.990
+
+Composicion:99% Algodon 1% Spandex
+
+\---
+
+Poleron Mujer Crudo Canguro Oversize Sioux
+
+$ 24.990
+
+Composicion:80%Algodon 20%Polyester
 
 ![null](/images/uploads/tendencia-sioux-bluza.jpg)
 
-ffff
+Blusa Mujer Celeste Rayas Con Lino Sioux
+
+$ 17.990
+
+Color:Celeste
+
+Composicion:50% Viscosa 40% Algodon 10% Lino
 
 ![null](/images/uploads/tendencia-sioux-ppal-ok.jpg)
 
-ffff
+Blusa Mujer Beige Gillette Liviano Sioux 19.990
+
+Composicion:100% Polyester
+
+
 
 ![null](/images/uploads/tendencia-sioux-desfile.jpg)
 
-ffff
+Polera Mujer Blanco Flores Sioux
+
+$ 12.990
+
+Composicion:100% Viscosa
 
 ![null](/images/uploads/tendencia-sioux-vestido-billetera.jpg)
 
