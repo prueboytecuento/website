@@ -23,7 +23,7 @@ weight: '1'
 
 
 
-![null](/images/uploads/tendencia-sioux-masculino.jpg)
+![null](/images/uploads/tendencia-sioux-pantalo-n-negro.jpg)
 
 Sí, **\#Sioux** es una marca nacional de ropa femenina y masculina con presencia en regiones desde hace 10 años y en agosto comenzaron la apertura de una serie de tiendas en los Mall Plaza, siendo la del Mall Plaza Norte la que abrieron esta semana. Obvio que estuve ahí.
 
@@ -54,6 +54,8 @@ ffff
 ![null](/images/uploads/tendencia-sioux-vestido-billetera.jpg)
 
 ttt
+
+![](/images/uploads/tendencia-sioux-masculino.jpg)
 
 ttt
 
