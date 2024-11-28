@@ -27,19 +27,17 @@ weight: '1'
 
 Sí, **\#Sioux** es una marca nacional de ropa femenina y masculina con presencia en regiones desde hace 10 años y en agosto comenzaron la apertura de una serie de tiendas en los Mall Plaza, siendo la del Mall Plaza Norte la que abrieron esta semana. Obvio que estuve ahí.
 
-Debo ser honesta, hubo sólo 2 prendas que me probé y no me gustaron, pero porque para mí cuerpo no andaban bien, pero eran bellas. Vamos al prenda por prenda.
+Debo ser honesta, de todas las prendas que me probé hubo sólo 2 que no me gustaron, pero porque para mí cuerpo no andaban bien, pero eran bellas. Vamos al prenda por prenda.
 
-En la tienda tienen muchos modelos de pantalones cargo en distintas telas y aplicaciones. El primero que me probé (**_Imagen superior_**) fue este negro de algodón ($29.990) muy flexible, con la cintura elasticada y bolsillos pequeños en las piernas. Distinto a la mayoría de los cargo. 
+Amo la ropa cargo y Sioux tiene muchos pantalones en distintas telas y aplicaciones. El primero que me probé (**_Imagen superior_**) fue este negro de algodón ($29.990) muy flexible, con la cintura elasticada y bolsillos pequeños en las piernas. Distinto a la mayoría de los cargo.  
 
-Lo usé con la polera verde petroleo Sisa ($12.990). Soy de poleras más entalladas, pero me gustó este modelos holgado y sobre todo las mangas con vuelitos con mostacillón plateado entremedio. Cómoda, algodón suave y liviana.
+Lo usé con la polera verde petroleo Sisa ($12.990). Soy de poleras más entalladas, pero me gustó este modelos holgado y sobre todo las mangas con vuelitos y mostacillón plateado entremedio. Cómoda, algodón suave y liviana.
 
 ![](/images/uploads/tendencia-sioux-polera-falda.jpg)
 
-Falda Mujer Azul Denim Cargo Sioux
+Si de armar outfits se trata, este queda perfecto para el día a día, para ir a la playa e incluso usarlo en una fiesta. La polera Verde Lavado Boston ($9.990) llega justo a la altura del ombligo, es muy liviana y fresquita. El corte de mangas me merecía dudas, pero resalta muy bien hombros. Es 95% algodón 5% elastano.   
 
-$ 24.990
-
-Composicion:98% Algodon 2% Elastano
+La falda la encuentras como Verde Denim Cargo ($24.990) es de grosor intermedio, no queda tiesa, tiene mucha movilidad al andar, pero ojo sólo es una falda short, sino no que falda-short lo que marca mejor la cola y te da más seguridad al sentarte porque es cortita. Se trata de una pieza 98% algodón y 2% elastano.
 
 \----
 
