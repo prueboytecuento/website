@@ -77,6 +77,14 @@ Composicion:80%Algodon 20%Polyester
 
 ![null](/images/uploads/tendencia-sioux-bluza.jpg)
 
+Bolso Con Malla Arena Sioux
+
+$ 9.990
+
+Composicion: 100% Polyester
+
+\-----
+
 Blusa Mujer Celeste Rayas Con Lino Sioux
 
 $ 17.990
@@ -91,7 +99,13 @@ Blusa Mujer Beige Gillette Liviano Sioux 19.990
 
 Composicion:100% Polyester
 
+\---
 
+Pantalon Mujer Beige Liviano Pinzas Sioux
+
+$ 29.990
+
+Composicion:100% Polyester
 
 ![null](/images/uploads/tendencia-sioux-desfile.jpg)
 
