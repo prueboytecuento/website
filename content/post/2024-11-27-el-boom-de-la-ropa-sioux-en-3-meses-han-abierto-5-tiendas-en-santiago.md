@@ -23,21 +23,21 @@ weight: '1'
 
 
 
-![null](/images/uploads/tendencia-sioux-pantalo-n-negro.jpg)
+![](/images/uploads/tendencia-sioux-pantalo-n-negro.jpg)
 
 Sí, **\#Sioux** es una marca nacional de ropa femenina y masculina con presencia en regiones desde hace 10 años y en agosto comenzaron la apertura de una serie de tiendas en los Mall Plaza, siendo la del Mall Plaza Norte la que abrieron esta semana. Obvio que estuve ahí.
 
-Debo ser honesta, hubo sólo 2 prendas que me probé y no me gustaron, pero porque para mí cuerpo no andaban bien, pero eran bellas. Pero vamos al prenda por prenda.
+Debo ser honesta, hubo sólo 2 prendas que me probé y no me gustaron, pero porque para mí cuerpo no andaban bien, pero eran bellas. Vamos al prenda por prenda.
 
-En la tienda tienen muchos modelos de pantalones cargo en distintas telas y aplicaciones. El primero que me probé (imagen superior) fue este negro de algodón ($29.990) muy cómodo, con la cintura elasticada y bolsillos pequeños en las piernas. Distinto a la mayoría de los cargo. 
+En la tienda tienen muchos modelos de pantalones cargo en distintas telas y aplicaciones. El primero que me probé (**_Imagen superior_**) fue este negro de algodón ($29.990) muy flexible, con la cintura elasticada y bolsillos pequeños en las piernas. Distinto a la mayoría de los cargo. 
 
-Lo usé con la polera verde petroleo Sisa ($12.990). Soy de poleras más entalladas, pero me gustó este modelos más holgado, y sobre todo las mangas con vuelitos con mostacillón plateado entremedio. Cómoda, algodón suave y liviana.
+Lo usé con la polera verde petroleo Sisa ($12.990). Soy de poleras más entalladas, pero me gustó este modelos holgado y sobre todo las mangas con vuelitos con mostacillón plateado entremedio. Cómoda, algodón suave y liviana.
 
-![null](/images/uploads/tendencia-sioux-polera-falda.jpg)
+![](/images/uploads/tendencia-sioux-polera-falda.jpg)
 
 M CLSCSCM
 
-![null](/images/uploads/tendencia-sioux-polero-n-bermuda.jpg)
+![](/images/uploads/tendencia-sioux-polero-n-bermuda.jpg)
 
 ffff
 
