@@ -44,11 +44,13 @@ Creo que el resultado del gran angular / macro de 13 MP también dio buenos resu
 
 Amé la claridad con la que puedes ver cada detalle de la hamburguesa de la imagen. Sus colores, texturas de los ingredientes. Mientras que la foto de la Av. Pedro de Valdivia iluminada con toda la onda navideña me regala un vívido momento acogedor, me transporta a otras navidades, la tradición familiar de caminar bajo esos árboles e ir a ver el encendido del árbol de Navidad del Palacio Falabella.  
 
-![null](/images/uploads/tech-motorola-r5-pdv.jpg)
+![null](/images/uploads/tech-motorola-r50-hamburger.jpg)
 
 Todo este resultado tiene que ver las características técnicas del equipo, pero también con la Moto AI, herramienta desarrollada por la compañía… Su propia inteligencia artificial que optimiza y potencia cada función, que ayuda a crear mejor contenido. Sobre todo si se trata de fotos o armar y editar videos. 
 
 Esta herramienta es capaz incluso de aprender cómo actuamos, nos comportamos. Algo así como estudiarnos y entregarnos una asistencia más personalizada. Muy parecida a lo que pasa con los algoritmos, cuando buscamos “X” información con frecuencia en el celular o laptop y automáticamente en nuestro buscador o RRSS aparece contenido relacionado con esas temáticas o publicidad afín.
+
+![](/images/uploads/tech-motorola-r50-retrato.jpg)
 
 Una función súper útil de la Moto AI es, por ejemplo, grabar una reunión o conversación y después hacer una transcripción que es algo que otros teléfonos también hacen. ¿La novedad? Aquí la herramienta además permite recibir un resumen del audio en cuestión e incluso traducirlo.
 
