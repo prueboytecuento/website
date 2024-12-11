@@ -56,13 +56,11 @@ Una función súper útil de la Moto AI es, por ejemplo, grabar una reunión o c
 
 Otra característica que me gustó del razr 50 es que la pantalla externa no sólo es grande por un tema estético, sino que aquello te permite usar muchas funciones con el equipo cerrado: acceder a tu correo, usar Gemini de Google, fotos, clima y un puñado de otras funciones. Práctico total.
 
-![](/images/uploads/tech-motorola-r5-plantas.jpg)
-
 ¿Que cómo anda la batería? Dura muchísimo y el teléfono no estuvo precisamente sobre mi velador. Todo el contenido del Pruebo lo hago y editor con varios editores en simultáneo en el celu, navego todo el día, reviso y contesto mis correos, en fin. Durante las pruebas de este equipo hice lo mismo, pero en él.
 
+![](/images/uploads/tech-motorola-r5-ropa.jpg)
+
 Debo decir que la batería de mi iPhone tengo que cargarla al terminar el día (incluso antes) y esta anduvo impecable 6 días. La de Motorola es de 4200 mAh12 y viene con su cargador TurboPower de 33 W 13. Tiene capacidad para carga inalámbrica también. Ah y el modelo es Dual SIM (eSIM + SIM Física).
-
-
 
 Un muy buen equipo, cómodo, no se resbala de las manos, un flip que se abre y cierra sin dificultad y como otros Motorola es perfumado… Sí, huelen y muy rico. Este modelo en particular viene con su carcaza incluida para protegerlo. Maravilloso.
 
