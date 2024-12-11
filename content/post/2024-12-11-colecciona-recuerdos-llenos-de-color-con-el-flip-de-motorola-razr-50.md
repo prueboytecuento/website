@@ -30,7 +30,7 @@ Claro, mi ecosistema tech es el de la manzanita, pero nunca hay que renunciar a 
 
 En este último punto, debo decir que el **razr 50 de Motorola** es un coleccionista de momentos llenos de vida, color, un equipo que atrapa situaciones e inmortaliza con robusta precisión y realidad todo lo que fotografiamos o grabamos.
 
-![null](/images/uploads/tech-motorola-r5-pdv-cel.jpg)
+![null](/images/uploads/tech-motorola-r50-naranjo-variosok.jpg)
 
 Hice muchísimas pruebas con este flip de gran pantalla externa cerrada (3,6’’) y que abierta alcanza las 6,9’’. Una pantalla pOLED (plastic OLED) que es más flexible y delgada que una OLED que es de sustrato de vidrio rígido. 
 
