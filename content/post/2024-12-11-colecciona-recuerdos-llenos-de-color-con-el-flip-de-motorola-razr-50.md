@@ -1,5 +1,5 @@
 ---
-title: Colecciona recuerdos llenos de color con el flip de Motorola razr 50
+title: Colecciona recuerdos llenos de color con el flip razr 50 de Motorola
 showonlyimage: true
 date: '2024-12-11T12:08:05-03:00'
 image: /images/uploads/tech-motorola-r5-pdv-cel.jpg
