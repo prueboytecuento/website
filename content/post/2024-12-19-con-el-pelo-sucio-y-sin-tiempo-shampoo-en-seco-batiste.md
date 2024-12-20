@@ -28,9 +28,7 @@ He usado varias veces shampoo en seco, pero estas han sido mis primeras experien
 
 Son varias las razones por las que podríamos aplicarnos un producto como este: tiempo, caída frecuente de pelo, control más seguido de la oleosidad, días con mal clima y la necesidad de evitar mojarlo, etc. No sé si a alguno de ustedes les pasa, pero siempre me empieza a doler la cabeza cuando en invierno me seco el pelo con el secador y después salgo a la calle. Ni hablar del freeze.
 
-![](/images/uploads/belleza-batiste-pelo-sucio-collage-ok.jpg)
-
- 
+![null](/images/uploads/belleza-batiste-pelo-sucio-collage-ok.jpg)
 
 Así es que ahora me voy con varias latas de Batiste a Europa para evitar mojarme el pelo en la ducha en días de frío, lluvia y nieve. Voy a estar gran parte del tiempo en la calle recorriendo lugares nuevos y volviendo a mis fav para mostrárselos en #prueboytecuentoONTOUR, así es que esta es una gran solución.
 
@@ -40,10 +38,12 @@ He visto varios videos de influencers aplicándoselo de la manera equivocada, as
 
 Se echa a unos 30cms. de distancia de la cabeza de manera lineal en partidura y en las capaz que quieran de adelante hacia atrás. Va a quedar blanco porque es una especie de talco de almidón de arroz, pero es momentáneo.
 
-![](/images/uploads/belleza-batiste-aplicacion-collage.jpg)
+![null](/images/uploads/belleza-batiste-aplicacion-collage.jpg)
 
 Dejen que actúe unos 3 a 5 minutos y comiencen con la yema de los dedos a masajear y repartir ese talco por todo el cuero cabelludo. Finalizan con el cepillado… Es impresionante porque el pelo vuelve a recobrar vida, está liviano, con brillo, lindo.
 
 Yo usé el “Rose Gold, Radiant Rose” y el aroma es exquisito. Cada lata trae 200ml. y su valor referencial en batistechile.cl es de $11.990. Son productos para todo tipo de pelo, es decir, con y sin tintura, con y sin canas. Y además es libre de parabenos, sulfatos y silicona.
+
+![](/images/uploads/belleza-batiste-limpio-collage.jpg)
 
 Están las versiones con aroma “Tropical, Exotic Coconut”, “Bare, Barely Scented”, “Fresh, Breezy Citrus”, “Cherry, Cheeky Cherry”, “Blush, Flirty Floral” y muchas más, entre las que se suman para cabellos oscuros y rubios. Me gustó Batiste. **\#SOYprueboytecuento**
