@@ -38,14 +38,18 @@ Ojo que, a diferencia de nuestro vino caliente, este no lo flambean así es que 
 
 En este recorrido comí mucho: papas fritas, crepes de Nutella con frutillas y plátano, Trdelnik que son unos conos masa con canela y azúcar que descubrí hace unos años en Praga, muy adictivos, pero que cuyo país de origen es Hungría. Mención obligada y merecida.
 
+![](/images/uploads/ontour-munich-cuentos.jpg)
+
 Me llamaron la atención los cuentacuentos para niños y adultos. No son personas relatando una historia, sino que personajes de animales muy grandes que tiene movimiento corporal y se escucha una voz grabada de fondo. Lo niños se quedan atentos escuchando y siguiendo la historia. A mí me dieron un poco de miedo las caras de la figuras, jajajá. 
 
 Sobre la artesanía, había muy poca, es hecha en madera y gran parte es para decorar las casas o los arbolitos que por cierto acá son naturales.
 
-![](/images/uploads/ontour-munich-feria-regalos.jpg)
+![null](/images/uploads/ontour-munich-feria-regalos.jpg)
 
 Esa vieja costumbre de tener la casa con olor a pino y el arbolito recién cortado, peeero que cuya tala tiene que ver con poda de ramas muy grandes y en altura, y no deforestar.  
 
 Si vienen en Navidad a Munich tienen que pasar por alguna de estas ferias. Son entretenidas, se conoce algo más de las costumbres de los bávaros, hay muchas. La medieval también es muy entretenida.
 
-Coordenadas: la Feria Kaiserhof funciona entre 18 de noviembre y 22 de diciembre, está específicamente en la Residenz de Múnich se entra por Residenzstrasse, junto a la plaza Odeonsplatz. \*\*#SOYprueboytecuento\*\*
+Coordenadas: la **Feria Kaiserhof** funciona entre **18 de noviembre y 22 de diciembre**, está específicamente en la **Residenz de Múnich se entra por Residenzstrasse, junto a la plaza Odeonsplatz**. **\#SOYprueboytecuento**
+
+**FOTO PRINCIPAL BY** https://www.dasweihnachtsdorf.de
