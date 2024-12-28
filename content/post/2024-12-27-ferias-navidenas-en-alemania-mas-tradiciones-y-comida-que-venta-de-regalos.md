@@ -1,7 +1,7 @@
 ---
 title: 'Ferias navideñas en Alemania: más tradiciones y comida que venta de regalos'
 showonlyimage: true
-date: '2024-12-27T21:21:56-03:00'
+date: '2024-12-21T21:21:56-03:00'
 image: /images/uploads/ontour-munich-ferias.jpg
 rating: '1'
 tags:
@@ -20,9 +20,13 @@ weight: '1'
 ---
 **\#prueboytecuentoONTOUR** La de **Kaiserhof** está emplazada en uno de los patios interiores de la que fuera la residencia del rey de bavaria en el centro de Munich y todo gira en torno a los sabores.
 
-<!--more>
+<!--more-->
+
+
 
 ![](/images/uploads/ontour-munich-ferias.jpg)
+
+
 
 Porque varios puestos con venta de artesanía como en Chile no hay. Aquí el fuerte es la comida acompañada de una cerveza, vino caliente o chocolate caliente… Hace muchísimo frío en esta época del año (diciembre). 
 
@@ -68,4 +72,4 @@ Si vienen en Navidad a Munich tienen que pasar por alguna de estas ferias. Son e
 
 
 
-Coordenadas: la Feria Kaiserhof funciona entre 18 de noviembre y 22 de diciembre, está específicamente en la Residenz de Múnich se entra por Residenzstrasse, junto a la plaza Odeonsplatz. **\#SOYprueboytecuento**
+Coordenadas: la Feria Kaiserhof funciona entre 18 de noviembre y 22 de diciembre, está específicamente en la Residenz de Múnich se entra por Residenzstrasse, junto a la plaza Odeonsplatz. \*\*\#SOYprueboytecuento\*\*
