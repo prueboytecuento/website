@@ -42,8 +42,10 @@ Me llamaron la atención los cuentacuentos para niños y adultos. No son persona
 
 Sobre la artesanía, había muy poca, es hecha en madera y gran parte es para decorar las casas o los arbolitos que por cierto acá son naturales.
 
+![](/images/uploads/ontour-munich-feria-regalos.jpg)
+
 Esa vieja costumbre de tener la casa con olor a pino y el arbolito recién cortado, peeero que cuya tala tiene que ver con poda de ramas muy grandes y en altura, y no deforestar.  
 
 Si vienen en Navidad a Munich tienen que pasar por alguna de estas ferias. Son entretenidas, se conoce algo más de las costumbres de los bávaros, hay muchas. La medieval también es muy entretenida.
 
-Coordenadas: la **Feria Kaiserhof funciona entre 18 de noviembre y 22 de diciembre**, está específicamente en la **Residenz de Múnich** se entra por Residenzstrasse, junto a la **plaza Odeonsplatz**. **\#SOYprueboytecuento**
+Coordenadas: la Feria Kaiserhof funciona entre 18 de noviembre y 22 de diciembre, está específicamente en la Residenz de Múnich se entra por Residenzstrasse, junto a la plaza Odeonsplatz. \*\*#SOYprueboytecuento\*\*
