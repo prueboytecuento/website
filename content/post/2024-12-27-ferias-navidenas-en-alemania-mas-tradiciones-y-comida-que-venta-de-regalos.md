@@ -15,7 +15,7 @@ tags:
   - Food
   - Punsch
 categories:
-  - ONTOUR
+  - ON TOUR
 weight: '1'
 ---
 **\#prueboytecuentoONTOUR** La de **Kaiserhof** está emplazada en uno de los patios interiores de la que fuera la residencia del rey de bavaria en el centro de Munich y todo gira en torno a los sabores.
