@@ -30,7 +30,7 @@ weight: '1'
 
 Así es que fuimos con la Rafita (11), Marido (@kleberos) y nuestra familia brazuca-alemana al centro de ski de **\#Herzogstand**, en donde pueden practicar todo tipo de deportes, hacer senderismo con crampones para evitar porrazos, disfrutar del lago (cuando es verano) y admirarlo en invierno, pasar un buen rato jugando con nieve simplemente, comer rico en el refugio que hay en la parte superior de una colina y más.
 
-![](/images/uploads/ontour-alpes-familia.jpg)
+![null](/images/uploads/ontour-alpes-familia.jpg)
 
 Está a 75km al sur de **\#Munich** y nuestro viaje en auto con 2 paradas (es inevitable ir al baño muchas veces, jajajá) duró cerca de 2 horas. Un trayecto increíble en donde vas pasando por granjas, campo travieso y bosques. Todos cubiertos de un manto blanco… Hielo y nieve. ¡Maravilloso!
 
@@ -44,13 +44,13 @@ El sendero que está súper demarcado, es angosto y tiene barrera de protección
 
 Desde la estación del teleférico hicimos la ruta hacía el restaurante-refugio **Berggasthaus Herzogstand**. Ida y vuelta fueron aprox. 2 kilómetros, cifra razonable porque íbamos con niños caminando y se cansan rápido, había -4 grados, bastante viento y todos teníamos hambre. Fue perfecto.
 
-![](/images/uploads/ontour-alpes-nin-os.jpg)
+![null](/images/uploads/ontour-alpes-nin-os.jpg)
 
 Todos lo pasamos increíble. Los niños se hundieron en la nieve, hicieron guerra de bolitas y yo incluso me sumé a lo que la Rafita y su primo Pedro bautizaron como “avalanchas”: hacían bolas de nieve y cuando las soltaban montaña abajo comenzaban crecer y crecer. Muy entretenido.
 
 El restaurante tiene sólo platos típico alemanes y es bien caro. Para que se hagan una idea, por 3 platos de Wiener Schnitzel que es una carne de cerdo apanada con papas fritas, 2 cremas de zapallo, 1 jugo y 2 cervezas pagamos poco más de 90 mil pesos. Hago el alcance de que los platos eran gigantes y la comida muy sabrosa.
 
-![](/images/uploads/ontour-alpes-sopa.jpg)
+![null](/images/uploads/ontour-alpes-sopa.jpg)
 
 Hay que ir muy abrigado porque el sol baja a las 4 de la tarde en invierno y, al menos nuestra experiencia fue de disfrutar de una rica caminata y vista en el mirador del restaurante con un sol exquisito hasta el que el reloj marcó las 16 horas y comenzó a aumentar el viento… Viento con hielo golpeando en la cara, sin llegar a ser viento blanco. Chan.
 
@@ -60,7 +60,7 @@ Sobre los valores, en este centro invernal al menos tienen precios por persona, 
 
 Por ejemplo, la subida y bajada cuesta €18 ($18.622) por adulto, pero como mi familia está compuesta por 2 adultos y una menor de 15 años el valor total fue de €37 ($38.278) y no de €43,5 (45.003) si no fuéramos parientes. 
 
-![](/images/uploads/ontour-alpes-sendero.jpg)
+![null](/images/uploads/ontour-alpes-sendero.jpg)
 
 Muy linda experiencia y la repetiría, pero con ropa más potente para el frío porque definitivamente y, no es la primera vez que me pasa, ninguna de las grandes marcas de ropa para frío nacionales e internacionales que venden en Chile cuentan con la tecnología para no cagarte de frío. No este tipo de frío, aunque les suene extraño.
 
