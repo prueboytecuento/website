@@ -40,7 +40,7 @@ Soy literalmente adicta a las cremas, uso para cada parte de mi humanidad, beber
 
 Y en las condiciones actuales el ritual sagrado que a todas les va a servir en el verano chileno o donde se encuentren está compuesto por 3 productos maravillosos.
 
-![](/images/uploads/belleza-avene-europa-serum-collage.jpg)
+![null](/images/uploads/belleza-avene-europa-serum-collage.jpg)
 
 Después de la limpieza facial, aplíquense el **Serum Hydrance Boost** ($33.099 valor referencial). Son 2 gotitas para el rostro y cuello, pero como mi piel está muy expuesta al frío TODO se absorbe más rápido, así es que estoy usando 3 los días que es necesario. Es de textura aterciopelada, suave, les promete que se siente mucho alivio.
 
@@ -51,6 +51,8 @@ El serum es increíble, porque contiene Ácido Hialurónico al 0,3%, lo que en l
 Hay una parte importante del serum que queda en la superficie de la piel y capta su peso en agua 1.000 veces más. A eso le sumamos la Niacinamida que, como en la mayoría de los productos de cuidados faciales, viene al 2% y refuerza la creación de células que van reparando la piel. Y como si fuera poco, el pequeño frasco que se usa con gotero y dura muuucho tiempo tiene Agua Termal 77% que es calmante, anti-irritante y antinflamatoria.
 
 ¿¡Qué si eso es todo!? No pues, si a mis 48 años tengo que cuidarme para mantener mi piel sin arrugas y tratar de mantener a raya las manchitas. Les he contado de mi amor por las cremas y también de mi rechazo a las intervenciones de cualquier tipo. Ni inyecciones me pondría. Sin embargo respeto y no cuestiono a quienes lo hacen. 
+
+![](/images/uploads/belleza-avene-europa-collage-2.jpg)
 
 La segunda parte la rutina de skincare es el tratamiento de hidratación con un producto, lógico, con efecto antiedad. Yo uso el **Hyaluron Activ B3 Aqua Gel** ($37.990 precio referencial). Me gustan los aqua gel porque se absorben rápido, no quedan pegotes, son refrescantes, dan claridad al rostro, vida. Amé este producto.
 
