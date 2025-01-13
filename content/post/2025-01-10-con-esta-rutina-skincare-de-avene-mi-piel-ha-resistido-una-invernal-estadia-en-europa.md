@@ -52,11 +52,13 @@ Hay una parte importante del serum que queda en la superficie de la piel y capta
 
 ¿¡Qué si eso es todo!? No pues, si a mis 48 años tengo que cuidarme para mantener mi piel sin arrugas y tratar de mantener a raya las manchitas. Les he contado de mi amor por las cremas y también de mi rechazo a las intervenciones de cualquier tipo. Ni inyecciones me pondría. Sin embargo respeto y no cuestiono a quienes lo hacen. 
 
-![](/images/uploads/belleza-avene-europa-collage-2.jpg)
+![null](/images/uploads/belleza-avene-europa-collage-2.jpg)
 
 La segunda parte la rutina de skincare es el tratamiento de hidratación con un producto, lógico, con efecto antiedad. Yo uso el **Hyaluron Activ B3 Aqua Gel** ($37.990 precio referencial). Me gustan los aqua gel porque se absorben rápido, no quedan pegotes, son refrescantes, dan claridad al rostro, vida. Amé este producto.
 
 Contiene Ácido Hialurónico (AH) de alto peso molecular al 0.45% (para hidratar) y AH de bajo peso molecular al 0,45% (para rellenar la dermis por su tamaño). Al igual que el serum, también tiene Niacinamida pero esta vez es al 6%, porque ese porcentaje le da energía a la célula para que siga ejerciendo sus funciones. Y aquí el porcentaje de Agua Termal es de 75,7 para también cumplir la función de calmante, anti-irritante y antinflamatoria.
+
+![](/images/uploads/belleza-avene-europa-collage-3.jpg)
 
 Y, por último, lo que la Rafita (11), Marido (@kleberos) y yo andamos trayendo en las mochilas todos los días es el protector solar **Ultra Fluid sin color FPS 50+** ($14.990 precio referencial) que de entrada les confirmo y reconfirmo, no deja la piel blanca y tiene oil control. Qué desagradable es andar con la piel grasa. Todos estos productos se los full recomiendo, tanto en verano como en invierno.
 
