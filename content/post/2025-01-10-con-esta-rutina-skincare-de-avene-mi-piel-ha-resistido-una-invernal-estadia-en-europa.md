@@ -42,7 +42,7 @@ Y en las condiciones actuales el ritual sagrado que a todas les va a servir en e
 
 ![null](/images/uploads/belleza-avene-europa-serum-collage.jpg)
 
-Después de la limpieza facial, aplíquense el **Serum Hydrance Boost** ($33.099 valor referencial). Son 2 gotitas para el rostro y cuello, pero como mi piel está muy expuesta al frío TODO se absorbe más rápido, así es que estoy usando 3 los días que es necesario. Es de textura aterciopelada, suave, les promete que se siente mucho alivio.
+Después de la limpieza facial, aplíquense el **Serum Hydrance Boost** ($33.099 valor referencial). Son 2 gotitas para el rostro y cuello, pero como mi piel está muy expuesta al frío TODO se absorbe más rápido, así es que estoy usando 3 los días que es necesario. Es de textura aterciopelada, suave, les prometo que se siente mucho alivio.
 
 Por estos días, por ejemplo, estoy en Paris y subí la Torre Eiffel después de un día y noche de lluvia. Corría tanto viento frío. La temperatura era de 5 grados, pero con sensación térmica de 0 y todo ese viento golpeaba mi cara con pica. Para qué les digo lo entumecida que estaba. Volver al departamento, tomar un baño caliente, reponerse e hidratar cuerpo y rostro fue un alivio.
 
@@ -57,8 +57,6 @@ Hay una parte importante del serum que queda en la superficie de la piel y capta
 La segunda parte la rutina de skincare es el tratamiento de hidratación con un producto, lógico, con efecto antiedad. Yo uso el **Hyaluron Activ B3 Aqua Gel** ($37.990 precio referencial). Me gustan los aqua gel porque se absorben rápido, no quedan pegotes, son refrescantes, dan claridad al rostro, vida. Amé este producto.
 
 Contiene Ácido Hialurónico (AH) de alto peso molecular al 0.45% (para hidratar) y AH de bajo peso molecular al 0,45% (para rellenar la dermis por su tamaño). Al igual que el serum, también tiene Niacinamida pero esta vez es al 6%, porque ese porcentaje le da energía a la célula para que siga ejerciendo sus funciones. Y aquí el porcentaje de Agua Termal es de 75,7 para también cumplir la función de calmante, anti-irritante y antinflamatoria.
-
-![](/images/uploads/belleza-avene-europa-collage-3.jpg)
 
 Y, por último, lo que la Rafita (11), Marido (@kleberos) y yo andamos trayendo en las mochilas todos los días es el protector solar **Ultra Fluid sin color FPS 50+** ($14.990 precio referencial) que de entrada les confirmo y reconfirmo, no deja la piel blanca y tiene oil control. Qué desagradable es andar con la piel grasa. Todos estos productos se los full recomiendo, tanto en verano como en invierno.
 
