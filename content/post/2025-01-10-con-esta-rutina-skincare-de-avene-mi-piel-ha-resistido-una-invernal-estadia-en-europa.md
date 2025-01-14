@@ -32,7 +32,7 @@ weight: '1'
 
 Están bravas las temperaturas en las ciudades de Europa que he visitado. Que llueva y nieve es normal, pero, por cierto que esta santiagüina no está acostumbrada a esos factores climáticos con temperaturas frecuentemente bajo cero. El promedio diario es -3 en Munich, Alemania.
 
-Y ahí **\#Avène** se ha convertido en un aliado todo terreno durante mi trip por el Viejo Continente, porque desde que llegué el 21 de diciembre de 2023 al día de hoy está impecable.
+Y ahí **\#Avène** se ha convertido en un aliado todo terreno durante mi trip por el Viejo Continente, porque desde que llegué el 21 de diciembre de 2024 al día de hoy está impecable.
 
 Para que se entienda mejor, estoy usando 3 productos que me han salvado la carita, manteniéndola suave como siempre, no se ha descamado, no me ha salido ni media línea de expresión, no está “tiesa” y menos tirante que para mí es tema. 
 
@@ -57,6 +57,8 @@ Hay una parte importante del serum que queda en la superficie de la piel y capta
 La segunda parte la rutina de skincare es el tratamiento de hidratación con un producto, lógico, con efecto antiedad. Yo uso el **Hyaluron Activ B3 Aqua Gel** ($37.990 precio referencial). Me gustan los aqua gel porque se absorben rápido, no quedan pegotes, son refrescantes, dan claridad al rostro, vida. Amé este producto.
 
 Contiene Ácido Hialurónico (AH) de alto peso molecular al 0.45% (para hidratar) y AH de bajo peso molecular al 0,45% (para rellenar la dermis por su tamaño). Al igual que el serum, también tiene Niacinamida pero esta vez es al 6%, porque ese porcentaje le da energía a la célula para que siga ejerciendo sus funciones. Y aquí el porcentaje de Agua Termal es de 75,7 para también cumplir la función de calmante, anti-irritante y antinflamatoria.
+
+![](/images/uploads/belleza-avene-europa-collage-3.jpg)
 
 Y, por último, lo que la Rafita (11), Marido (@kleberos) y yo andamos trayendo en las mochilas todos los días es el protector solar **Ultra Fluid sin color FPS 50+** ($14.990 precio referencial) que de entrada les confirmo y reconfirmo, no deja la piel blanca y tiene oil control. Qué desagradable es andar con la piel grasa. Todos estos productos se los full recomiendo, tanto en verano como en invierno.
 
