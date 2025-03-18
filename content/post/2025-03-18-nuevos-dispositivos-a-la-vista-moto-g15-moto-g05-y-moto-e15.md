@@ -1,7 +1,7 @@
 ---
 title: 'Nuevos dispositivos a la vista: moto g15, moto g05 y moto e15'
 showonlyimage: true
-date: '2025-03-18T13:08:41-03:00'
+date: '2025-02-22T13:08:41-03:00'
 image: /images/uploads/tech-moto-g15.jpg
 rating: '1'
 tags:
