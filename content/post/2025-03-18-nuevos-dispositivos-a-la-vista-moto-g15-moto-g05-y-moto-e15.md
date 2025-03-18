@@ -2,7 +2,7 @@
 title: 'Nuevos dispositivos a la vista: moto g15, moto g05 y moto e15'
 showonlyimage: true
 date: '2025-02-22T13:08:41-03:00'
-image: /images/uploads/tech-motorola-g15.jpg
+image: /images/uploads/tech-motorola-g15-ppal.jpg
 rating: '1'
 tags:
   - SOYprueboytecuento
