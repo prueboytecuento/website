@@ -15,7 +15,7 @@ tags:
   - TECH
 categories:
   - TECH
-weight: '68'
+weight: '1'
 ---
 Conoce esta generación de equipos **\#Motorola** con pantallas ultrabrillantes, cámaras avanzadas y baterías de larga duración que ya están disponibles en Chile.
 
