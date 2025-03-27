@@ -28,6 +28,8 @@ Además de bonita, funcional y bien ondera es ropa con costuras reforzadas y cor
 Nolk es el resultado de una inversión de US$3 millones del Grupo Maritex para desarrollar ropa  premium de aventura y trabajo extremo pensada para hombres y mujeres.
  Ropa  con certificaciones internacionales que garantizan su rendimiento en distintos escenarios. 
 
+![](/images/uploads/tendencia-nolk2.jpg)
+
 Pero, ¿quién me garantiza que la ropa es tan espectacular?
 
 **A saber, estas son las certificaciones:**
