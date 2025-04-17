@@ -33,7 +33,7 @@ Este año el circuito varió para ofrecer una mejor experiencia a los participan
 
 ![null](/images/uploads/fitness-nb-ruta-collage.jpg)
 
-¿Dónde inscribirse? **https://15knewbalance.cl/inscripciones.html. Valores en la imagen**.
+¿Dónde inscribirse? **https://15knewbalance.cl/inscripciones.html. (Valores en la imagen)**.
 
 Los organizadores buscan reafirmar su compromiso con la inclusión deportiva y promover la igualdad de oportunidades en el deporte. Es por ello que habrá una categoría especial para personas con movilidad reducida. Detalles en la web de inscripciones.
 
@@ -45,6 +45,4 @@ Para los que aman correr ir a la **Maratón de Nueva York** es un sueño y New B
 
 ![null](/images/uploads/fitness-nb-corredores-collage.jpg)
 
-Los corredores deberán cortar el borde prepicado de su número de corredor y meterlo en una tómbola al finalizar la carrera… Y que la suerte corra a nuestro favor.
-
-**\#SOYprueboytecuento**
+Los corredores deberán cortar el borde prepicado de su número de corredor y meterlo en una tómbola al finalizar la carrera… Y que la suerte corra a nuestro favor. **\#SOYprueboytecuento**
