@@ -2,7 +2,7 @@
 title: 'Se viene la carrera New Balance 15K '
 showonlyimage: true
 date: '2025-04-17T11:52:34-04:00'
-image: /images/uploads/fitness-nb-1.jpg
+image: /images/uploads/fitness-nb-1-ok.jpg
 rating: '1'
 tags:
   - New Balance
@@ -25,34 +25,24 @@ weight: '1'
 
 <!--more-->
 
-![](/images/uploads/fitness-nb-1.jpg)
+![null](/images/uploads/fitness-nb-1-ok.jpg)
 
 No es primera vez que **\#NewBalance** realiza una corrida y en esta pasada la **“New Balance 15K 2025 by Powerade”** será para metas de 10K y 15K. No necesitan ser runner profesionales pero sí prepararse para evitar lesiones y terminar la carrera sin morir en el intento. ¡¡A poner a prueba nuestros límites!!
 
-Este año el circuito varió para ofrecer una mejor experiencia a los
+Este año el circuito varió para ofrecer una mejor experiencia a los participantes. Con un enfoque más urbano, recorrerá puntos reconocibles de Santiago como el Costanera Center, Plaza de la Aviación, Puente del Arzobispo y Plaza Italia, entre otros. **(Revisar infografía)**.
 
-participantes. Con un enfoque más urbano, recorrerá puntos reconocibles de
+![null](/images/uploads/fitness-nb-ruta-collage.jpg)
 
-Santiago como el Costanera Center, Plaza de la Aviación, Puente del Arzobispo y
-
-Plaza Italia, entre otros. **(Revisar infografía)**.
-
-![](/images/uploads/fitness-nb-ruta-collage.jpg)
-
-¿Dónde inscribirse? **https://15knewbalance.cl/inscripciones.html. Valores en la imagen**.
+¿Dónde inscribirse? **https://15knewbalance.cl/inscripciones.html. (Valores en la imagen)**.
 
 Los organizadores buscan reafirmar su compromiso con la inclusión deportiva y promover la igualdad de oportunidades en el deporte. Es por ello que habrá una categoría especial para personas con movilidad reducida. Detalles en la web de inscripciones.
 
-![](/images/uploads/fitness-nb-precios-ok-collage.jpg)
+![null](/images/uploads/fitness-nb-precios-ok-collage.jpg)
 
 > **GANA 2 CUPOS PARA LA MARATÓN DE NY 2025**
 
 Para los que aman correr ir a la **Maratón de Nueva York** es un sueño y New Balance te da la posibilidad de ganar 2 cupos para ese tremendo evento deportivo. Para ello, debes correr con tus New Balance el próximo domingo 4 de mayo.
 
-![](/images/uploads/fitness-nb-corredores-collage.jpg)
+![null](/images/uploads/fitness-nb-corredores-collage.jpg)
 
-Los corredores deberán cortar el borde prepicado de su número de corredor y meterlo
-
-en una tómbola al finalizar la carrera… Y que la suerte corra a nuestro favor.
-
-**\#SOYprueboytecuento**
+Los corredores deberán cortar el borde prepicado de su número de corredor y meterlo en una tómbola al finalizar la carrera… Y que la suerte corra a nuestro favor. **\#SOYprueboytecuento**
