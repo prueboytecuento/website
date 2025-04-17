@@ -29,7 +29,7 @@ weight: '1'
 
 No es primera vez que **\#NewBalance** realiza una corrida y en esta pasada la **“New Balance 15K 2025 by Powerade”** será para metas de 10K y 15K. No necesitan ser runner profesionales pero sí prepararse para evitar lesiones y terminar la carrera sin morir en el intento. ¡¡A poner a prueba nuestros límites!!
 
-Este año el circuito varió para ofrecer una mejor experiencia a los participantes. Con un enfoque más urbano, recorrerá puntos reconocibles de Santiago como el Costanera Center, Plaza de la Aviación, Puente del Arzobispo y Plaza Italia, entre otros. **(Revisar infografía)**.
+Este año el circuito, que parte en el Costanera Center, varió para ofrecer una mejor experiencia a los participantes. Con un enfoque más urbano, recorrerá puntos reconocibles de Santiago como el Costanera, Plaza de la Aviación, Puente del Arzobispo y Plaza Italia, entre otros. **(Revisar infografía)**.
 
 ![null](/images/uploads/fitness-nb-ruta-collage.jpg)
 
