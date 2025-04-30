@@ -38,9 +38,9 @@ Soy una lagartija declarada, tomo mucho sol en verano y, por lo mismo, debo reto
 
 Lady Speed Stick Clinical Complete indica en su envase una duración de 96 horas, porque contiene una fórmula antibacterial que ayuda al control del mal olor. No lo puse a prueba usándolo 1 vez por esa cantidad de tiempo, porque después de cada ducha matinal e incluso matinal y nocturna me aplico desodorante. 
 
-![](/images/uploads/belleza-lss-collage2.jpg)
+![null](/images/uploads/belleza-lss-collage2.jpg)
 
-Es con aroma, un aroma derivado de aceites naturales suave y agradable. No predominó por sobre el olor de mi fragancia diaria ni perfume cuando la usé. 
+Es con aroma, un aroma derivado de aceites naturales, suave y agradable. No predominó por sobre el olor de mi fragancia diaria ni perfume cuando la usé. 
 
 Para evitar una posible irritación y doy fe que no irrita, contienen Bisabolol que es un extracto de la manzanilla. 
 
