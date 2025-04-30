@@ -28,7 +28,7 @@ Lo usé durante más de una semana, su formato es similar al en barra, con la di
 
 Nunca esperé más de 4 minutos antes de ponerme las poleras o camisetas para que se absorbiera bien. Hay harto que hacer antes de terminar de vestirse así es que no fue problema esperar.
 
-![](/images/uploads/belleza-lss-clinical-1-desodorante.jpg)
+![null](/images/uploads/belleza-lss-clinical-1-desodorante.jpg)
 
 Este producto es un aliado real a la hora de detener el mal olor que genera la sudoración e incluso la sudoración excesiva cuando haces deporte (en mi caso y por el momento intensas sesiones de kine).   
 
