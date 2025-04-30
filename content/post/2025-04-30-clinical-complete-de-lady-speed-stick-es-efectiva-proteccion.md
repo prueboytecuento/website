@@ -20,7 +20,7 @@ weight: '1'
 
 <!--more-->
 
-![null](/images/uploads/belleza-lss-ppal2.jpg)
+![null](/images/uploads/belleza-lss-ppal.jpg)
 
 Mi desodorante de cabecera es en spray y probar uno en crema, porque el **Lady Speed Stick Clinical Complete** viene en ese formato, fue bien distinto porque demora un poco más en secar, pero no se pega, por ejemplo, a las prendas y eso se valora cuando no quieres las manchas.
 
@@ -37,6 +37,8 @@ Es efectivo incluso en estos calurosos días de otoño. Pre asumo que en el vera
 Soy una lagartija declarada, tomo mucho sol en verano y, por lo mismo, debo retocarme 1 o 2 veces el desodorante. Es probable que la protección clínica de este ayude a economizar con menos retoques o derechamente ninguno. Aunque no perdamos de vista que ningún producto es 100% infalible.
 
 Lady Speed Stick Clinical Complete indica en su envase una duración de 96 horas, porque contiene una fórmula antibacterial que ayuda al control del mal olor. No lo puse a prueba usándolo 1 vez por esa cantidad de tiempo, porque después de cada ducha matinal e incluso matinal y nocturna me aplico desodorante. 
+
+![](/images/uploads/belleza-lss-collage2.jpg)
 
 Es con aroma, un aroma derivado de aceites naturales suave y agradable. No predominó por sobre el olor de mi fragancia diaria ni perfume cuando la usé. 
 
