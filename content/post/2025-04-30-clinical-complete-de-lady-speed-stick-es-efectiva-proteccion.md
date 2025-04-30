@@ -5,7 +5,7 @@ date: '2025-04-27T10:33:25-04:00'
 image: /images/uploads/belleza-lss-ppal2.jpg
 rating: '1'
 tags:
-  - ': Clinical Complete de Lady Speed Stick'
+  - Clinical Complete de Lady Speed Stick
   - Protección
   - Desodorante
   - Mal Olor
