@@ -20,9 +20,11 @@ weight: '1'
 
 <!--more-->
 
+![](/images/uploads/belleza-lss-ppal.jpg)
+
 Mi desodorante de cabecera es en spray y probar uno en crema, porque el **Lady Speed Stick Clinical Complete** viene en ese formato, fue bien distinto porque demora un poco más en secar, pero no se pega, por ejemplo, a las prendas y eso se valora cuando no quieres las manchas.
 
-Lo usé durante más de una semana, su formato es similar al en barra, con la diferencia que por pequeños orificios sale este antitranspirante en crema. Ojo ahí que sale bastante, así es que calcula bien la cantidad al girar la rueda que viene en la parte inferior del envase. La primera vez me apliqué demasiado.
+Lo usé durante más de una semana, su formato es similar al en barra, con la diferencia que por pequeños orificios sale este antitranspirante en crema. Ojo ahí que sale bastante, así es que calcula bien la cantidad al girar la rueda que viene en la parte inferior del envase. La primera vez me apliqué demasiado.
 
 Nunca esperé más de 4 minutos antes de ponerme las poleras o camisetas para que se absorbiera bien. Hay harto que hacer antes de terminar de vestirse así es que no fue problema esperar.
 
