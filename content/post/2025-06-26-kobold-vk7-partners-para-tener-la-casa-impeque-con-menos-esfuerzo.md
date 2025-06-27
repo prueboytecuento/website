@@ -1,7 +1,7 @@
 ---
 title: 'Kobold VK7, partners para tener la casa impeque con menos esfuerzo'
 showonlyimage: true
-date: '2025-06-26T10:02:25-04:00'
+date: '2025-04-03T10:02:25-03:00'
 image: /images/uploads/tech-kobold-collage-ppal.jpg
 rating: '0'
 tags:
