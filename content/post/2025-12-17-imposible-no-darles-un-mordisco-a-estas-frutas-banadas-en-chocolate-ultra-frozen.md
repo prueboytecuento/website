@@ -37,4 +37,4 @@ No es una bolita dura al morderla, al contrario, hay suavidad, una fruta escarch
 Una refrescante y rica forma de presentar la fruta. Rica opción para compartir en estas calurosas tardes de terracita, en la piscina o donde quieras. En estos insufribles días de calor en Santiago, viene bien llevarse un cooler con agua y Bites a la piscinita. Delicia.
 
 Bites de Frutos del Maipo están disponibles en supermecados y su valor referencial es de $7.490 el paquete de 250 gramos (contenido equivalente a 9 porciones) y el pote de 150 gramos cuesta $4.990 (contenido equivalente a 5 porciones).\
-**\#SOYprueboytecuento**
+**\#SOYprueboytecuento**
