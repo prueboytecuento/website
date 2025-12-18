@@ -30,9 +30,13 @@ Qué si son muy dulces, qué si es una sobredosis calórica, qué si es imposibl
 
 De lo contrario y en honor a la verdad, no nos vamos a comer un paquete de 250 gramos o un pote de 150 gramos TODOS LOS DÍAS. Esos son los formatos en los que vienen.
 
-De los “qué” no mencionados, el más importante es a qué sabe esta mezcla. Para empezar, sólo había probado helado y pulpa de fruta cubierta en chocolate y este es un gran valor agregado de Frutos del Maipo… La fruta, fruta entera, de producción nacional y congelada que viene en su maduración justa: no se desarma al primer mordisco ni hay presencia de acidez por falta de madurez. 
+![](/images/uploads/comer-bites-fram-collage.jpg)
+
+De los “qué” no mencionados, el más importante es a qué sabe esta mezcla. Para empezar, sólo había probado helado y pulpa de fruta cubierta en chocolate y este es un gran valor agregado de Frutos del Maipo… La fruta, fruta entera, de producción nacional y congelada que viene en su maduración justa: no se desarma al primer mordisco ni hay presencia de acidez por falta de madurez. (**REEL XXX**)
 
 No es una bolita dura al morderla, al contrario, hay suavidad, una fruta escarchada de hielito por dentro y se siente hasta el sabor del jugo de la fruta mezclada con los 2 tipos de chocolates. Chocolates que además le entregan la crocancia a la mezcla y una maravillosa experiencia en cada bocado.
+
+![](/images/uploads/comer-bites-arancollage.jpg)
 
 Una refrescante y rica forma de presentar la fruta. Rica opción para compartir en estas calurosas tardes de terracita, en la piscina o donde quieras. En estos insufribles días de calor en Santiago, viene bien llevarse un cooler con agua y Bites a la piscinita. Delicia.
 
