@@ -1,7 +1,7 @@
 ---
 title: >-
-  Metí el Edge 60 Fusion al agua, lo lancé al suelo y sigue funcionando: el
-  teléfono que todos queremos en Navidad 
+  Metí el Edge 60 Fusion al agua, lo lancé al suelo y sigue vivo: el teléfono
+  que todos queremos en Navidad 
 showonlyimage: true
 date: '2025-12-23T02:25:54-03:00'
 image: /images/uploads/tech-60-fusion-collage-ppal.jpg
