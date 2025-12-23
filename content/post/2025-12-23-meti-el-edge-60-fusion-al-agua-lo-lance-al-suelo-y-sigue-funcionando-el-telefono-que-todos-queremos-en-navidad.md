@@ -27,11 +27,13 @@ En serio no exagero cuando **me atrevo a afirmar que esta será una de tus mejor
 
 Estamos hablando de un equipo súper delgado que apenas pesa 177 gramos con una pantalla de 6.7” pOLED Super HD que permite que sus bordes sean muy curvos y ver una imagen de colores muy vivos, definidos, potentes.
 
-![](/images/uploads/tech-6o-fusion-collage2.jpg)
+![null](/images/uploads/tech-6o-fusion-collage2.jpg)
 
 Y así también capta las fotos y videos. Colores muy reales. Algunos teléfonos alteran los tonos de los objetos que se capturan. En este caso el **Edge 60 Fusion** cuenta con una cámara principal de 50 MP Lytia de Sony con OIS (estabilización) y un Ultra Angular de 13 MP. La cámara frontal es de 32 MP.
 
 Me encantó, por ejemplo, cómo el teléfono capturó cada detalle de nuestro perro Appa, de su mirada, postura. Una foto cotidiana, simple, pero cargada de expresión. O la foto de la colección de calacas, alebrijes y una catrina mexicana que tenemos en casa. Es decoración pintada con colores que se encienden con luz negra y, lógico, tenemos instalada esa luz para que se vean los detalles de la artesanía… El teléfono no sólo captó el efecto, sino que además profundizó los colores.
+
+![](/images/uploads/tech-60-fusioncollage-3.jpg)
 
 Sin haberles contado ni la mitad de lo que es este **Moto de la familia Edge**, les adelanto que hoy está a **$299.990**. Entren a **motorola.cl** y compren ahora ya el suyo.
 
@@ -45,5 +47,5 @@ Nunca olvidaré cuando tuve la brillante idea de meter un iPhone al mar para gra
 
 El teléfono va rápido, al menos a mí no se me pegó ninguna de las veces que lo probé: su tasa de actualización es de 120 Hz. Tiene una memoria de 8GB RAM física + 16GB RAM Boost Inteligente y 256 GB de almacenamiento. 
 
-El equipo además cuenta con el sistema NFC, viene con la ranura microSD y es expandible hasta 1 TB. Son infinitos los pro de este equipo y ni hablar del precio. Un hermoso equilibrio precio-calidad, porque hay otros smartphones a bajo costo en el mercado pero malos y sé de personas que perdieron su inversión. Espero haberles sido útil.  
+El equipo además cuenta con el sistema NFC, viene con la ranura microSD y es expandible hasta 1 TB. Son infinitos los pro de este equipo y ni hablar del precio. Un hermoso equilibrio precio-calidad, porque hay otros smartphones a bajo costo en el mercado pero malos y sé de personas que perdieron su inversión. Espero haberles sido útil.\
 **\#SOYprueboytecuento**
