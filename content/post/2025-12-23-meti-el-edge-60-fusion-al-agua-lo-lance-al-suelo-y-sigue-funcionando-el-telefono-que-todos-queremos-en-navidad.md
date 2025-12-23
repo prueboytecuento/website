@@ -41,7 +41,7 @@ La batería de la generación anterior era de 5000 y ahora tiene una capacidad d
 
 En el título les hablé de resistencia y, claro, Motorola no es la única marca de celulares que la ofrece, pero no todas la cumplen. Efectivamente este equipo tiene estándares militares. Les grabé un video, porque lo dejé caer 2 veces al suelo y sí, tuve miedo de que se quebrara, sobre todo porque sus bordes son completamente curvos, pero no le pasó nada. No se rayó, abolló, trizo la pantalla, nada. Estamos hablando de una pantalla Gorilla Glass 7i.   
 
-![](/images/uploads/tech-60-fusioncollage-4.jpg)
+![null](/images/uploads/tech-60-fusioncollage-4.jpg)
 
 Tampoco hizo _glup glup_ cuando lo metí bajo la llave del agua en el lavamanos. Post prueba lo sacudí y sequé con una toalla. Cero rollo. El equipo cuenta certificación IP69 e IP68.
 
@@ -49,7 +49,7 @@ Nunca olvidaré cuando tuve la brillante idea de meter un iPhone al mar para gra
 
 El teléfono va rápido, al menos a mí no se me pegó ninguna de las veces que lo probé: su tasa de actualización es de 120 Hz. Tiene una memoria de 8GB RAM física + 16GB RAM Boost Inteligente y 256 GB de almacenamiento. 
 
-
+![](/images/uploads/tech-60fusioncollage-5.jpg)
 
 El equipo además cuenta con el sistema NFC, viene con la ranura microSD y es expandible hasta 1 TB. Son infinitos los pro de este equipo y ni hablar del precio. Un hermoso equilibrio precio-calidad, porque hay otros smartphones a bajo costo en el mercado pero malos y sé de personas que perdieron su inversión. Espero haberles sido útil.\
 **\#SOYprueboytecuento**
