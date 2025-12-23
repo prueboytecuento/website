@@ -17,7 +17,7 @@ categories:
   - TECH
 weight: '0'
 ---
-**\#prueboytecuentoTECH **Si estás por cambiar de teléfono o vas a regalar uno el 25 de diciembre, este modelo de **Motorola** es es-pec-ta-cu-lar. Un equipo de gama media a alta, a precio razonable y encima con **200 mil pesos de descuento**.
+**\#prueboytecuentoTECH** Si estás por cambiar de teléfono o vas a regalar uno el 25 de diciembre, este modelo de **Motorola** es es-pec-ta-cu-lar. Un equipo de gama media a alta, a precio razonable y encima con **200 mil pesos de descuento**.
 
 <!--more-->
 
@@ -46,5 +46,4 @@ Nunca olvidaré cuando tuve la brillante idea de meter un iPhone al mar para gra
 El teléfono va rápido, al menos a mí no se me pegó ninguna de las veces que lo probé: su tasa de actualización es de 120 Hz. Tiene una memoria de 8GB RAM física + 16GB RAM Boost Inteligente y 256 GB de almacenamiento. 
 
 El equipo además cuenta con el sistema NFC, viene con la ranura microSD y es expandible hasta 1 TB. Son infinitos los pro de este equipo y ni hablar del precio. Un hermoso equilibrio precio-calidad, porque hay otros smartphones a bajo costo en el mercado pero malos y sé de personas que perdieron su inversión. Espero haberles sido útil.  
-
 **\#SOYprueboytecuento**
