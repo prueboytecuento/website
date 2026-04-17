@@ -14,13 +14,13 @@ weight: '0'
 
 <!--more-->
 
-![null]()
+![null](/images/uploads/comerybeber-eltaller-oto1.jpg)
 
 En esta pasada **el Taller** se inspira en 12 hierbas y frutos nacionales, 12 hierbas y frutos que están a lo largo de nuestro país. Incluso algunos ni los conocemos porque se encuentran en zonas de difícil acceso, como la **Rica Rica**. 
 
 Se trata de un arbusto pequeño que se encuentra en el altiplano y sus hojas se usan en gastronomía, medicina e incluso coctelería. La **\#RicaRica** es extremadamente aromática y francamente no tiene un sabor que se me haga familiar con otro conocido. Su gusto es muy muy herbal. Ideal para combinarlo con un chocolate amargo.
 
-![null]()
+![null](/images/uploads/comerybeber-eltaller-oto-rica.jpg)
 
 Sus hojas, al igual que otras y frutas son recolectadas por reproductores locales y, en ocasiones, son los mismos pueblos originarios los que hacen esa noble labor.
 
