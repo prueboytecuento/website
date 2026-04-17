@@ -5,10 +5,10 @@ date: '2026-03-28T10:38:54-03:00'
 image: /images/uploads/comerybeber-eltaller-oto1ok.jpg
 rating: '0'
 tags:
-  - elTaller
+  - el Taller
   - Helados
-  - CartaOtoño
-  - SOYprueboytecuento
+  - Carta Otoño
+  - SOY Pruebo y te cuento
 categories:
   - COMER Y BEBER
 weight: '0'
