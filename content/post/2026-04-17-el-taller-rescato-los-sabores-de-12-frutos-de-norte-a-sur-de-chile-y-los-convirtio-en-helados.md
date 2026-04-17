@@ -30,7 +30,7 @@ En este review les voy a contar sobre algunos sabores, los que fueron más atrac
 
 Otro helado mundial de bueno es el de **Mandarinas de Limarí**. Súper fresquito, tiene un dulzor agradable, suave, es muy aromático . Mientras que el **Chocolate & Naranja de Talca** tiene un sabor muchísimo más marcado, con más cuerpo, firme. Viene con rodajas de naranjas en su cáscara que le da un amargor que equilibra este helado. Es uno de mis favoritos de esta carta de otoño que recorre sabores de Chile.
 
-![null]()
+![null](/images/uploads/comerybeber-eltaller-calafate.jpg)
 
 Los que frecuentan la heladería que este año cumple 11 años de vida saben que el **Pistacho de Lampa** es parte de la carta hace tiempo y de verdad se merecía un lugar en esta selección de 12 sabores. Es extremadamente cremoso, denso, con una generosa cantidad de pistacho en su mezcla. Una maravilla.
 
