@@ -2,7 +2,7 @@
 title: ' el Taller rescató sabores de 12 frutos de norte a sur de Chile y los convirtió en helados'
 showonlyimage: true
 date: '2026-04-17T10:38:54-04:00'
-image: /images/uploads/comery-beber-taller1.jpg
+image: /images/uploads/belleza-a-vene-sport2.jpg
 rating: '0'
 tags:
   - el Taller
