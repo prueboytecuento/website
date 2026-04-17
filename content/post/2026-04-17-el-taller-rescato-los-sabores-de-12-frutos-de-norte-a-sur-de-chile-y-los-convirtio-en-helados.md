@@ -5,7 +5,10 @@ date: '2026-03-28T10:38:54-03:00'
 image: /images/uploads/comerybeber-eltaller-oto1.jpg
 rating: '0'
 tags:
-  - '#elTaller #Helados #CartaOtoño #SOYprueboytecuento'
+  - elTaller
+  - Helados
+  - CartaOtoño
+  - SOYprueboytecuento
 categories:
   - COMER Y BEBER
 weight: '0'
