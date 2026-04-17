@@ -1,14 +1,14 @@
 ---
-title: ' el Taller rescató los sabores de 12 frutos de norte a sur de Chile y los convirtió en helados'
+title: ' el Taller rescató sabores de 12 frutos de norte a sur de Chile y los convirtió en helados'
 showonlyimage: true
 date: '2026-03-28T10:38:54-03:00'
 image: /images/uploads/comerybeber-eltaller-oto1ok.jpg
 rating: '0'
 tags:
-  - elTaller
+  - el Taller
   - Helados
-  - CartaOtoño
-  - SOYprueboytecuento
+  - Carta Otoño
+  - SOY Pruebo y te cuento
 categories:
   - COMER Y BEBER
 weight: '0'
