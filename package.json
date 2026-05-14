@@ -1,0 +1,27 @@
+{
+  "name": "website",
+  "version": "1.0.0",
+  "description": "Tasting &amp; testing | Mirar, oler, tocar, probar https://prueboytecuento.com",
+  "main": "index.js",
+  "directories": {
+    "test": "tests"
+  },
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/prueboytecuento/website.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "type": "commonjs",
+  "bugs": {
+    "url": "https://github.com/prueboytecuento/website/issues"
+  },
+  "homepage": "https://github.com/prueboytecuento/website#readme",
+  "devDependencies": {
+    "playwright": "^1.60.0"
+  }
+}

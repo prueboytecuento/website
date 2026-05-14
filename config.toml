@@ -1,12 +1,11 @@
 baseURL = "/"
-languageCode = "es-es"
+defaultContentLanguage = "es"
 title = "Pruebo y Te Cuento"
 theme = "hugo-nederburg-theme"
 # Enable comments by entering your Disqus shortname
 disqusShortname = "prueboytecuento"
 # Enable Google Analytics by entering your tracking code
 googleAnalytics = "UA-142840447-1"
-preserveTaxonomyNames = true
 paginate = 6 #frontpage pagination
 
 [permalinks]
