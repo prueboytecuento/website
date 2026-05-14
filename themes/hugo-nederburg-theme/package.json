@@ -1,13 +1,10 @@
 {
   "scripts": {
-    "build-css": "node-sass --include-path node_modules/bootstrap-sass/assets/stylesheets static/scss/main.scss   static/css/style.default.css",
-    "watch-css": "nodemon -e scss -x \"npm run build-css\""
-  },
-  "dependencies": {
-    "node-sass": "^4.5.0",
-    "sass": "^0.5.0"
+    "build-css": "sass --load-path=node_modules/bootstrap-sass/assets/stylesheets static/scss/main.scss static/css/style.default.css",
+    "watch-css": "sass --watch --load-path=node_modules/bootstrap-sass/assets/stylesheets static/scss/main.scss static/css/style.default.css"
   },
   "devDependencies": {
-    "bootstrap-sass": "^3.3.7"
+    "bootstrap-sass": "^3.4.3",
+    "sass": "^1.89.0"
   }
 }
