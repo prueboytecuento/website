@@ -1,6 +1,6 @@
 public
 .DS_Store
 node_modules
-package-lock.json
+/package-lock.json
 tests/screenshots/
 .hugo_build.lock
