@@ -1,7 +1,7 @@
 ---
 title: ¿Quién dijo descuentos? Steve Madden inauguró outlet
 showonlyimage: true
-date: '2026-06-07T19:13:45-04:00'
+date: '2026-04-13T19:13:45-04:00'
 image: /images/uploads/tendencia-stevem-ppal-collage.jpg
 rating: '0'
 tags:
