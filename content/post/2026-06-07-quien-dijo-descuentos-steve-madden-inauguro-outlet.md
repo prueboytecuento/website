@@ -19,7 +19,11 @@ weight: '0'
 
 <!--more-->
 
+![null](/images/uploads/tendencia-stevem-ppal-collage.jpg)
+
 Para que se hagan una idea, el descuento de las maravillosas zapatillas de la foto de abajo fue de $37.000 mil pesos. Tal cual. Su precio original es de $89.990 y quedaron en $52.990. Me encantan los colores flúor y el juego de colores sobre la base blanca y el original diseño con ese sello **Steve Madden** me empujaron a llevármelas a casa. Tentada nivel Dios.
+
+![null](/images/uploads/tendencia-stevem-zap-test2.jpg)
 
 Ya las estoy probando para contarles sobre comodidad, flexibilidad, resistencia a la transpiración de los piel por su materialidad y todo lo que tienen que saber sobre este modelo. Es el **Bonanza** que, ojo, sigue en tienda. 
 
@@ -27,14 +31,20 @@ A diferencia de otros outlets este tiene calzado y accesorios de temporadas pasa
 
 Pero no se trata de un regimiento de soñadas zapatillas, porque además hay muchas botas de diferentes largos, botines y un robusto abanico de mocasines.
 
-¿Dónde? En el **local 18-D del Arauco Premium Outlet Buenaventura** (San Ignacio 500, Quilicura).
+¿Dónde? En el **local 18-D del Arauco Premium Outlet Buenaventura** (San Ignacio 500, Quilicura).
 
 “Estamos muy contentos con esta apertura, la veníamos esperando hace mucho tiempo”, comenta Constanza Fuenzalida, Jefa de Marketing de Steve Madden Chile y agrega: “La tendencia esta temporada es al casual y al zapato, más que a la zapatilla. Si bien la zapatilla nunca la vamos a dejar, hay una tendencia al mocasín, a atrevernos más con las alturas”.
 
+![](/images/uploads/tendencia-stevem-mocasi-n.jpg)
+
 La tienda tiene descuentos de 30, 40 y hasta 50% en sus productos, lo que la convierte una atractiva alternativa para ir a cambiar calzado, accesorios o buscar regalos. No me digan nada que me enamoré de 3 carteras, pero tuve que aplicar el autocontrol, jajajá.
+
+![](/images/uploads/tendencia-stevem-carteras-collage.jpg)
 
 Saben que jamás les recomendaré algo si no estoy realmente convencida de que es bueno, sirve o, en este caso, conveniente. De verdad que me sorprendió que las zapatillas tuvieran un descuento de $37.000. 
 
+![](/images/uploads/tendencia-stevem-varios-zapatos.jpg)
+
 Meses antes me había comprado en Europa una larga y abrigadita parka Steve Madden (a Chile no llega ropa de esta marca) con hartos ceros, pero valió la pena porque me salvó del frío heavy. Tener acceso a su zapatería a precio outlet en nuestro país es genial.
 
-Suerte en su primera compra y disfruten comprando con descuentos. **\#SOYprueboytecuento**
+Suerte en su primera compra y disfruten comprando con descuentos. **\#SOYprueboytecuento**
