@@ -24,7 +24,7 @@ El equipo es uno de los que comprende la fashonista colección **\#Motorola**, m
 
 Es cosa de mirar el acabado de **cuero vegano texturizado **en la parte posterior en tonos azules con el símbolo de esta Copa del Mundo, un exquisito aroma a perfume como todos los teléfonos Motorola y la guinda del diseño: **los símbolos del mundial FIFA, Motorola y borde de las cámaras y flash en oro de 24 quilates**. Tal cual.
 
-![](/images/uploads/tech-motorola-fifa2.jpg)
+![null](/images/uploads/tech-motorola-fifa2.jpg)
 
 Yo, en verdad, no puedo con tanta belleza. Lo he dicho varias veces. De todas las marcas de telefonía celular, Motorola es la única que combina tan bien el alto nivel de funcionamiento y estética.
 
