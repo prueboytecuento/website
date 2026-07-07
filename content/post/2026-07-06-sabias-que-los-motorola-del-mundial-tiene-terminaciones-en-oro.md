@@ -32,9 +32,13 @@ Siempre preocupados de que sus equipos tengan el color Pantone del momento, de u
 
 Este modelo de smartphone mundialero viene con el **ringtone oficial del mundial, fondos de pantalla exclusivos e incluso una marca de agua inteligente en la cámara que detecta los colores de las camisetas**. ¡Qué tal!
 
+![](/images/uploads/tech-motorola-fifa-collage-colors.jpg)
+
 Las fotos de este review hablan por las cámaras. En este caso, en la parte trasera hay un sensor principal Sony LYTIA 710 de 50 MP (con estabilización óptica OIS) y un Ultra Gran Angular de 13 MP. La frontal es de 32 MP.
 
 Como todos sus equipos, el Edge 70 Fusion FIFA World Cup 2026 Edition también tiene certificación de resistencia frente, ejemplo, caídas al suelo, agua , golpes bruscos, etc. La doble certificación IP68/IP69 (para inmersión o agua a alta presión) y certificación de resistencia militar MIL-810H. El sistema operativo es el Android 16 y el cargador rápido TurboPower de 68W y 5200 mAh.
+
+![](/images/uploads/tech-motorola-fifa-4.jpg)
 
 Si de memoria RAM se trata, la física es de 8 GB y el almacenamiento de 256GB. El procesador es un Qualcomm Snapdragon 7s Gen 3. 
 
