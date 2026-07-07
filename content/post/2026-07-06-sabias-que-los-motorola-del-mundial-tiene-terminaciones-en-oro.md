@@ -30,11 +30,7 @@ Yo, en verdad, no puedo con tanta belleza. Lo he dicho varias veces. De todas la
 
 Siempre preocupados de que sus equipos tengan el color Pantone del momento, de usar materiales que se puedan reciclar. En este caso si de pantalla se trata, hablamos de una Extreme AMOLED curva de 6.78 pulgadas, resolución de 1.5K y 144 Hz de refresco. Es full brillante, con tonos coloridos muy marcados y colores oscuros bien profundos. El cristal es Gorilla Glass 7i. 
 
-No saben lo que es ver un partido del Mundial en este equipo. Le dejo un video para que se hagan una idea. LINK: 
-
 Este modelo de smartphone mundialero viene con el **ringtone oficial del mundial, fondos de pantalla exclusivos e incluso una marca de agua inteligente en la cámara que detecta los colores de las camisetas**. ¡Qué tal!
-
-![](/images/uploads/tech-motorola-fifa-collage-colors.jpg)
 
 Las fotos de este review hablan por las cámaras. En este caso, en la parte trasera hay un sensor principal Sony LYTIA 710 de 50 MP (con estabilización óptica OIS) y un Ultra Gran Angular de 13 MP. La frontal es de 32 MP.
 
